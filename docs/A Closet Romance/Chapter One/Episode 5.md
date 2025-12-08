@@ -1,11 +1,15 @@
-Episode 5: When You're Not Alone, You Should Just Ask for Help
+---
+parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
+title: Episode 5
+---
 
+Episode 5: When You're Not Alone, You Should Just Ask for Help
 
 The next day, when I arrived at school, Mizuki was already sitting in her classroom chair, eyes closed, fast asleep.
 
 I really wanted to ask how her night shift had gone last night, but with people around, I couldn't bring myself to ask.
 
-Somehow, Mizuki at school always seems to have this aura that makes it hard to approach her.
+Somehow, Mizuki at school always seems to have this aura that makes it hard to approach her.\
 I'm quite noticeable myself, so for Mizuki, who probably just wants to be left in peace, being spoken to might be a nuisance.
 
 　As I placed my school bag on the desk, a sudden thud hit my back. Startled, I spun around.
@@ -14,14 +18,14 @@ I'm quite noticeable myself, so for Mizuki, who probably just wants to be left i
 
 "...Oh, it's Maki. Morning."
 
-It was Maki who'd tackled me, throwing her arms around me.
+It was Maki who'd tackled me, throwing her arms around me.\
 A faint, unfamiliar fruity scent reached me, and I brought my nose closer to hers.
 
 "Hm? You smell nice today."
 
 "I put on perfume. I'm going out with some boys from another school today. How about it? Am I giving off that 'hot chick' vibe?"
 
-Maki flashed a peace sign. Her makeup seemed heavier than usual, and she looked unusually fired up.
+Maki flashed a peace sign. Her makeup seemed heavier than usual, and she looked unusually fired up.\
 Judging by her thick lashes, which looked like they could flap like wings, it was easy to guess she was expecting some decent prospects this time.
 
 "I don't know about looking like a proper lady, but you do smell rather delicious."
@@ -34,46 +38,45 @@ Judging by her thick lashes, which looked like they could flap like wings, it wa
 
 Of course I'd turn down a confession from a boy. It's not that I dislike boys. But my heart just doesn't flutter at all, so what can I do?
 
-There is someone I like, actually. Not a boy, though.
+There is someone I like, actually. Not a boy, though.\
 But there's no way I could say that.
 
 "...There's no way someone like that exists. I'm a student preparing for exams, you know? My future matters more than romance."
 
 I've always been bloody good at dodging questions.
 
-The warning bell rang. I swept my long, curled hair back over my shoulders and sat down at my desk.
+The warning bell rang. I swept my long, curled hair back over my shoulders and sat down at my desk.\
 After holding Tasuku for over an hour, the bicep soreness – my honourable injury sustained for Mizuki's sake – grew worse by the minute.
 
 ＊＊＊
 
 People like me, who haven't come out about their sexual orientation to anyone, must be a dime a dozen in this world.
-　
+
 The L in LGBTQ+. Lesbian. That's me.
 
 Falling for Mizuki made me realise it all too clearly.
-　
+
 The emotion occupying my heart was far too intense to be directed towards someone of the same sex, far too profound to be dismissed as mere admiration.
 
-　There was no longer any doubt.
+　There was no longer any doubt.\
 After all, from the moment I was born until now, from my earliest childhood, I'd never once felt drawn to a man.
 
 Amongst all that, meeting Mizuki was—like having a bullet fired straight through my skull.
 
-I have to admit it. I like girls. That fact will surely never change, no matter how much I deny it, and I can never escape from myself.
+I have to admit it. I like girls. That fact will surely never change, no matter how much I deny it, and I can never escape from myself.\
 　Even if I can't tell anyone yet, I want to at least acknowledge this part of myself.
 
-We'd had several lessons at school about sexual minorities.
-People like this exist in the world.
-There might even be someone in this class.
+We'd had several lessons at school about sexual minorities.\
+People like this exist in the world.\
+There might even be someone in this class.\
 So let's be careful what we say.
-　
+
 Blimey, we just got a glossy explanation, tracing the textbook's words, and that was it.
 
-I couldn't stand it. It felt like they were talking about me, and I got all fidgety.
+I couldn't stand it. It felt like they were talking about me, and I got all fidgety.\
 Just end it already, don't give this explanation, don't touch on it. I'd always felt that way.
 
 Even when the teacher asked for opinions, all I could do was give a half-arsed answer like, "I thought discrimination and prejudice were bad," pretending to be heterosexual.
-
 
 　Does this lesson really mean anything?
 
@@ -81,19 +84,19 @@ Will the world truly change through this?
 
 Ten years from now, twenty years from now, or even further into the future – will it be a world where loving someone of the same sex is accepted?
 
-What is 'normal'?
-What is 'natural'?
+What is 'normal'?\
+What is 'natural'?\
 For me, loving women is normal and natural, yet I still can't tell anyone about this natural feeling.
 
 　Everyone listened to the lecture seriously, without mockery, but I seriously doubt every single one of them would accept it without prejudice.
 
-I've seen people marching through the streets, raising their voices with rainbow flags.
-They're taking action to change the world... it's amazing.
+I've seen people marching through the streets, raising their voices with rainbow flags.\
+They're taking action to change the world... it's amazing.\
 I think that, but I don't have the courage to do it myself.
 
 I just passed by silently. With a face that showed I hadn't noticed at all. I live wearing the mask of a heterosexual.
 
-I can't bring myself to deliberately come out.
+I can't bring myself to deliberately come out.\
 Being different from others tends to make you stand out. It's just the way of the world that if you turn left when everyone else is told to turn right, you instantly draw attention.
 
 Even knowing they might not necessarily accept me, I don't feel any need to declare that I like women. It's too frightening.
@@ -117,17 +120,17 @@ I messaged Mitsuki, "When's your next night shift?" She replied, "Today." So I c
 Seeing how desperate she looked, I realised it was best to stay quiet. I just followed a little way behind.
 
 We dashed through the ticket gates and reached the platform just as our train pulled in.
-　
-　We slid onto the train just in the nick of time. The air conditioning felt wonderfully cool against our sweaty bodies.
-If no one was watching, I’d have pulled my blouse out from under my skirt and flapped it about to catch the breeze.
+
+　We slid onto the train just in the nick of time. The air conditioning felt wonderfully cool against our sweaty bodies.\
+If no one was watching, I’d have pulled my blouse out from under my skirt and flapped it about to catch the breeze.\
 Of course, I couldn’t do something so indecent.
 
 Mizuki always bolted out of the classroom the moment the bell rang, but perhaps it was to pick up Tasuku.
-　
+
 　No wonder I, strolling leisurely to the station, never bumped into her.
 
-When I wiped the sweat beading on her forehead with my handkerchief, Mizuki looked up at me with a startled expression.
-Her almond-shaped eyes, round like a cat's, looked up at me with an adorable gaze.
+When I wiped the sweat beading on her forehead with my handkerchief, Mizuki looked up at me with a startled expression.\
+Her almond-shaped eyes, round like a cat's, looked up at me with an adorable gaze.\
 Blushing, Mizuki brushed my hand away.
 
 "It's dirty."
@@ -139,24 +142,23 @@ Blushing, Mizuki brushed my hand away.
 It wasn't dirty.
 The red Vivienne gauze handkerchief, snatched away somewhat forcefully, vanished into the pocket of Mitsuki's blazer.
 
-
 When she arrived at the nursery just a short walk from the nearest station, Mizuki took a blue lanyard name tag from her large tote bag, hung it around her neck, and pressed the nursery's intercom.
 
 "I'm here to collect Kase Tasuku."
 
-The nursery teacher seemed accustomed to this, paying little heed to Mizuki in her school uniform.
+The nursery teacher seemed accustomed to this, paying little heed to Mizuki in her school uniform.\
 But when a woman with a child happened to cross our path and stared at us with a strange look, I felt unbearably uncomfortable.
 
-　A schoolgirl in uniform picking up a baby was bound to be unusual.
+　A schoolgirl in uniform picking up a baby was bound to be unusual.\
 Even though I wasn't doing anything wrong, I somehow felt guilty.
 
-Tasuku isn't this child's son, he's her brother.
+Tasuku isn't this child's son, he's her brother.\
 There's no reason for people to look at us like that; in fact, what we're doing should be commended.
-　
-　Adults, who know nothing, cut us down mercilessly with their curious stares.
+
+　Adults, who know nothing, cut us down mercilessly with their curious stares.\
 Does Mizuki endure this feeling all the time? The hardship... is beyond my imagination.
 
-Equipping the black baby carrier, Mizuki lifted Tasuku up in an instant.
+Equipping the black baby carrier, Mizuki lifted Tasuku up in an instant.\
 Snuggled tightly against Mizuki's stomach, looking perfectly content, he munched away at the shoulder straps of the carrier as if they were delicious.
 
 "Nana, can we pop into the baby shop before we go home? I need to buy some undershirts for Tasuku."
@@ -183,10 +185,9 @@ Before we started walking, I grabbed the large tote bag hanging from Mizuki's sh
 
 Walking slowly beside Mizuki, who set off cradling Tasuku carefully, I followed.
 
-　
 　The shop with the large sign featuring a rabbit character was one I'd definitely seen before, though never entered. Inside, there was no background music playing at all, making it feel like a rather peculiar space.
 
-Children's clothes were crammed onto tall shelves, packed tightly together.
+Children's clothes were crammed onto tall shelves, packed tightly together.\
 Mizuki headed straight for the baby underwear section as if she knew her way around. After examining a few items, she placed a mesh undershirt with a dinosaur illustration into her basket.
 
 "You know, Mizuki, you look like a proper mum."

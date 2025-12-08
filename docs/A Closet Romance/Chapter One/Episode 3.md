@@ -1,7 +1,11 @@
+---
+parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
+title: Episode 3
+---
+
 Episode 3: Did You Think It Was My Child?
 
-
-Kase Mizuki's flat was about a fifteen-minute walk from mine, on the ground floor of a two-storey apartment building.
+Kase Mizuki's flat was about a fifteen-minute walk from mine, on the ground floor of a two-storey apartment building.\
 It was a simple structure with no automatic locks or anything, but the cream-coloured exterior walls were still new and clean.
 
 Stepping under the roof, I closed my umbrella and casually brushed off the droplets.
@@ -14,7 +18,7 @@ I see. So she'd only just moved in, which explained why we'd never crossed paths
 
 "Well, since you're here, why not stay for a cup of tea? You can head back once the rain eases off?"
 
-The offer was more than welcome, and I couldn't help but smile.
+The offer was more than welcome, and I couldn't help but smile.\
 I'd been thinking how incredibly lucky I was just to have a few minutes to chat before heading home.
 
 "Is that alright? Thank you."
@@ -31,10 +35,10 @@ The living room, silent and empty, felt larger than I'd imagined.
 
 　A baby cot stood prominently, and I was taken aback by the unmistakable atmosphere of active childcare.
 
-Surely, this child isn't really Kase Mizuki's... is it?
+Surely, this child isn't really Kase Mizuki's... is it?\
 Even though you can marry from eighteen, she hasn't already got married, has she...?
 
-Could it be her husband's child from a previous relationship, or...?
+Could it be her husband's child from a previous relationship, or...?\
 Unpleasant imaginings swirled round and round in my mind.
 
 "Ah, I'll get you some tea. Please take a seat on the sofa."
@@ -45,10 +49,10 @@ Without removing the baby carrier, Kase Mizuki efficiently stowed the baby items
 
 "No, I'll put him down now."
 
-　Kase Mizuki stood beside the cot and clicked the buckle on the back of the carrier open.
+　Kase Mizuki stood beside the cot and clicked the buckle on the back of the carrier open.\
 With the gentle care one might use with fragile glass, she carefully laid the baby down in the cot. The baby didn't wake, falling asleep with arms stretched high in the air.
 
-"Phew, thank goodness he didn't wake... This moment always makes me nervous."
+"Phew, thank goodness he didn't wake... This moment always makes me nervous."\
 "...Hey, mind if I have a closer look? "
 
 "Sure, come over here."
@@ -63,15 +67,14 @@ I approached cautiously as she beckoned me over. Having never seen a baby up clo
 
 Kase Mizuki grinned.
 
-　Without saying a word, I simply shook my head.
+　Without saying a word, I simply shook my head.\
 Honestly, I had doubted it just a little. Though I knew it was unlikely, of course.
 
 Phew, thank goodness. I felt incredibly relieved.
 
-
 But seriously, why are you looking after your little brother all by yourself? I couldn't bring myself to ask, so I just stared at Tasuku, fast asleep.
 
-Tiny hands. Fuzzy, downy hair, a light brown colour.
+Tiny hands. Fuzzy, downy hair, a light brown colour.\
 　He slept so utterly still that his face looked almost artificial.
 
 Is he breathing properly? I felt uneasy.
@@ -94,36 +97,35 @@ As she peered down at Tasuku, Kase Mizuki smiled softly.
 
 Then, with a distant look in her eyes, she spoke to the sleeping baby.
 
-
-　The rain showed no sign of stopping. Nor did it lessen.
+　The rain showed no sign of stopping. Nor did it lessen.\
 But I hoped it would keep falling like this. I wanted to talk more with Kase Mizuki, just the two of us.
 
 "...It was the talk of the school, wasn't it? That I had a child."
 
-While boiling water for milk in the kitchen, she suddenly asked this, stifling a yawn.
+While boiling water for milk in the kitchen, she suddenly asked this, stifling a yawn.\
 　Staring out the dim window through the heavy rain, I inwardly flinched, but forced a nonchalant expression and turned to face Kase Mizuki.
 
 "Really? I've never heard that rumour."
 
-It was a lie.
+It was a lie.\
 I didn't want her to misunderstand that I'd asked out of curiosity, wanting to verify the rumour. I couldn't bring myself to admit it honestly, so I pretended ignorance.
-　
+
 "Someone apparently saw me. Well, I suppose it would be startling, seeing a schoolgirl walking around carrying a baby. I get stared at a lot, so I'm used to it now."
 
 "Aren't you going to correct the rumour? You could just say he's your little brother. Oh, shall I tell them?"
 
 "No, I'd rather it stayed a topic we don't touch on than have people probe too deeply. Could you keep it to yourself too, Asami-san?"
 
-Her eyes looked at me warily.
+Her eyes looked at me warily.\
 I had no intention of telling anyone. Besides, it'd be a waste to share such a juicy story.
 
 "...Alright then. It's just between us."
 
 The fact that her brother was eighteen years younger than her, and then questions like how old her mother must be, or what her father did for a living – they piled up like mountains.
-　
+
 　But for her, it seemed better to endure being bombarded with questions than to have rumours – true or false – spread about her. So I didn't ask.
 
-Lately, Kase Mizuki had been sleeping through every break between lessons, completely shutting out the outside world.
+Lately, Kase Mizuki had been sleeping through every break between lessons, completely shutting out the outside world.\
 Even if rumours were spread, she herself seemed utterly unconcerned.
 
 Amidst the sound of rain, the trickle of running water reached me from the kitchen. Curious, I stood up and peered over her shoulder to see her running a baby bottle under the tap to cool it.
@@ -140,8 +142,8 @@ Hearing Kase Mizuki mention her mother, I felt relieved – thank goodness, it w
 
 Saying this with a laugh, Kase Mizuki returned, bottle in hand.
 
-Huh? Night shift...?
-Is it even possible for a mother not to come home until morning when there's such a tiny baby?
+Huh? Night shift...?\
+Is it even possible for a mother not to come home until morning when there's such a tiny baby?\
 　Could that be why Kase Mizuki always looked so sleepy? Because she'd been up all night looking after Tasuku?
 
 Tasuku slept soundly and comfortably, showing no sign of waking yet.
@@ -168,7 +170,7 @@ Tasuku scrunched up his face. Then, almost immediately, a faint, whimpering cry 
 
 "No, it's alright. Perfect timing. Come on, Tasuku. It's time for your milk."
 
-With practised ease, Kase Mizuki lifted Tasuku and brought the bottle, just cooled, to his mouth.
+With practised ease, Kase Mizuki lifted Tasuku and brought the bottle, just cooled, to his mouth.\
 Opening his tiny mouth, he latched onto the bottle. Still seeming to drift in a dream, his eyelids closed as he puffed out his cheeks and began drinking.
 
 "...What do you do on night shifts?"
@@ -201,7 +203,7 @@ But I didn't say it.
 
 "But I feel bad..."
 
-Kase Mizuki deftly rested Tasuku, who'd finished his milk, against her shoulder and patted his back.
+Kase Mizuki deftly rested Tasuku, who'd finished his milk, against her shoulder and patted his back.\
 Tasuku immediately let out a small burp and looked content.
 
 "Ah, right, I need to change his nappy first."
@@ -212,12 +214,12 @@ I pointed at the nappy packet and asked. Mizuki Kase narrowed her eyes teasingly
 
 "Wouldn't you hate wearing a wet nappy all the time? You'd understand how uncomfortable it is, wouldn't you? Being a girl?"
 
-True.
+True.\
 　Unable to retort, I silently watched as Kase Mizuki undid the buttons between the legs of the light green romper suit Tasuku was wearing (I later learnt it was called a 'romper') and pulled it up to his tummy.
 
 But when she actually reached for the tape to remove the nappy, I averted my gaze.
 
-　Somehow, it felt like something I shouldn't be watching.
+　Somehow, it felt like something I shouldn't be watching.\
 I know I'm overthinking it, but still... Tasuku is a boy, after all.
 
 After having his nappy changed, Tasuku beamed at me with a delighted smile.
@@ -230,7 +232,7 @@ When I asked that, as if starting over, Kase Mizuki looked at me, her eyebrows d
 
 "Yes."
 
-"Like this, supporting him while holding her sideways..."
+"Like this, supporting him while holding him sideways..."
 
 I lifted Tasuku up. He felt heavier than I'd imagined, quite substantial. Yet he seemed limp and warm.
 

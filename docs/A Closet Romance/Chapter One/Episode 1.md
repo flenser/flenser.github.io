@@ -1,3 +1,8 @@
+---
+parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
+title: Episode 1
+---
+
 Episode 1: I'm Studying Because I Want to Be Fashionable
 
 The day Kase Mitsuki finally fell from the top spot, my name shone at the very top of the ranking chart posted in the corridor for the first time.
@@ -7,28 +12,28 @@ Asami Nana.
 　My name, one I'd seen until I was sick of it.
 
 Amidst the crowd gathered to see the top performers in the mid-term exams, I simply stared straight at my own name.
-　
+
 　Simply being one name above Kase Mitsuki, the absolute, unshakeable champion, made my name shine like that of a great figure.
 
 "Nana, that's amazing! Top of the year! Beating that Kase-san, that's crazy!"
 
-Maki grabbed my shoulder and shook me excitedly.
+Maki grabbed my shoulder and shook me excitedly.\
 I put on an expression of indifference and replied haughtily, "Well, yeah."
 
-　I glance around the corridor.
+　I glance around the corridor.\
 The crucial Kase Mizuki hasn't come to see the freshly posted rankings yet; it seems she still doesn't know she's been beaten by me.
 
 Since we started school, Kase Mizuki had always monopolised the top spot in our year. Not once had she ever dropped in the rankings.
 
-Even the 'New Student Representative Speech' at the entrance ceremony was given by Kase Mizuki, who entered as valedictorian.
+Even the 'New Student Representative Speech' at the entrance ceremony was given by Kase Mizuki, who entered as valedictorian.\
 　Therefore, there wasn't a single person in our year who didn't know her name.
 
 She was someone I'd admired endlessly since my first year.
 
 "Nana, you know, you don't look smart at all, but you can study, right? I was shocked. You dye your hair, wear piercings, you just look like a total idiot."
 
-I shook off the hand tugging my earlobe and glared at Maki.
-　If we're talking about looking daft, Maki's no slouch either. Her skirt's shorter than mine, and her makeup's thicker.
+I shook off the hand tugging my earlobe and glared at Maki.\
+　If we're talking about looking daft, Maki's no slouch either. Her skirt's shorter than mine, and her makeup's thicker.\
 I keep mine fairly low-key with brown hair, but the only one in our year with golden inner highlights is Maki.
 
 "Don't be rude. I study so I can dress up. As long as I get my work done, no one complains if I let my hair down a bit."
@@ -81,9 +86,9 @@ This all-girls school, where romantic gossip doesn't really happen, is far too p
 
 "A child? No, no... surely it's someone else? Besides, if she were pregnant, you'd know straight away. Your tummy gets huge. When would a perfect attendance student give birth? If she were pregnant, she couldn't possibly come to school. There's no way she could hide it."
 
-　The utter lack of plausibility made her shoulders slump.
-She couldn't care less where the rumour started, but if they were going to spread something, couldn't they at least make up a story people might actually believe?
-Like, she's dating the teacher? Or secretly doing sugar daddy stuff behind her serious facade?
+　The utter lack of plausibility made her shoulders slump.\
+She couldn't care less where the rumour started, but if they were going to spread something, couldn't they at least make up a story people might actually believe?\
+Like, she's dating the teacher? Or secretly doing sugar daddy stuff behind her serious facade?\
 Where on earth did this ridiculous rumour about her having a child even come from?
 
 　Is this school full of idiots? Who on earth would believe such a completely baseless rumour?
@@ -94,8 +99,8 @@ Maki pouted her lips in boredom.
 
 Well, I can understand wanting some gossip about Kase Mizuki.
 
-A striking beauty.
-　A solitary girl who doesn't associate with anyone.
+A striking beauty.\
+　A solitary girl who doesn't associate with anyone.\
 If there were any sensational gossip, it would surely spread like wildfire.
 
 Kase Mizuki stands out in the classroom.
@@ -106,17 +111,17 @@ She doesn't have any particularly close friends, but she isn't bullied either. S
 
 　She doesn't feel like a lone wolf either. She seems normal when you talk to her. But she never opens up to anyone.
 
-I thought if I knocked her off the top spot, she might take a little interest in me.
-But my hopes were dashed; Kase Mizuki seems utterly unconcerned about her ranking.
+I thought if I knocked her off the top spot, she might take a little interest in me.\
+But my hopes were dashed; Kase Mizuki seems utterly unconcerned about her ranking.\
 She doesn't even bother checking the leaderboard, just idly doodling on her desk.
 
-Lately, it's always like this. She sleeps through every break between lessons.
-　I thought she must be studying so hard she was sleep-deprived, but judging by her test results, that doesn't seem to be the case.
+Lately, it's always like this. She sleeps through every break between lessons.\
+　I thought she must be studying so hard she was sleep-deprived, but judging by her test results, that doesn't seem to be the case.\
 Because this time, in the mid-term exam, Kase Mitsuki was truly uncharacteristic.
 
 Because the reason I won this time was—not that my score went up, but that hers went down.
 
-I find myself constantly preoccupied with her.
+I find myself constantly preoccupied with her.\
 It's driving me absolutely mad.
 
 I want to force those inscrutable dark eyes of hers to look this way, no matter what.
@@ -143,7 +148,7 @@ So, what is that girl's dream?
 
 I've never once heard her mention playing with anyone after school.
 
-As soon as lessons end, she gathers her things and dashes out of the classroom.
+As soon as lessons end, she gathers her things and dashes out of the classroom.\
 It's as if she only comes to school for the lessons; she seems utterly disinterested in anything else.
 
 Because she avoids interacting with anyone, people start spreading unfounded rumours, like she's pregnant or something.
