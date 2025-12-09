@@ -1,5 +1,10 @@
-Episode 9: Wondering Whether to Go to University
+---
+parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
+title: Episode 9
+nav_order: 30
+---
 
+Episode 9: Wondering Whether to Go to University
 
 "Sorry, I completely overslept..."
 
@@ -11,15 +16,14 @@ Rubbing her sleepy eyes, Mizuki's bedhead was adorable. Still holding Tasuku in 
 
 　Oh, I've done it, I thought, but Mizuki didn't seem to mind, just blinking a few times.
 
-Mizuki is adorable.
-Her round, cat-like eyes are utterly charming. Those pale pink lips... I want to touch them with mine.
+Mizuki is adorable.\
+Her round, cat-like eyes are utterly charming. Those pale pink lips... I want to touch them with mine.\
 That slender body... how happy I'd feel if I could pull her close.
 
 　I know it's absolutely impossible, but precisely because it is impossible, my imagination runs wild, relentlessly crushing my chest.
 
-Hugging as friends is perfectly normal, and I do it routinely with Maki. But Mizuki is different from Maki.
+Hugging as friends is perfectly normal, and I do it routinely with Maki. But Mizuki is different from Maki.\
 Just because we're both girls and no one would notice, touching Mizuki while hiding ulterior motives feels wrong. It's absolutely not fair.
-
 
 　A message from Mum had come in: "What time will you be home?" I replied, "About fifteen minutes."
 
@@ -29,7 +33,7 @@ I slipped my feet into the loafers I'd lined up beside Mizuki's trainers and tur
 
 "...What's up? Did you not get enough sleep?"
 
-For Mizuki, a long night was about to begin.
+For Mizuki, a long night was about to begin.\
 Maybe she wanted a bit more sleep. I should have checked with Mizuki before messaging her mum, I thought, but Mizuki shook her head from side to side.
 
 "No. Nana, listen, is it alright if I ask? Which university are you planning to apply to?"
@@ -38,8 +42,8 @@ Maybe she wanted a bit more sleep. I should have checked with Mizuki before mess
 
 "A university within the prefecture?"
 
-Asked so suddenly, I was slightly taken aback.
-What should I do? This feels incredibly hard to say.
+Asked so suddenly, I was slightly taken aback.\
+What should I do? This feels incredibly hard to say.\
 That's what I thought, but I couldn't bring myself to lie to those eyes staring straight at me.
 
 "No, I... I plan to apply to universities in Tokyo."
@@ -50,25 +54,25 @@ Mizuki's expression clouded over instantly. I could see a shadow fall deep withi
 
 "...Where are you applying, Mizuki?"
 
-Until now, I'd somehow found it awkward to ask. But not asking now, given the flow of the conversation, felt unnatural.
+Until now, I'd somehow found it awkward to ask. But not asking now, given the flow of the conversation, felt unnatural.\
 Thinking that, I asked. Mizuki averted her gaze from me and stared at her feet.
 
 "I... I'm not sure if I'll go on to university."
 
 Eh? The word slipped out before I could stop it.
-　
+
 　The top student in the year, not going to university?
 
 With her grades, she could probably get into the most prestigious university in the prefecture if she just carried on?
 
-Still holding Tasuku, Mizuki gave a faint, fragile smile.
+Still holding Tasuku, Mizuki gave a faint, fragile smile.\
 I couldn't say anything, just pressed my lips together.
 
 "...Sorry for asking something weird and trying to stop you. Take care getting home."
 
 ＊＊＊
 
-　The summer night was still bright.
+　The summer night was still bright.\
 Walking slowly home through the muggy, humid air, I thought about Mizuki.
 
 If she’d given up on further education, it was only natural she’d lost the will to study.
@@ -76,13 +80,12 @@ If she’d given up on further education, it was only natural she’d lost the w
 But once she started working, she wouldn’t have long holidays like students do. Wouldn’t looking after Tasuku become even harder?
 
 Hmm, I wonder.
-　
-　Right now he's just a baby, so looking after him is hard work, but once he gets bigger, does childcare get easier?
+
+　Right now he's just a baby, so looking after him is hard work, but once he gets bigger, does childcare get easier?\
 Or the opposite? Does it get harder? As the youngest child, I couldn't begin to imagine what lay ahead.
 
-　
-Not going on to further education? I... never even considered it. I simply assumed everyone would.
-I don't think I was particularly spoilt growing up, but I hadn't realised until now how privileged my circumstances were. I thought this was normal.
+Not going on to further education? I... never even considered it. I simply assumed everyone would.\
+I don't think I was particularly spoilt growing up, but I hadn't realised until now how privileged my circumstances were. I thought this was normal.\
 But surely maintaining this 'normality' is actually incredibly difficult.
 
 Our daily lives are balanced on scales that tip easily, whether something is added or taken away.
@@ -93,14 +96,14 @@ I wonder how this world appears through Mizuki's eyes.
 
 "...I'm home."
 
-Entering the house, the living room was unusually lively.
+Entering the house, the living room was unusually lively.\
 Feeling puzzled, I opened the door to find my aunt and cousin Hana-chan sitting on the sofa, holding a baby.
 
-"Ah! Nana-chan, it's been ages! You've grown so tall~"
+"Ah! Nana-chan, it's been ages! You've grown so tall."
 
 "Oh, Hana-chan, it's been ages! You've been staying here!"
 
-Hana-chan, seven years my senior, had become a much more grown-up big sister than I remembered.
+Hana-chan, seven years my senior, had become a much more grown-up big sister than I remembered.\
 Her brightly dyed hair had settled into a subdued dark tone, and what must have been waist-length hair was now cut to shoulder length – a completely different image from years ago.
 
 "Did you bring Taku-kun? How many months is he now?"
@@ -109,7 +112,7 @@ Her brightly dyed hair had settled into a subdued dark tone, and what must have 
 
 "Adorable. Let me hold him."
 
-She reached out and lifted Taku-kun. Compared to Tasuku, he felt just a little heavier and more solidly built.
+She reached out and lifted Taku-kun. Compared to Tasuku, he felt just a little heavier and more solidly built.\
 Did babies really differ this much at just one month old?
 
 "Well now, Nana-chan, you're rather good at holding babies, aren't you?"
@@ -120,7 +123,7 @@ Did babies really differ this much at just one month old?
 
 "...Now, when exactly are you talking about? I'm a high schooler now, practically an adult."
 
-I kept quiet about how I'd recently had regular chances to hold babies.
+I kept quiet about how I'd recently had regular chances to hold babies.\
 　I deliberately feigned awkwardness and swiftly returned Taku-kun to Hana-chan's arms.
 
 If Mum found out about Mizuki and Tasuku, I doubt she'd be too pleased.
@@ -133,7 +136,7 @@ If she heard about a high schooler looking after a baby all night alone... Mum w
 
 "I thought it might be rude to call you away from your friends. Oh, Taku-kun's grown so much. I heard Hana-chan's been exhausted lately with all the night crying."
 
-After Hana-chan and the others left, Mum said cheerfully while washing the teacups.
+After Hana-chan and the others left, Mum said cheerfully while washing the teacups.\
 If a six-month-old baby cries at night, does that mean five-month-old Tasuku does too?
 
 "Is night crying really that difficult?"
@@ -146,21 +149,20 @@ If a six-month-old baby cries at night, does that mean five-month-old Tasuku doe
 
 Things you can only say once they're over, eh.
 
-What about Mitsuki?
-When time passes and the present becomes a memory, will she be able to say, like her mother, "It was a precious time"?
+What about Mitsuki?\
+When time passes and the present becomes a memory, will she be able to say, like her mother, "It was a precious time"?\
 Or will it just become a sad memory of sacrificing her youth and future?
 
 After all, she wasn't her own child. Forced into the adult headcount, Mitsuki had no choice in the matter.
 
 　But still, at least when she looks back on the past like that, whether the memories are good or bad, I want Mizuki to never forget that I was by her side. That's why I'll keep going to her house, and I want to see Tasuku grow up until graduation.
 
-
 　Finishing dinner, my habit is to bathe first, and today was no exception—I headed straight for the changing room.
 
 Stripping before the large mirror in the changing room, I stared intently at my naked self.
 
-By third year of high school, nearly half the class are no longer virgins.
-I don't know if it's true, but if we take their self-reports at face value, that's the case.
+By third year of high school, nearly half the class are no longer virgins.\
+I don't know if it's true, but if we take their self-reports at face value, that's the case.\
 　If you asked in class, "Those with experience, raise your hands," half would undoubtedly raise theirs.
 
 I don't know about the city, but in the countryside there's no entertainment, so that's all junior and senior high school couples have to do.
@@ -168,25 +170,24 @@ I don't know about the city, but in the countryside there's no entertainment, so
 I belong to the half who wouldn't raise their hands. Probably forever. I'm confident I'll remain a virgin for life.
 
 　It might be unique to girls' schools, but basically everyone is very open about sex. If you ask, they'll tell you everything without holding back.
-For example, how their first time was, or what their boyfriend's lower half is like.
-The good and bad of lovers' activities become classroom jokes by the next day.
+For example, how their first time was, or what their boyfriend's lower half is like.\
+The good and bad of lovers' activities become classroom jokes by the next day.\
 If that girl's boyfriend were there, his pride would be utterly crushed and he'd faint for sure.
 
-　It's not that I'm not interested in such things. Quite the opposite, actually.
+　It's not that I'm not interested in such things. Quite the opposite, actually.\
 But when I imagine myself actually doing those things with someone, I don't picture myself being pinned down by a man. I picture myself pinning down a woman.
 
 And beneath my arms, there's always Mizuki.
 
-I've wanted to take her clothes off more than once or twice.
-I want to know the feel of her fine, white skin.
-　To see the body hidden beneath her clothes.
+I've wanted to take her clothes off more than once or twice.\
+I want to know the feel of her fine, white skin.\
+　To see the body hidden beneath her clothes.\
 Just imagining it makes my chest burn, and unsavoury feelings well up inside me.
 
 "...It's strange, really. I'm sick of seeing women naked."
 
-I mutter it under my breath.
+I mutter it under my breath.\
 The guilt won't wash away. I hate myself for only being able to see her this way.
-
 
 　Why am I drawn to my own sex?
 

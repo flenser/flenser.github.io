@@ -1,11 +1,16 @@
-Episode 12: 5th August
+---
+parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
+title: Episode 12
+nav_order: 60
+---
 
+Episode 12: 5th August
 
 "Sorry, Nana. Thank you for coming all this way."
 
-As soon as she opened the front door, Mizuki flashed me an innocent smile.
-Even though we'd only been apart for a few days, just seeing her smile and hearing her voice made a warm, deep joy well up inside me.
-　The Mizuki I saw after so long was far, far cuter than the imagined version I'd replayed in my mind countless times.
+As soon as she opened the front door, Mizuki flashed me an innocent smile.\
+Even though we'd only been apart for a few days, just seeing her smile and hearing her voice made a warm, deep joy well up inside me.\
+　The Mizuki I saw after so long was far, far cuter than the imagined version I'd replayed in my mind countless times.\
 If I didn't consciously hold back, my cheeks would surely relax into a smile.
 
 "Please, come in."
@@ -30,18 +35,18 @@ Just as I'd expected, there was no father in Mizuki's life.
 
 I'd firmly resolved not to pry into anything beyond what Mizuki chose to tell me, so I only knew fragments about her family.
 
-　I found myself feeling indignant that Mizuki's mother had seemingly dumped all of Tasuku's childcare responsibilities onto her daughter.
-But I could easily imagine that supporting two children single-handedly was no ordinary feat.
+　I found myself feeling indignant that Mizuki's mother had seemingly dumped all of Tasuku's childcare responsibilities onto her daughter.\
+But I could easily imagine that supporting two children single-handedly was no ordinary feat.\
 Perhaps Mizuki's mother was better than most, simply because she didn't demand Mizuki work to help with the household finances.
 
 　Entering the living room, I saw a reference book open on the table in front of the sofa.
 
-Just the two of us in a space without Tasuku.
+Just the two of us in a space without Tasuku.\
 The living room felt eerily still, somehow strange. Even though it was Mizuki's house, a place I'd visited countless times, I felt strangely tense.
 
 "...Which problem are you stuck on?"
 
-Sitting right beside Mizuki, I tried not to let her see how nervous I was.
+Sitting right beside Mizuki, I tried not to let her see how nervous I was.\
 　Her shoulder brushed mine as she leaned in to peer at her work, and the faint, sweet scent of her shampoo made my heart skip a beat.
 
 "This one. This problem. Nana, try solving it."
@@ -54,8 +59,8 @@ Just this physical closeness alone makes my emotional defences crumble instantly
 
 Before meeting Mizuki, I didn't know love. So I still don't know how to control this feeling that keeps overflowing endlessly.
 
-　I want to touch Mizuki more.
-I want to hold her.
+　I want to touch Mizuki more.\
+I want to hold her.\
 ...I want to kiss her.
 
 I shove that screaming voice inside me back into the closet and kick it hard.
@@ -68,7 +73,7 @@ Don't you dare come out, you beast. Get a grip.
 
 "Eh, really?"
 
-Having finished solving the problems, Mizuki casually closed her reference book and peered at my face, grinning happily.
+Having finished solving the problems, Mizuki casually closed her reference book and peered at my face, grinning happily.\
 I love Mizuki's innocent smile like this. It's completely different from the one she shows in class – a relaxed smile she only shows me. My chest tightens sweetly at the sight.
 
 "Your hair looks fresh straight like this. You always wear it curled, don't you? Your casual outfit looks smart too."
@@ -81,14 +86,14 @@ Reaching out naturally, Mizuki took a strand of my brown hair to play with. Was 
 
 "Yes, I usually dress more properly."
 
-I do usually make a reasonable effort with my style.
+I do usually make a reasonable effort with my style.\
 But today, I was so eager to see Mizuki for even a second sooner, to stay with her for even a minute longer, that I rushed out of the house without a moment to spare for my outfit.
 
 "Really? I'd love to see it. But Nana, you're tall and have such a great figure, even simple outfits look amazing on you."
 
 　Picking up my cap, which I'd left lying about, she playfully put it on her head and said. Mizuki was interested in me. That made me a little happy.
 
-Today, Mizuki wasn't in her uniform but her loungewear, which felt really fresh.
+Today, Mizuki wasn't in her uniform but her loungewear, which felt really fresh.\
 A thin white T-shirt and blue shorts. Somehow, she looked like a middle school sports club member and was cute.
 
 "Ah, Nana. This cap still has a sticker on the brim."
@@ -101,7 +106,7 @@ A thin white T-shirt and blue shorts. Somehow, she looked like a middle school s
 
 "Hmm."
 
-Saying that myself, I started to feel embarrassed.
+Saying that myself, I started to feel embarrassed.\
 Snatching the cap back from Mizuki, she still pressed her body close and reached out her hand.
 
 "Let me see more."
@@ -110,19 +115,19 @@ Snatching the cap back from Mizuki, she still pressed her body close and reached
 
 "Eh? I don't have a straw hat."
 
-She was close. Too close.
+She was close. Too close.\
 I instinctively put my hands behind me, but they hit my bag, which toppled over with a thud.
-　
+
 "Hm? ...Nana, what's this book?"
 
 "Eh?"
 
 A paperback book was sticking out of the open bag. Unfortunately, the cover featuring an illustration of two girls was fully exposed.
 
-Oh no! I'd forgotten I'd stuffed this book into my bag to sell it...!
+Oh no! I'd forgotten I'd stuffed this book into my bag to sell it...!\
 What do I do? I've done it. My heart clenched painfully tight.
 
-　Mizuki reached for my bag.
+　Mizuki reached for my bag.\
 The accidental touch of her skin felt scorching hot. Like it might burn right through me.
 
 "Is this... a novel?"
@@ -131,7 +136,7 @@ The accidental touch of her skin felt scorching hot. Like it might burn right th
 
 "Hmm..."
 
-Mizuki picked up the paperback.
+Mizuki picked up the paperback.\
 I couldn't bring myself to take it back from her, just stiffened up.
 
 "Well then, lend it to me before you go and sell it."
@@ -142,9 +147,9 @@ What would Mizuki's reaction be if she realised I'd been trying to read a romanc
 
 "Even if it wasn't interesting for you, Nana, it might be interesting for me, right?"
 
-Mizuki flips open the cover, and boom – an illustration appears. Two women are getting cosy.
-　The blood drained from my face. What on earth would Mizuki's reaction be?
-Would she think it was disgusting? Would she realise I liked girls?
+Mizuki flips open the cover, and boom – an illustration appears. Two women are getting cosy.\
+　The blood drained from my face. What on earth would Mizuki's reaction be?\
+Would she think it was disgusting? Would she realise I liked girls?\
 Was this it? Was I done for? My high school life... ending right here?
 
 I needed to come up with some excuse, my mind spinning at full throttle. Oblivious to my turmoil, Mizuki turned the page cheerfully, her expression unchanged.
@@ -157,10 +162,10 @@ No way. Is this really how straight people react? So casually?
 
 I swallowed hard, trying not to let Mizuki notice.
 
-Oh... 'Sounds fun'... huh.
-That's the kind of thing someone who hasn't a clue they'd be the one involved would say.
-It's a thousand times better than being thought of as creepy, but it leaves me feeling a bit complicated.
-What on earth am I expecting from Mizuki?
+Oh... 'Sounds fun'... huh.\
+That's the kind of thing someone who hasn't a clue they'd be the one involved would say.\
+It's a thousand times better than being thought of as creepy, but it leaves me feeling a bit complicated.\
+What on earth am I expecting from Mizuki?\
 Even though I know from the start it's an impossible love, why does it hurt so much... why does it make me want to cry so badly?
 
 "Right then... let me know what you think when you've read it."
@@ -193,7 +198,7 @@ Inviting her as a 'friend' was this easy. The tension drained from my shoulders.
 
 My perception and Mizuki's never quite matched.
 
-I wanted a date.
+I wanted a date.\
 I wanted to walk hand-in-hand with Mizuki, wander the stalls, gaze up at the summer night sky and watch the fireworks together.
 
 As friends, it was simple... but my true wish would surely never come true.
