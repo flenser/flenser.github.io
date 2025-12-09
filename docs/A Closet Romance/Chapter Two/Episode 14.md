@@ -1,11 +1,16 @@
-Episode 14: Hey Nana, do you reckon we'll see the fireworks together again next year?
+---
+parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
+title: Episode 14
+nav_order: 80
+---
 
+Episode 14: Hey Nana, do you reckon we'll see the fireworks together again next year?
 
 Sitting on the edge of a stone flowerbed, I stuffed my cheeks with yakitori while gazing up at the pitch-black night sky.
 
 With blaring music and the clamour of the crowd as background noise, I kept checking my phone's clock, waiting impatiently for the fireworks to start.
 
-　My feet, clad in white trainers, dangled idly.
+　My feet, clad in white trainers, dangled idly.\
 Though I usually dress differently, I couldn't forget how Mizuki had complimented me on looking cool, so today I'd come in a simple T-shirt and jeans again.
 
 Mizuki, sitting beside me, was playing around with my cap. I wanted to say that baseball caps didn't suit her dress, but she looked so happy I let her be.
@@ -28,7 +33,7 @@ Mizuki pressed herself right up next to me, her shoulder almost touching mine, t
 
 "Well, what about our hands then?"
 
-Mizuki grabbed my left wrist and pulled it towards hers. My heart skipped a beat, but refusing felt odd, so I suppressed my racing heart and let Mizuki have her way.
+Mizuki grabbed my left wrist and pulled it towards hers. My heart skipped a beat, but refusing felt odd, so I suppressed my racing heart and let Mizuki have her way.\
 Our palms pressed together perfectly. Her fingers, slimmer than mine, gently overlapped mine, tracing their contours. Mizuki's warmth slowly seeped through the point of contact.
 
 "Ah, our hands are about the same size, aren't they?"
@@ -47,8 +52,8 @@ I placed my wrist against hers and slowly overlapped our hands again, starting f
 
 "I don't want to hear that from the top student in the year."
 
-Reluctantly, our palms parted.
-I loved Mizuki's gentle, soft voice and the way she stretched out the ends of her words.
+Reluctantly, our palms parted.\
+I loved Mizuki's gentle, soft voice and the way she stretched out the ends of her words.\
 　Perhaps because I'd been staring at her with such intensity, Mizuki seemed to notice something and fixed her gaze on my face.
 
 "Nana, you've got loads of piercings, don't you? Cool."
@@ -71,8 +76,8 @@ Against the school rules. I'd never really thought about it, but she was right.
 
 "...This might be none of my business, but I think you should go on to university. There's a good one really close by, isn't there? Tuition's cheap too – I know because my brother goes there."
 
-It's really none of your business.
-It's not something you should say to someone who's doing their utmost just to get through the present and has no energy left to think about the future.
+It's really none of your business.\
+It's not something you should say to someone who's doing their utmost just to get through the present and has no energy left to think about the future.\
 I know that, but I can't help saying it. I want to grab Mizuki's hand and stop her from charging headlong down that thorny path.
 
 "...Nana's applying to university in Tokyo, right? Why aren't you going to the same university as your brother? Are you aiming for a better one?"
@@ -91,13 +96,13 @@ When I tried to brush it off with a joke, the tense expression on Mizuki's face 
 
 "...Yeah."
 
-　Mizuki definitely won't come. She can't leave Tasuku behind. I knew that when I said it.
-If I had something matching, something precious, I'd surely struggle to forget Mizuki. Even after leaving this town alone, I'd undoubtedly spend countless sleepless nights remembering her.
+　Mizuki definitely won't come. She can't leave Tasuku behind. I knew that when I said it.\
+If I had something matching, something precious, I'd surely struggle to forget Mizuki. Even after leaving this town alone, I'd undoubtedly spend countless sleepless nights remembering her.\
 But I want it. Something that lets me feel even a little connection to Mizuki.
 
-　Mizuki lowered her head and fell silent for a moment.
-What was wrong? Had she got cold feet about getting her ears pierced after all?
-Thinking that, I peered up at her face.
+　Mizuki lowered her head and fell silent for a moment.\
+What was wrong? Had she got cold feet about getting her ears pierced after all?\
+Thinking that, I peered up at her face.\
 I didn't intend to force her, I meant to tell her that.
 
 "Mizuki?"
@@ -108,7 +113,7 @@ Mizuki suddenly looked up and stared intently at my face.
 
 "..................."
 
-My breath nearly stopped. Unable to form words, I opened my lips, took a small breath, and just exhaled.
+My breath nearly stopped. Unable to form words, I opened my lips, took a small breath, and just exhaled.\
 We'd only gazed at each other for a few seconds, yet it felt like an eternity to me.
 
 　Hey, Mizuki. What does that mean...?
@@ -117,12 +122,12 @@ As if to shatter our silence, a loud boom echoed, a great bloom appeared in the 
 
 Mizuki also looked up at the night sky with a start.
 
-It was good timing that the fireworks started.
+It was good timing that the fireworks started.\
 What should I say in reply—I didn't know, not right now.
 
 　Truth be told, I want to stay by your side forever too. Not as a best friend, but as your... lover.
 
-My wish is too fleeting to even write on a tanzaku. If it can't come true anyway, I want to stuff it into a firework shell and send it up into the night sky with you.
+My wish is too fleeting to even write on a tanzaku. If it can't come true anyway, I want to stuff it into a firework shell and send it up into the night sky with you.\
 And then, I hope it quietly bursts without leaving a trace in anyone's memory, vanishing without a trace.
 
 　If only I could bleach this heart clean, I too could have seen Mizuki as nothing but a pure friend, untouched by any taint. Then, I could have stayed with this girl I adore forever and ever.
@@ -144,19 +149,19 @@ After the fireworks ended, Mizuki beamed with delight, her eyes sparkling with e
 "Oh..."
 
 A boy. So she was seeing a boy after all.
-　
+
 　Ah, I'm jealous after all. It's unsettling. An image surfaces in my mind: young Mizuki, cheeks flushed, holding hands with a spiky-haired middle school boy.
 
-Go away, shoo shoo.
-I wave my hand dismissively in my head, like shooing away a stray dog.
+Go away, shoo shoo.\
+I wave my hand dismissively in my head, like shooing away a stray dog.\
 But once these distracting thoughts appear, they refuse to vanish, no matter how much I want to shake them off.
 
-Huh, how far did they go?
+Huh, how far did they go?\
 　Some kids started early even in secondary school. Could Mizuki have been one of them? That terrifying thought races through my mind, mercilessly plunging a blade into my heart.
 
 In my imagination, the spiky-haired boy lays his dirt-stained hands on my Mizuki's sailor uniform.
 
-Stop it—I'll die!
+Stop it—I'll die!\
 Just imagining that makes me want to die!
 
 "Hey, did Mizuki's secondary school have sailor uniforms?"
@@ -183,20 +188,20 @@ It was Mitsuki. I couldn't say that, though.
 
 "Why!? Nobody would turn down Nana if she confessed!"
 
-There is. Right in front of you.
+There is. Right in front of you.\
 But I can't say that either.
 
 "Why do you think that, Mizuki?"
 
 "Nana's beautiful, kind, and stylish."
 
-"Thanks for the compliment. But didn't you say you used to be scared of me?"
+"Thanks for the compliment. But didn't you say you used to be scared of me?"\
 She peered at me teasingly.
 
 "...That was before we became friends. Now I know for sure that Nana's a really kind person."
 
-Kind only to Mizuki.
-Because I like Mizuki.
+Kind only to Mizuki.\
+Because I like Mizuki.\
 I end up being kind even when I don't want to. Like a conditioned reflex.
 
 I gather the empty yakitori packs into a bag and tie the knot.
@@ -235,9 +240,9 @@ Without mentioning the earlier topic of where we'd be going to university, we si
 
 "You're on summer break too, Nana. You can come back even if you go to Tokyo, right? ...Please come back. Let's watch the fireworks together."
 
-Once she starts university, Mizuki will surely forget all about me. She's ridiculously cute, after all.
+Once she starts university, Mizuki will surely forget all about me. She's ridiculously cute, after all.\
 Some senior playing the field will probably snap her up straight away.
-　
+
 　No, I don't want to see that. I couldn't bear watching it happen right beside me. Absolutely couldn't.
 
 I couldn't tell her. That once I start university, I don't intend to see her again.
