@@ -1,5 +1,10 @@
-Episode 16: It's Not That Simple, Is It?
+---
+parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
+title: Episode 16
+nav_order: 20
+---
 
+Episode 16: It's Not That Simple, Is It?
 
 As I was putting on my trainers in the hallway, Mum called out, "Nana!" and I turned around.
 
@@ -15,10 +20,10 @@ With a Boston bag packed with clothes in one hand and a paper bag containing a B
 
 By late September, evenings had grown chilly, and on overcast days like today, the air touching my bare skin made autumn feel ever closer.
 
-The weather was unfortunate, but my spirits were high.
+The weather was unfortunate, but my spirits were high.\
 　I was nervous too. But I was overjoyed at the prospect of spending the night with Mizuki.
 
-I did feel a twinge of guilt.
+I did feel a twinge of guilt.\
 Mizuki saw me purely as a friend; she couldn't possibly suspect I harboured romantic feelings for her.
 
 If someone said I was exploiting the lack of caution between women, they'd be right. Things I could never have done as a man came easily to me as a woman.
@@ -55,15 +60,15 @@ As soon as we entered the living room, I handed over the gift Mum had given me. 
 
 "Yes, take your time."
 
-After washing my hands thoroughly, I lifted Tasuku up with a quick flick of my wrist.
-Tasuku, now eight months old, apparently already weighs nearly nine kilos. He'd become quite sturdy, with a solid build, and when I held him, his tiny hands would grip my clothes tightly.
+After washing my hands thoroughly, I lifted Tasuku up with a quick flick of my wrist.\
+Tasuku, now eight months old, apparently already weighs nearly nine kilos. He'd become quite sturdy, with a solid build, and when I held him, his tiny hands would grip my clothes tightly.\
 When he smiled, his two bottom teeth showed, making him look like a little squirrel – utterly adorable.
 
 "Come on, Tasuku, let's play together."
 
-The playpen, set up to keep the increasingly mobile Tasuku safe, occupied nearly half of Mizuki's living room.
-　When she lived with just her mother, they apparently stayed in a slightly smaller flat. Well, I see. Only now do I understand why moving to a larger flat was necessary.
-I climbed into the playpen with him, sat cross-legged, placed Tasuku between us, and placed a toy in his little hand.
+The playpen, set up to keep the increasingly mobile Tasuku safe, occupied nearly half of Mizuki's living room.\
+　When she lived with just her mother, they apparently stayed in a slightly smaller flat. Well, I see. Only now do I understand why moving to a larger flat was necessary.\
+I climbed into the playpen with him, sat cross-legged, placed Tasuku between us, and placed a toy in his little hand.\
 Every time Tasuku happily waved the toy about, it made a tinkling sound, a sound so distinctly baby-like.
 
 "Right then, I'll take you up on that and tuck in straight away."
@@ -87,20 +92,19 @@ She was shovelling rice into her mouth with the gusto of an ochazuke advert, whi
 Mizuki said, savouring the words.
 
 When you're always raising a child alone, certain habits seem to form unconsciously.
-　
-　
-　I've always liked girls, so I'd never imagined myself having children in the future.
+
+　I've always liked girls, so I'd never imagined myself having children in the future.\
 It wasn't that I particularly liked children; I often pictured a future spent alone with the woman I loved.
 
-But now, I find myself thinking just a little that I'd like to experience raising a child like this too, if possible.
+But now, I find myself thinking just a little that I'd like to experience raising a child like this too, if possible.\
 Marrying the girl I love, and someday having a child together. Wouldn't that be happiness... surely.
 
 "...When I was a baby, I apparently cried terribly at night too. What about you, Mizuki?"
 
 "She said I hardly cried at all compared to Tasuku. That I was low-maintenance."
 
-It seems that hasn't changed. Mizuki is a good girl.
-If I'd been in Mizuki's situation, I'd definitely have gone off the rails and probably abandoned looking after Tasuku.
+It seems that hasn't changed. Mizuki is a good girl.\
+If I'd been in Mizuki's situation, I'd definitely have gone off the rails and probably abandoned looking after Tasuku.\
 I wouldn't have gone home, I'd have drifted from friend to friend, and I'd undoubtedly have ended up living a hopeless life.
 
 　Why doesn't Mizuki blame her mum or dad? Or does she just keep it to herself, even though she probably wants to vent sometimes?
@@ -133,7 +137,7 @@ To Mizuki, who said this with a big grin, I forced my own lips into a smile and 
 
 "Even if we're apart, Mizuki, you'll always be my best friend."
 
-If only I could say that to her, Mizuki would surely be delighted.
+If only I could say that to her, Mizuki would surely be delighted.\
 But that one simple phrase—I simply cannot bring myself to say it now.
 
 ＊＊＊
@@ -152,7 +156,7 @@ Mizuki efficiently pulled out bath towels and pyjamas from Tasuku's small chest 
 
 "Is there anything I can help with?"
 
-I was too scared to actually bathe him myself, but if there was anything else I could assist with, I wanted to lend a hand.
+I was too scared to actually bathe him myself, but if there was anything else I could assist with, I wanted to lend a hand.\
 　As she said this, Mizuki turned around with a bright smile.
 
 "Really? Thank you! Bathing him alone is quite a chore. Right then, I'll bathe Tasuku, so please come when I call. After you've dried him off, apply moisturiser all over his body... and put these pyjamas on him! Nana, are you alright? Is it alright to ask you?"
@@ -173,15 +177,15 @@ Mizuki smiled happily, slipped her arms under Tasuku's armpits, and lifted him e
 
 Having a child in daily life leaves no time to catch your breath. Time just vanishes in an instant.
 
-Things would be different once Tasuku fell asleep, but lately, he'd been staying awake for longer stretches.
+Things would be different once Tasuku fell asleep, but lately, he'd been staying awake for longer stretches.\
 I seem to recall him sleeping much more when we first met.
 
 　At this rate, I doubt I'll have much time to myself at all.
 
 As long as Mizuki's mother keeps working like this, even when Mizuki's at university, she'll still be tied to looking after Tasuku. Mizuki's stuck here, unable to move.
 
-Compared to Mizuki, I think I grew up in a pretty comfortable environment.
-If only my own sexual orientation hadn't pointed in a different direction, I probably could have had a fairly easy life.
+Compared to Mizuki, I think I grew up in a pretty comfortable environment.\
+If only my own sexual orientation hadn't pointed in a different direction, I probably could have had a fairly easy life.\
 　Had I liked men like the majority, I'd surely have found a partner more easily, just like the other girls, and enjoyed a sparkling youth.
 
 "...But it's not that simple, is it?"
@@ -194,17 +198,17 @@ I don't want to imagine it, but I do.
 
 Mizuki naked.
 
-　I loathe my own thought process, ravenous with lust like some middle school boy.
+　I loathe my own thought process, ravenous with lust like some middle school boy.\
 Ugh, really... I didn't come to this house today with any ulterior motives...
 
 But seriously, how could you not get all flustered when the girl you like is bathing in the same house?!
 
 It's beyond my control! I'm absolutely not at fault!!!
 
-I should have foreseen this situation, yet I overestimated myself.
+I should have foreseen this situation, yet I overestimated myself.\
 　Just imagining Mizuki after her bath makes me tremble with nerves.
 
-While I was agonising like this, the call melody sounded.
+While I was agonising like this, the call melody sounded.\
 Ah, Tasuku's bath is finished. Steeling myself, I stand up.
 
 "Phew... Keep calm, keep calm..."

@@ -1,6 +1,7 @@
 ---
 parent: Chapter 1
 title: Episode 4
+nav_order: 30
 ---
 
 After saying that, Lotte made a gesture as if to cover her mouth.\

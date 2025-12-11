@@ -1,6 +1,7 @@
 ---
 parent: Chapter 1
 title: Episode 2
+nav_order: 10
 ---
 
 ――Two years ago, in a certain frontier region.\

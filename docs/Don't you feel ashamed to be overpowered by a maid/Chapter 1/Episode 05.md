@@ -1,6 +1,7 @@
 ---
 parent: Chapter 1
 title: Episode 5
+nav_order: 40
 ---
 
 "...!?"
