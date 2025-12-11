@@ -1,9 +1,14 @@
-Episode 17... Nana
+---
+parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
+title: Episode 17
+nav_order: 30
+---
 
+Episode 17... Nana
 
 "Mizuki, I'm opening it, alright?"
 
-I forced myself to steady my voice, trembling with nerves, and placed my hand on the changing room door handle.
+I forced myself to steady my voice, trembling with nerves, and placed my hand on the changing room door handle.\
 I'd assumed Mizuki would be there fully clothed, holding naked Tasuku.
 
 　But the changing room was empty. Beyond the steamed-up frosted glass of the bathroom, a flesh-coloured figure moved. Startled by this unexpected turn of events, my eyes widened in shock.
@@ -11,7 +16,6 @@ I'd assumed Mizuki would be there fully clothed, holding naked Tasuku.
 I instinctively stumbled backwards. My heel slammed against the door with a loud thud.
 
 Eh? Eh? Wait, what's going on!?
-
 
 　While I froze, unable to grasp the situation immediately, I realised Mizuki's hand was on the bathroom door handle.
 
@@ -21,11 +25,11 @@ The sound of the folding bathroom door opening with a bang coincided with steam 
 
 　Just her face, just her face is all I need to see. Absolutely nothing else, I mustn't look...
 
-Her black hair, wet from the bath. Though tied back, stray strands clung to her nape, and I found myself tracing the droplets as they slid down her neck.
+Her black hair, wet from the bath. Though tied back, stray strands clung to her nape, and I found myself tracing the droplets as they slid down her neck.\
 Her flushed cheeks, her neck, and then...
 
-　Ah, no, it's all too much.
-My cheeks burned relentlessly. My breathing grew shallow.
+　Ah, no, it's all too much.\
+My cheeks burned relentlessly. My breathing grew shallow.\
 Ah, ah, ah, ahhhhhhh...!
 
 "Nana, please look after Tasuku for me. I'll go once I've dried my hair."
@@ -34,7 +38,7 @@ Ah, ah, ah, ahhhhhhh...!
 
 Mizuki, seemingly utterly unconcerned about being completely naked, smiled and handed me the steaming hot Tasuku. My gaze inevitably turned towards Tasuku. Then, inevitably, my eyes drifted downwards... and caught sight of Mizuki's chest.
 
-Her chest... Mizuki's...
+Her chest... Mizuki's...\
 No, no, I mustn't look!!!!
 
 Mindlessly, I wrapped Tasuku in the bath towel. Suppressing my heart, which was pounding like it was about to explode, I hurriedly turned my back on Mizuki and rushed into the living room.
@@ -43,11 +47,10 @@ Mindlessly, I wrapped Tasuku in the bath towel. Suppressing my heart, which was 
 
 I truly loathe myself for looking at Mizuki like that.
 
-Why can't people choose who they fall for?
+Why can't people choose who they fall for?\
 Why can't I control this, even though it's about me?
 
 Even knowing this love can never be fulfilled, I can't easily discard these feelings. It's utterly irrational, no matter how you look at it. Isn't this just a flaw in human nature?
-
 
 　Mizuki returned from the bathroom, changed into a black T-shirt and grey shorts. The mismatch between that schoolgirl-like loungewear and the 'woman's body' I'd seen in the bathroom was giving me a headache.
 
@@ -67,11 +70,10 @@ I saw the naked body of the girl I like. Even if it was an accident, I couldn't 
 
 "Ah... right. Thank you..."
 
-Avoiding Mizuki's gaze, I grabbed the bag stuffed with my change of clothes in one hand and stood up.
+Avoiding Mizuki's gaze, I grabbed the bag stuffed with my change of clothes in one hand and stood up.\
 Ever since then, I'd been unable to think of anything but Mizuki naked. I needed to cool my head a bit.
 
-
-I went to the changing room and shed my clothes.
+I went to the changing room and shed my clothes.\
 Noticing Mizuki's clothes from earlier and her pale pink underwear in the laundry basket, I frantically looked away.
 
 Honestly, I'm hopeless today. Utterly hopeless.
@@ -92,7 +94,7 @@ I twisted the tap with a sharp click.
 
 I bang my head against the wall. I'm losing confidence I can keep suppressing these feelings until graduation.
 
-After drying my hair, I open the living room door. The room is dimly lit.
+After drying my hair, I open the living room door. The room is dimly lit.\
 Wondering why, I look at Mizuki. She's holding Tasuku and raises her index finger to her lips. Startled, I press my own lips together.
 
 "...He looks like he's about to fall asleep."
@@ -115,7 +117,7 @@ I asked Mizuki in a whisper. She smiled, brought her lips close to my ear, and m
 
 "Is that so? ...He looks adorable asleep."
 
-To be honest, before I started helping look after Tasuku, I wasn't particularly good with children.
+To be honest, before I started helping look after Tasuku, I wasn't particularly good with children.\
 But now I've changed. Watching him like this, asleep, I feel a maternal instinct stirring within me that shouldn't be there.
 
 "Right? He looks like an angel, doesn't he?"
@@ -140,10 +142,10 @@ Unnoticed by me, frozen in place, Mizuki pulled back the duvet, made space for o
 
 "Nana, come on over."
 
-Seriously...?
+Seriously...?\
 Staring at me as I stood there dumbfounded, Mizuki tapped the futon repeatedly, as if to say, "Come over here already."
 
-What should I do? But... refusing now would be weird, right? As friends, it'd be unnatural not to sleep together...?
+What should I do? But... refusing now would be weird, right? As friends, it'd be unnatural not to sleep together...?\
 　I swallowed hard, steeled myself, and lay down beside Mizuki.
 
 Our shoulders touching felt scorching hot. Trying desperately not to think about it, I squeezed my eyes shut tightly.
@@ -166,7 +168,7 @@ I yawned deliberately.
 
 "Nana, are you sleepy already?"
 
-Frankly, I wasn't sleepy at all.
+Frankly, I wasn't sleepy at all.\
 In fact, my heart was beating relentlessly fast, pumping blood through my veins with a pounding rhythm that only made me more wide awake.
 
 "Yeah... Let's sleep, Mitsuki."
@@ -179,8 +181,8 @@ I heard the sound of Mitsuki rustling as she turned over. Then, her back pressed
 
 　I like her. ...I like Mitsuki. I like her so much.
 
-Emotions surged over me, and I hugged my own arms so tightly it hurt.
-Even though I know it's impossible, why do I still want to put my feelings into words?
+Emotions surged over me, and I hugged my own arms so tightly it hurt.\
+Even though I know it's impossible, why do I still want to put my feelings into words?\
 Why can't I be satisfied just holding onto these feelings, just being near her?
 
 Someone, tell me the answer.
@@ -191,26 +193,26 @@ I want to stab this love to death right now.
 
 ＊＊＊
 
-　The ticking of the clock echoes through the room.
+　The ticking of the clock echoes through the room.\
 　Then Mizuki's breathing, and Tasuku's breathing.
 
-　Even at midnight, I couldn't sleep at all. Time just passed while I felt suspended between dream and reality.
+　Even at midnight, I couldn't sleep at all. Time just passed while I felt suspended between dream and reality.\
 　Slowly rolling onto my back, I gazed at Mizuki's profile, illuminated by the orange security light.
 
-　Ah, her mouth is slightly open. So vulnerable and cute.
-Why is Mizuki so incredibly cute?
+　Ah, her mouth is slightly open. So vulnerable and cute.\
+Why is Mizuki so incredibly cute?\
 Her philtrum is short, giving her a childlike face. Her wide, parallel double eyelids, long lashes, and round cheeks seem to accentuate that youthfulness. In that way, she resembles Tasuku a little.
 
 It's quite the opposite of me, who's often told I look mature. Because of my height, I was frequently mistaken for a secondary school pupil when I was in primary school, and for a sixth-former when I was in secondary school.
 
 　I wish I'd been born like this. She's so cute, truly adorable...
 
-She mentioned having a boyfriend before. Did Mizuki's ex ever touch these lips?
+She mentioned having a boyfriend before. Did Mizuki's ex ever touch these lips?\
 I haven't even had my first kiss yet. I've never had a girlfriend, so it's only natural, I suppose.
 
 To say I don't care would be a lie. ...About the softness of those lips.
 
-Mizuki. ...She sleeps so soundly.
+Mizuki. ...She sleeps so soundly.\
 　Right now, I could do anything... she wouldn't wake.
 
 A chilling, devilish whisper echoed in my mind, and I frantically shook my head from side to side.
@@ -221,8 +223,8 @@ The words slipped out before I could stop them.
 
 But I couldn't tear my gaze away from her lips.
 
-No, this is wrong. This is criminal. This is bad. Absolutely bad.
-　Even though I know it, my body rises of its own accord, as if controlled by instinct.
+No, this is wrong. This is criminal. This is bad. Absolutely bad.\
+　Even though I know it, my body rises of its own accord, as if controlled by instinct.\
 Stop it, no. If I do this, it'll hurt Mitsuki. Because this is betrayal, this is.
 
 But before I know it, Mitsuki is beneath my arms. My heart is pounding loudly. My breathing... gradually grows heavier.
@@ -230,7 +232,7 @@ But before I know it, Mitsuki is beneath my arms. My heart is pounding loudly. M
 I want to touch her.
 
 That's definitely not allowed.
-　
+
 I want to kiss you.
 
 Impossible...
@@ -245,7 +247,7 @@ The monster inside the wardrobe kicked the door open with all its might.
 
 I've lost already, to so many things.
 
-　Impulsively, I drew my face closer to Mitsuki's.
+　Impulsively, I drew my face closer to Mitsuki's.\
 My chest tightened painfully.
 
 Mitsuki, I'm sorry, I'm so sorry. I'll end it all after this. I'll try hard to forget... Please, just this once, forgive my selfishness.
