@@ -1,6 +1,7 @@
 ---
 parent: Chapter 1
 title: Episode 10
+nav_order: 90
 ---
 
 "My apologies for the sudden intrusion. I came to enquire about the bandits who raided this village earlier."\

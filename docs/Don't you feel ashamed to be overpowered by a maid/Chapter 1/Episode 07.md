@@ -1,6 +1,7 @@
 ---
 parent: Chapter 1
 title: Episode 7
+nav_order: 60
 ---
 
 Night—at a certain brothel in the royal capital.\

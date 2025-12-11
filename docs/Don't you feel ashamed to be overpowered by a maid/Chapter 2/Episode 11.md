@@ -5,7 +5,8 @@ title: Episode 11
 
 ――About a month passed, and at the Zekrosia residence in the royal capital.\
 Lotte was once again clad in her maid's uniform, standing by Alisha's side.\
-The Zekrosia residence was located near the very heart of the royal capital, clearly signifying their standing.\
+The Zekrosia residence was located near the very heart of the royal capital, clearly signifying their standing.
+
 The tension of working in such a place again – honestly, it was a heavy burden for Lotte.\
 　It was a decision made in response to Alisha's wish for her to become her personal maid.\
 However, Lotte had merely returned to being a maid.\
@@ -13,7 +14,8 @@ Her position remained that of a lowly servant, not a personal maid.\
 Indeed, there had been no precedent of a lowly servant like Lotte being suddenly promoted to personal maid.\
 The only change was that she was now entrusted with attending to Alisha's personal needs.\
 　Even if not exclusive, being able to work by Alisha's side meant Lotte's wish had come true.\
-Seeing Lotte return, the other maids couldn't hide their surprise.\
+Seeing Lotte return, the other maids couldn't hide their surprise.
+
 They didn't say anything openly, but she could tell they were giving her the cold shoulder.\
 "After quitting once" – Lotte understood perfectly well why they felt like saying that.\
 　Truthfully, Lotte hadn't intended to return at all.\
@@ -34,7 +36,7 @@ Yet, amongst them, one person alone—
 
 —She thought she heard those words before entering the room.\
 It seemed rather spiteful to make it audible only to Lotte.\
-Still, trying her best not to mind—Lotte followed Alisha inside.\
+Still, trying her best not to mind — Lotte followed Alisha inside.\
 With a soft click, the door closed, leaving only Lotte and Alisha in the spacious room.\
 　Alyssa said she was going to change, then sat down on a chair and addressed Lotte.
 
@@ -87,6 +89,6 @@ If Alisha had gone out of her way to ask Lotte, there must be some reason.
 
 "So, this request is...?"\
 "I want you to help relieve my stress."\
-"Huh! Relieving stress—that means... that thing we discussed, doesn't it?"
+"Huh! Relieving stress — that means... that thing we discussed, doesn't it?"
 
 At Lotte's words, Alisha gave a slight nod.

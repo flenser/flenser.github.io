@@ -1,6 +1,7 @@
 ---
 parent: Chapter 1
 title: Episode 3
+nav_order: 20
 ---
 
 "...Welcome—"

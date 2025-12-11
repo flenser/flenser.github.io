@@ -1,6 +1,7 @@
 ---
 parent: Chapter 1
 title: Episode 9
+nav_order: 80
 ---
 
 —Could she possibly be doing anything wrong?\

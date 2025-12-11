@@ -1,6 +1,7 @@
 ---
 parent: Chapter 1
 title: Episode 8
+nav_order: 70
 ---
 
 "—Trying to forget it, I threw myself even more desperately into my duties as a knight. Striving to be pure and incorruptible... Ah, I thought it was unthinkable to take an interest in such things!"

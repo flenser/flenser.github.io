@@ -1,6 +1,7 @@
 ---
 parent: Chapter 1
 title: Episode 6
+nav_order: 50
 ---
 
 A sign announcing today's closure was displayed outside the shop, while Lotte remained inside with Alisha.\
