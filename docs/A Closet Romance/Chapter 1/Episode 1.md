@@ -44,7 +44,7 @@ I keep mine fairly low-key with brown hair, but the only one in our year with go
 
 "I studied my whole life just to get into this school. I don't want to study anymore."
 
-Sakata is that scary old teacher in charge of student discipline. His eyes are always darting about, and he's got a face like a toad.
+Sakata is that scary old teacher in charge of student discipline. His eyes are always darting about, and he's got a face like a toad.\
 　I'd never been called in myself, but Maki'd been under Sakata's care numerous times because of her flashy appearance.
 
 Our school was a relatively high-level girls' school within the prefecture, but it had a fairly liberal atmosphere. There were rules, but they weren't overly strict.
@@ -68,7 +68,7 @@ I couldn't care less about Sakata. That was my primary concern.
 Returning to the classroom, Kase Mizuki sat by the window, her cheek propped up in her hand, eyes closed, quietly asleep.
 The breeze blowing in through the window gently swayed her long black hair.
 
-Hmm, feels like indifference.
+Hmm, feels like indifference.\
 I tried pretty hard... but competing over test rankings clearly doesn't capture Kase Mizuki's interest. I felt rather deflated.
 
 After glancing sideways at her, I pulled out my chair a little way from hers. Maki, who seemed to have noticed me watching her, narrowed her eyes and leaned closer to me.
@@ -77,7 +77,7 @@ After glancing sideways at her, I pulled out my chair a little way from hers. Ma
 
 　Maki brought her lips close to my ear and spoke in a whisper only I could hear, so I immediately realised it wasn't good news.
 
-Those outcasts who don't fit into the class are easy targets for rumours.
+Those outcasts who don't fit into the class are easy targets for rumours.\
 This all-girls school, where romantic gossip doesn't really happen, is far too peaceful and idle, always starved for exciting topics.
 
 "What rumour?"
