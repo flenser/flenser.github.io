@@ -35,7 +35,7 @@ Yet, in response to Lotte's words, Alisha said this.\
 Alisha's request —namely, to pin her down.\
 Frankly, accepting that so readily was impossible.
 
-"W-well..."
+"W-well..."\
 "If you have no intention of granting it, then move aside."
 
 　—Alyssa even radiated pressure.\
