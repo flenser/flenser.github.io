@@ -1,6 +1,6 @@
 ---
 parent: Chapter 2
-title: Episode 16
+title: Episode 17
 ---
 
 "—So, what tricks did you use to get close to Lady Alisha?"
