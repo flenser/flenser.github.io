@@ -4,7 +4,7 @@ title: Episode 14
 ---
 
 Now —she was being relied upon by the person she admired.\
-Alyssa needed Lotte.\
+Alisha needed Lotte.\
 So this was why she wanted to make her her personal maid —to make requests like this.\
 Hadn’t she considered the possibility of being disillusioned? Or perhaps this meant she trusted Lotte completely, even to that extent.\
 Faced with this situation, Lotte felt a certain exhilaration.\
@@ -51,9 +51,9 @@ All Lotte needed to do was nod —it was all for Alisha's sake.
 
 "...Thank you. I was right to rely on you after all."
 
-Alyssa wore a genuinely delighted expression as she took Lotte's hand.\
-Lotte felt a touch of self-mockery at her own heart, which reacted to each of Alyssa's actions.\
-Lotte had promised to pin Alyssa down.\
+Alisha wore a genuinely delighted expression as she took Lotte's hand.\
+Lotte felt a touch of self-mockery at her own heart, which reacted to each of Alisha's actions.\
+Lotte had promised to pin Alisha down.\
 Things having come to this, there was no escaping now —she had to steel herself.
 
 "Well then, may I ask you to do it right away?"\
@@ -74,7 +74,7 @@ She never imagined she’d have to ask such a thing.
 
 "Yes. I saw it in a bed scene."
 
-Alyssa answered Lotte’s question casually.
+Alisha answered Lotte’s question casually.
 
 "A, a bed scene…!? Uh, well, I should probably mention first that I am interested, but it’s not like I’m particularly knowledgeable or anything…"
 

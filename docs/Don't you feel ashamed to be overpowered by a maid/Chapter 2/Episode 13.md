@@ -3,25 +3,25 @@ parent: Chapter 2
 title: Episode 13
 ---
 
-Alyssa turned to leave the room, leaving Lotte behind.
+Alisha turned to leave the room, leaving Lotte behind.
 
 "W-wait!"
 
-Lotte stood in front of the door, stopping Alyssa.\
+Lotte stood in front of the door, stopping Alisha.\
 She couldn't just let her go after being told she was looking for someone to push her down.
 
 "Would you mind moving?"\
 "You mean... ask another maid? Are you planning to tell them you want them to push you down?"\
 "Of course. I believe that's the only option."
 
-Alyssa stated it matter-of-factly.\
+Alisha stated it matter-of-factly.\
 How could she be so confident?
 
 "But, but if you do that..."
 
-Alyssa's position could become precarious.\
+Alisha's position could become precarious.\
 After all, Lotte had only discovered the secret through no fault of her own.\
-She never intended to tell anyone, but if Alyssa spoke of it herself, that would be a different matter entirely.\
+She never intended to tell anyone, but if Alisha spoke of it herself, that would be a different matter entirely.\
 　That absolutely must be prevented.\
 With a determined expression, Lotte continued.
 
@@ -38,10 +38,10 @@ Frankly, accepting that so readily was impossible.
 "W-well..."\
 "If you have no intention of granting it, then move aside."
 
-　—Alyssa even radiated pressure.\
-Normally, Alyssa should be the one holding the upper hand, yet why did Lotte feel threatened?\
-It would make more sense if it were the other way around —if Alyssa were the one stopping Lotte from speaking.\
-Naturally, Lotte had no intention of doing such a thing —yet somehow, it was Lotte who ended up stopping Alyssa from speaking. It was baffling.
+　—Alisha even radiated pressure.\
+Normally, Alisha should be the one holding the upper hand, yet why did Lotte feel threatened?\
+It would make more sense if it were the other way around —if Alisha were the one stopping Lotte from speaking.\
+Naturally, Lotte had no intention of doing such a thing —yet somehow, it was Lotte who ended up stopping Alisha from speaking. It was baffling.
 
 　Lotte found herself holding her breath.\
 At the very least, if Alisha tried to leave this place —Lotte couldn't possibly stop her.\
@@ -77,7 +77,7 @@ Lotte's expression turned one of surprise at Alisha's words.
 
 "Well, isn't that right? Even if you knew I was buying books like that —you'd keep quiet about it. Surely you wouldn't go blabbing to anyone about this favour I'm asking either, would you?"
 
-Alyssa trusts Lotte.\
+Alisha trusts Lotte.\
 That is a happy thing —in truth, she hasn't told anyone, and she never will.
 
 "W-well, of course not."\
@@ -88,10 +88,10 @@ Seeing this, Lotte noticed Alisha's hand trembling slightly.\
 Had Lotte not stopped her, she might truly have done it —but what might have followed, who could say?
 
 Perhaps that very fear was why Alisha was trembling.\
-　In other words, this was a gamble for Alyssa too.\
+　In other words, this was a gamble for Alisha too.\
 A gamble to get Lotte to accept the request.\
-By any normal measure, it was nothing but a dangerous bridge to cross —if it weren't Lotte, she might well have blabbed Alyssa's secret to someone.
+By any normal measure, it was nothing but a dangerous bridge to cross —if it weren't Lotte, she might well have blabbed Alisha's secret to someone.
 
-(...Only I can grant Lady Alyssa's wish.)
+(...Only I can grant Lady Alisha's wish.)
 
 Yet, that was precisely what Lotte found herself thinking.

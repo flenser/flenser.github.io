@@ -53,7 +53,7 @@ When it came to items purchased here – her gaze inevitably fell upon the book 
 "Honestly, it pained me to tell a lie..."
 
 Lotte murmured involuntarily.\
-—Alyssa hadn't done anything wrong, and the knight lady just wanted to express her thanks.\
+—Alisha hadn't done anything wrong, and the knight lady just wanted to express her thanks.\
 Yet somehow, Lotte ended up having to lie. Why was that?
 
 "Lotte, you're such a good girl."\
@@ -63,7 +63,7 @@ Yet somehow, Lotte ended up having to lie. Why was that?
 "...I suppose so. Lotte, you've discovered my secret, haven't you?"
 
 Suddenly, an uneasy atmosphere emanated from Alisha.\
-　Indeed, Lotte had learned Alyssa's secret.
+　Indeed, Lotte had learned Alisha's secret.
 
 "Of course, I won't tell anyone!"\
 "I'd be grateful if you didn't... but there's one more thing I'd like to ask of you."\
@@ -106,7 +106,7 @@ Lotte couldn't possibly tell Alisha herself that she'd left because she couldn't
 A direct invitation from Alisha herself – this was likely a turning point that would never come again in her life.\
 　Yet, for Lotte, who had already left once, to return to the manor?\
 It was not something she could answer immediately.\
-Moreover, Alyssa currently had no personal maid – meaning Lotte would become her one and only maid.\
+Moreover, Alisha currently had no personal maid – meaning Lotte would become her one and only maid.\
 For Lotte, it was an offer far too burdensome to bear.
 
 "...Please give me some time to think."
@@ -135,7 +135,7 @@ That's why she cooperated when asked to keep her presence here secret, and why s
 
 "...But exclusive... exclusive, huh?"
 
-It was clearly a position unbecoming of Lotte. What would happen if Alyssa suddenly introduced Lotte as her exclusive maid at the mansion?\
+It was clearly a position unbecoming of Lotte. What would happen if Alisha suddenly introduced Lotte as her exclusive maid at the mansion?\
 　She didn't even want to imagine it — Lotte curled up small in the bed.\
 What should she do? — As she agonised, she recalled her exchanges with Alisha.\
 Honestly, the time spent with her had been happy.\

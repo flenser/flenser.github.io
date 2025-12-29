@@ -42,7 +42,7 @@ Yet, those were the words that came out spontaneously.
 
 "—Normal? Is this normal?"
 
-Alyssa suddenly looked slightly startled and pressed Lotte with the question.\
+Alisha suddenly looked slightly startled and pressed Lotte with the question.\
 Not thinking she'd said anything particularly unusual, Lotte answered, flustered.
 
 "W-well... I suppose saying I'm not interested would be a lie too—Hyah!?"
@@ -93,7 +93,7 @@ Alisha sighed softly as she spoke.
 "Stress, you say…?"\
 "Ah, I'm sorry. It's not that I dislike it. Being able to help everyone brings me joy, and I intend to continue doing so. It's just…"
 
-Alyssa released Lotte's hand and lowered her gaze.\
+Alisha released Lotte's hand and lowered her gaze.\
 Her expression carried an almost oppressive heaviness.\
 　She was a lady of such renown within this kingdom that there was scarcely anyone who did not know her name, and her existence was likely known even in other nations.\
 The weight of that pressure—it was something Lotte could scarcely begin to fathom.

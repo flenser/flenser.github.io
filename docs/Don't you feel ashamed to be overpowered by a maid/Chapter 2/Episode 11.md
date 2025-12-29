@@ -38,7 +38,7 @@ Yet, amongst them, one person alone—
 It seemed rather spiteful to make it audible only to Lotte.\
 Still, trying her best not to mind — Lotte followed Alisha inside.\
 With a soft click, the door closed, leaving only Lotte and Alisha in the spacious room.\
-　Alyssa said she was going to change, then sat down on a chair and addressed Lotte.
+　Alisha said she was going to change, then sat down on a chair and addressed Lotte.
 
 "Have you made up your mind about becoming my personal maid?"
 
@@ -63,10 +63,10 @@ Honestly, Lotte felt herself almost swayed, but she shook her head slightly.
 "If you just listen to me, I'll grant you any wish you have?"\
 "...!?"
 
-Alyssa saying that much made her gasp involuntarily.\
+Alisha saying that much made her gasp involuntarily.\
 After all, what was being requested was to become her personal maid – essentially a promotion.\
-Probably, if any other maid besides Lotte had been asked by Alyssa, they wouldn't have refused.\
-Because being Alyssa's personal maid was the dream of everyone working here.\
+Probably, if any other maid besides Lotte had been asked by Alisha, they wouldn't have refused.\
+Because being Alisha's personal maid was the dream of everyone working here.\
 Naturally – it had been Lotte's dream too.
 
 "...I still can't do it."

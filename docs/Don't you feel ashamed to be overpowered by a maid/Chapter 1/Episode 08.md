@@ -26,14 +26,14 @@ Lotte decided to tell herself that.
 "A great deal...?"\
 "—But this is about another day!"
 
-Alyssa lifted her face, clenching her fists tightly as she continued.
+Alisha lifted her face, clenching her fists tightly as she continued.
 
 "We seized something from a criminal we caught on another case!"\
 "Something, you say?"
 
 What on earth had they seized?
 
-(Alyssa-sama is so furious... Could it be something even worse than that 'demonic herb' mentioned earlier...!?)\
+(Alisha-sama is so furious... Could it be something even worse than that 'demonic herb' mentioned earlier...!?)\
 "Yes. It was—this book of dubious content."
 
 —Pointing at the book placed on the table, Alisha stated.

@@ -6,12 +6,12 @@ nav_order: 40
 
 "...!?"
 
-The robed figure—Alyssa—shuddered as if shaken, but
+The robed figure—Alisha—shuddered as if shaken, but
 
 "That's impossible."
 
 immediately voiced her denial.\
-The voice was similar—but could Alyssa possibly be conveniently present here?
+The voice was similar—but could Alisha possibly be conveniently present here?
 
 "Y-yes, you're right. I'm sorry, it just sounded so similar..."\
 "S-sound...? Hmm, hmm! Is it really that similar?"
@@ -80,9 +80,9 @@ Lotte picked up the book Alisha had bought earlier and handed it to her.
 "Here you are, the book you purchased earlier."\
 "Ah, thank you."
 
-Alyssa took it and glanced around again.\
+Alisha took it and glanced around again.\
 Perhaps because I had just called her name—come to think of it, she had come here concealing her true identity.\
-Yet even Lotte couldn't hide her delight in Alyssa's presence.
+Yet even Lotte couldn't hide her delight in Alisha's presence.
 
 "But, for Lady Alisha to come all the way to our humble establishment—"\
 She trailed off, realising something.\

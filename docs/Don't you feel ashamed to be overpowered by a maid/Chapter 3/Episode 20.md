@@ -11,9 +11,9 @@ Still, this didn't mean relations with the maids she'd previously clashed with w
 Still, Lotte held no higher standing than the other maids; aside from being summoned by Alisha, she remained a lowly servant.\
 Hanging laundry, cleaning the mansion —as she went about her daily tasks, Alisha summoned her once more.\
 Knocking and entering the room, she found Alisha dressed in her princess's formal attire once again.\
-　Alyssa, who had seldom returned to the manor before, had recently begun showing herself there more often.\
+　Alisha, who had seldom returned to the manor before, had recently begun showing herself there more often.\
 One might call it putting words into action —she seemed particularly concerned about the manor's maids, especially Lotte.\
-While it was helpful and welcome, Lotte worried it might be placing a burden on Alyssa.
+While it was helpful and welcome, Lotte worried it might be placing a burden on Alisha.
 
 "Sorry for calling you. Was now a good time?"\
 "Of course it is —but Lady Alisha, you've been returning to the manor quite often lately... I mean, is everything alright with your work?"\
@@ -38,21 +38,21 @@ It felt rather embarrassing —there was no doubt she was bound to Alisha in tha
 
 It seemed this proposal was made with Lotte's well-being in mind.\
 Indeed, being summoned without any mental preparation —it would certainly be a significant psychological burden.\
-Alyssa's suggestion was appreciated, though.
+Alisha's suggestion was appreciated, though.
 
 "Er, what sort of signal would that be?"\
 "I've been thinking about it all night."\
 "All... all night...?"
 
-She'd clearly given it considerable thought —Alyssa placed a collar before me.
+She'd clearly given it considerable thought —Alisha placed a collar before me.
 
 "...What's this?"
 
 "A collar. The sort used for dogs."\
-"!? You... you wouldn't be suggesting that, Alyssa-sama...?"\
+"!? You... you wouldn't be suggesting that, Alisha-sama...?"\
 "Yes. I could wear it myself —it wouldn't be unpleasant, but that's not the point. I think we should use something visible like this as the signal."
 
-For a moment, I genuinely considered whether she might actually wear it. And the fact she said it 'wouldn't be unpleasant' showed just how bold Alyssa was being —but I deliberately avoided pressing that point and continued the conversation.
+For a moment, I genuinely considered whether she might actually wear it. And the fact she said it 'wouldn't be unpleasant' showed just how bold Alisha was being —but I deliberately avoided pressing that point and continued the conversation.
 
 "So, what's the alternative?"\
 "I thought a choker would be good."
