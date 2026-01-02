@@ -16,14 +16,14 @@ Such establishments, which might at first glance seem to threaten public decency
 Those near the brothel sensed something amiss.\
 It was hardly surprising, given that several knights—fully armed—had appeared.\
 Too many for a routine patrol, they were heading straight for the brothel.\
-　Leading the way was—Alyssa.
+　Leading the way was—Alisha.
 
 "I shall proceed ahead."
 
-With those words—Alyssa broke into a run.\
+With those words—Alisha broke into a run.\
 Guards hired by the brothel were visible.\
 Such establishments likely saw their share of disputes with patrons.\
-When Alyssa reached the entrance, they stood in her path as expected.
+When Alisha reached the entrance, they stood in her path as expected.
 
 "Can I help you?"\
 "This is no place for someone like you."
@@ -64,13 +64,13 @@ As Alisha advanced further into the depths, a woman's voice could be heard from 
 (...From this room, then.)
 
 The inner chamber was restricted to authorised personnel only; the woman they sought was likely confined here.\
-Alyssa touched the hilt of the sword at her waist, then kicked the door open with forceful momentum, bursting inside.
+Alisha touched the hilt of the sword at her waist, then kicked the door open with forceful momentum, bursting inside.
 
 "Don't move! If you resist, I won't be gentle—"\
 "Mmm, haa, ah..."
 
-Alyshia's words were cut off by a woman's sultry voice.\
-Ignoring Alyshia's sudden entrance, two women were embracing on the bed.\
+Alisha's words were cut off by a woman's sultry voice.\
+Ignoring Alisha's sudden entrance, two women were embracing on the bed.\
 　Semi-naked, moreover—clearly enjoying activities far from wholesome.\
 Having barged into a brothel, Alisha understood intellectually that such unwholesome activities might occur.\
 Yet two women embracing each other—even Alisha couldn't comprehend this situation, freezing in place.\
@@ -86,7 +86,7 @@ Her gaze was drawn to their actions.
 "Could it be, Princess Knight, that you take an interest in such matters?"
 
 The other woman chuckled softly as she spoke.\
-Alyssa snapped back to her senses and forced herself to continue calmly.
+Alisha snapped back to her senses and forced herself to continue calmly.
 
 "Ah, well, I... I came here pursuing the woman who runs this establishment..."\
 "Ah, that one? She's probably already made her escape through the back by now, isn't she?"
@@ -102,8 +102,8 @@ Asked so directly, Alisha found herself answering honestly.\
 But her sole objective now was the female proprietor.\
 The scene before her was too shocking for Alisha—she found herself slipping into formal speech.\
 Indeed, the fact they continued their actions even after Alisha arrived—should one commend their nerve?
-　Two women, half-naked, engaged in an unwholesome act—Alyssa found herself gasping at the sight.\
-The moment the two women realised Alyssa had no business with them, they showed no concern for her presence.\
+　Two women, half-naked, engaged in an unwholesome act—Alisha found herself gasping at the sight.\
+The moment the two women realised Alisha had no business with them, they showed no concern for her presence.\
 Rather, they seemed to be flaunting it—shooting her fleeting glances.\
 Or perhaps they were enjoying her reaction.\
 　This was the first time Alisha had stumbled upon such a scene—had the women stopped immediately upon seeing her surprise, she might not have cared.\
@@ -111,9 +111,9 @@ But precisely because it piqued her interest, she found herself trying to compre
 —Alisha had lived her life honing her skills as a knight.\
 Her mastery of swordsmanship was such that few could rival her, some even claiming she had no equal.\
 　Even the men employed in this brothel might not have been easily defeated by a knight of lesser skill.\
-In a sense—Alyssa was excellent as a knight, but she possessed no knowledge of anything else.\
+In a sense—Alisha was excellent as a knight, but she possessed no knowledge of anything else.\
 That was precisely why this unknown world had struck such a powerful chord within her.\
-Despite the urgent need to pursue them, Alyssa found herself unable to move.
+Despite the urgent need to pursue them, Alisha found herself unable to move.
 
 "Lady Alisha!"
 
@@ -126,6 +126,6 @@ Before her fellow knights could reach her, Alisha replied and dashed away from t
 　—As if to shake off the fact she’d been captivated by the scene just now.\
 In the end—they succeeded in apprehending the proprietress, but I hear the establishment itself continues to operate without issue under new management.\
 Presumably, the women who were present took over.\
-Regardless—brothels are places far removed from Alyssa’s world.\
+Regardless—brothels are places far removed from Alisha’s world.\
 　While she might enter one for work, she would never set foot in one privately.\
 And precisely because it was something she would never do—that day was etched deep into the recesses of Alisha's memory.

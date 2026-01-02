@@ -6,7 +6,7 @@ title: Episode 16
 "I-I-I'm sorry, I... I went too far...!"
 
 Lotte blurted out an apology in a panic —but it might have been too late.\
-Alyssa slowly sat up, but didn't reply immediately.
+Alisha slowly sat up, but didn't reply immediately.
 
 (Why did I do this?)
 
@@ -70,12 +70,12 @@ It still wouldn't stop —it was a sensation she'd never experienced before.
 
 She couldn't help but let slip such a childish remark.\
 From a young age —she had honed her swordsmanship.\
-　Alyssa possessed talent, and by the time she was over ten, she was competing in sword tournaments alongside adults, achieving notable results.\
-As time passed, Alyssa eventually reached a point where she no longer lost.\
+　Alisha possessed talent, and by the time she was over ten, she was competing in sword tournaments alongside adults, achieving notable results.\
+As time passed, Alisha eventually reached a point where she no longer lost.\
 To be perfectly honest, she hadn't tasted defeat in several years.\
 Since becoming a knight, failure was simply not an option in her work, and she had never lost in the field of combat.\
-　No, it was the same in all other respects too —Alyssa was the universally acknowledged perfect Princess Knight.\
-Precisely because such conduct was demanded of her, defeat was simply not an option for Alyssa.\
+　No, it was the same in all other respects too —Alisha was the universally acknowledged perfect Princess Knight.\
+Precisely because such conduct was demanded of her, defeat was simply not an option for Alisha.\
 —And yet, she had been pinned down by a single maid. Despite struggling, she couldn't even get back up.\
 She had lost. To a maid.
 
@@ -83,9 +83,9 @@ She had lost. To a maid.
 
 "...!"
 
-Recalling Lotte's earlier words, Alyssa writhed in agony.\
+Recalling Lotte's earlier words, Alisha writhed in agony.\
 Her expression back then had been somehow cold, not quite contempt —yet it felt like she was being mocked.\
-True to those words, Alyssa had been overpowered by a mere maid.\
+True to those words, Alisha had been overpowered by a mere maid.\
 She had faced numerous criminals larger than herself and never once lost.\
 　It was utterly humiliating, a frustration so intense it brought tears to her eyes —yet simultaneously, she felt exhilarated.\
 By the very fact she was doing something utterly unforgivable as a Princess Knight.\

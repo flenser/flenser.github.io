@@ -46,8 +46,8 @@ It all began when she was saved by a knight girl named Alisha Zechrosia.\
 Lotte lived in what was considered a remote area of the Kingdom of Woerth, but it was known as a safe place because the neighbouring border was separated by a forest.\
 　However, that was only when the focus was on warfare between nations.\
 The number of monsters dwelling in the forest was not insignificant, and a fair number of knights were stationed there to deal with them.\
-Alyssa was among them, and it all began when she brilliantly defeated the monsters that attacked Lotte's village.\
-Lotte was saved by Alyssa just as she was about to be attacked by a monster.\
+Alisha was among them, and it all began when she brilliantly defeated the monsters that attacked Lotte's village.\
+Lotte was saved by Alisha just as she was about to be attacked by a monster.\
 　To say she felt something akin to love at first sight might not be entirely untrue.\
 It was then that Lotte learned of Alisha.\
 She was not just any knight, but a member of the Zekrosia family, one of the kingdom's foremost noble houses.\

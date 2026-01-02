@@ -1,7 +1,6 @@
 ---
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
 title: Episode 21
-nav_order: 70
 ---
 
 When I was a child, I feel like it snowed more in winter.

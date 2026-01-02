@@ -33,7 +33,7 @@ Whether that would truly work was uncertain —but Lotte's mind was already made
 
 "So please... don't leave."
 
-Saying this, Alyssa grasped the hem of Lotte's dress imploringly.\
+Saying this, Alisha grasped the hem of Lotte's dress imploringly.\
 The sight was reminiscent of an abandoned puppy —Lotte's resolve, which should have been unshakeable, wavered easily.\
 Without Lotte, there would surely be no problems arising between the maids.\
 Everything would remain as it was —so leaving was the right thing to do.\
@@ -60,9 +60,9 @@ Because this was a secret just between the two of them.
 "Very well. I shall grant Your Highness's wish."\
 "...! Does that mean you'll become my personal maid!?"
 
-Alyssa pressed forward eagerly.\
-Alyssa was quite fixated on having a personal maid, but it wasn't something Lotte could accept in her current position.\
-—Besides, there must be someone far more suited to being Alyssa's personal maid.
+Alisha pressed forward eagerly.\
+Alisha was quite fixated on having a personal maid, but it wasn't something Lotte could accept in her current position.\
+—Besides, there must be someone far more suited to being Alisha's personal maid.
 
 "N-no. Merely as one maid among others —to support Lady Alisha."\
 "Oh, so that's what you meant..."

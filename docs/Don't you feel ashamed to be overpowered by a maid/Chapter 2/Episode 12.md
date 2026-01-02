@@ -29,7 +29,7 @@ It was kind of surprising to be told to push someone down out of the blue.
 "So, you push me down!"\
 "I understand what you're saying, but, um, why would I...?"
 
-It was a perfectly reasonable question —why should Lotte be the one to push Alyssa down?
+It was a perfectly reasonable question —why should Lotte be the one to push Alisha down?
 
 "If you want to relieve your daily stress —well, I think the best way is to do the things that interest you yourself. That's why I want to try some 'questionable things' like the ones in that book I bought the other day. I'm asking for your cooperation with that."
 

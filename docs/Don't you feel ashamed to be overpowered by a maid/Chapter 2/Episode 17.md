@@ -7,7 +7,7 @@ title: Episode 17
 
 Lotte was being pressed by a girl similarly clad in a maid's uniform.\
 Behind her stood two others, both radiating palpable hostility.\
-　Having left Alyssa's room and finally composed herself before returning to work, she was now summoned by her fellow maids.\
+　Having left Alisha's room and finally composed herself before returning to work, she was now summoned by her fellow maids.\
 These were the very ones who had gossiped behind her back before she resigned.\
 This was the first time they had directly confronted her like this.
 
@@ -25,7 +25,7 @@ They'd deliberately brought her here, timing it for this specific moment.
 "And someone like you getting summoned to Lady Alisha's very chambers!"
 
 　They all piled into her at once —they were jealous.\
-Admittedly, Lotte had felt envious when she saw the maid entrusted with caring for Alyssa.\
+Admittedly, Lotte had felt envious when she saw the maid entrusted with caring for Alisha.\
 But she wouldn't —and had no intention of— blaming or berating anyone like this.\
 Besides, what they said was true —it was work that should properly be done by a maid of higher standing.\
 　It wasn't something Lotte, a returnee, should be doing —so she accepted their words without complaint.\
@@ -63,7 +63,7 @@ The gaze directed at Lotte was incredibly gentle. Even though she must have been
 
 "—I know Lotte left once before. And I was the one who asked her to come back."
 
-Alyssa explained to the maids in a matter-of-fact tone.
+Alisha explained to the maids in a matter-of-fact tone.
 
 "She looked after me during the expedition. So —when I found out she used to work here, I simply asked her to return. Any objections?"
 
@@ -81,10 +81,10 @@ And for that to be discovered by Alisha of all people meant there was no excuse 
 
 "I requested Lotte as a maid befitting the Zekrosia household. If you refuse to accept that —then it is you who should leave this place."
 
-Alyssa declared it plainly.\
+Alisha declared it plainly.\
 Naturally, the maids could not hide their agitation at her words.
 
-"W-we... we are terribly sorry, Alyssa-sama! P-please forgive us..."
+"W-we... we are terribly sorry, Alisha-sama! P-please forgive us..."
 
 　Their faces drained of colour as the maids knelt before her.\
 The Zekrosia household held considerable power within the kingdom —being dismissed from such a residence would be a grave dishonour for them.\
@@ -93,7 +93,7 @@ It could profoundly alter the course of their future lives.
 "W-We grew jealous that Lotte was entrusted with attending to Lady Alisha..."
 
 　They were so cornered they even admitted the reason Lotte had been summoned here.\
-Even hearing those words, Alyshia's expression remained unchanged.\
+Even hearing those words, Alisha's expression remained unchanged.\
 The kindness she had shown Lotte was absent; she continued to stare at her with a sharp gaze.
 
 "It is not to me you should apologise."\
@@ -104,20 +104,20 @@ The kindness she had shown Lotte was absent; she continued to stare at her with 
 Surely, they weren't truly sorry to Lotte.\
 Knowing this, Alisha couldn't forgive them.\
 But if this continued, she might genuinely expel them —just as Alisha opened her mouth to speak, Lotte tugged at her sleeve.\
-　Alyssa stopped dead in her tracks and turned her gaze towards Lotte.\
+　Alisha stopped dead in her tracks and turned her gaze towards Lotte.\
 Lotte shook her head slightly – meaning this was enough.\
-She feared that saying it aloud would make the others misinterpret the relationship between Lotte and Alyssa.\
-Seeing Lotte like this, Alyssa let out a small sigh before saying,
+She feared that saying it aloud would make the others misinterpret the relationship between Lotte and Alisha.\
+Seeing Lotte like this, Alisha let out a small sigh before saying,
 
 "You may go now. But —there won't be a next time."
 
 Saying this, as if to emphasise her point, the maids nodded frantically and hurriedly left the scene.\
-Alyssa, always straightforward and resolute in her demeanour, was indeed someone Lotte admired —recognising this, Lotte found herself once again being saved.\
-In the end, Lotte always seemed to cause trouble for Alyssa.
+Alisha, always straightforward and resolute in her demeanour, was indeed someone Lotte admired —recognising this, Lotte found herself once again being saved.\
+In the end, Lotte always seemed to cause trouble for Alisha.
 
-"A-Alyssa-sama, about that—"\
+"A-Alisha-sama, about that—"\
 "Shall we return to my room first? I haven't changed yet."\
 "Ah, y-yes!"
 
-Lotte nodded frantically and began walking after Alyssa.\
+Lotte nodded frantically and began walking after Alisha.\
 —Yet within Lotte, another feeling was beginning to solidify.

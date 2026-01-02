@@ -16,17 +16,17 @@ She’d thought it impossible, but momentum is a terrifying thing.
 "...What expression did I have on my face?"
 
 In the end, I never found out.\
-An expression that wasn't entirely displeased —to push Alyssa down and make such a face.\
+An expression that wasn't entirely displeased —to push Alisha down and make such a face.\
 Unwilling to admit it, I added justification that it was because I was resented as a maid —and tried to flee this place once more.\
-But when Alyssa demanded it, I ended up choosing to stay —was that indecisiveness, after all?
+But when Alisha demanded it, I ended up choosing to stay —was that indecisiveness, after all?
 
 "What will happen now?"
 
 She murmured softly, almost to herself.\
-What would Alyssa demand of Lotte now?\
+What would Alisha demand of Lotte now?\
 A sudden wish to be pinned down —would she ask for something even more extreme?\
-Alyssa's reason for wanting Lotte to stay was utterly impure —she was her sole confidante.\
-　Indeed, it was precisely to protect Lotte's image as 'Alyssa's Princess Knight' in the eyes of society that she was forced to accept her demands.\
+Alisha's reason for wanting Lotte to stay was utterly impure —she was her sole confidante.\
+　Indeed, it was precisely to protect Lotte's image as 'Alisha's Princess Knight' in the eyes of society that she was forced to accept her demands.\
 Truthfully, Lotte might be the only one who would even consider fulfilling such a wish.
 
 "—"
@@ -55,7 +55,7 @@ Feeling a slight stiffness in her shoulders, Alisha massaged the area herself.
 "Perhaps I should ask Lotte for a massage next time."
 
 She murmured it almost without thinking, treating Lotte as if she were her personal maid.\
-Though Lotte herself had refused, Alyssa hadn't given up.\
+Though Lotte herself had refused, Alisha hadn't given up.\
 Still, she truly felt she should reflect on how she hadn't been paying attention to matters within the manor.\
 If someone said she'd been too focused on her knightly duties and hadn't looked around her, they'd be right.\
 The 'perfect knight princess' —it was merely a label others had arbitrarily bestowed upon her.
@@ -87,4 +87,4 @@ The mere thought sent a thrill through her.
 
 "...Far from perfect. I might just be the worst."
 
-A low, almost whispered voice escaped her —Alyssa said it with a tinge of self-mockery.
+A low, almost whispered voice escaped her —Alisha said it with a tinge of self-mockery.
