@@ -2,7 +2,6 @@
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
 title: Episode 22
 ---
-
 Episode 22: It's Not Like I'm Having Some Massive Sexual Arousal Explosion or Anything
 
 "Hey, Nana. On days when I don't have to watch Tasuku at night, I'd like to come over to your place sometime."
