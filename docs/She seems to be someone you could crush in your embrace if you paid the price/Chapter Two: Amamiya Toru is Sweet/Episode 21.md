@@ -1,5 +1,5 @@
 ---
-parent: "Chapter Two: Amemiya Toru is Sweet"
+parent: "Chapter Two: Amamiya Toru is Sweet"
 title: Episode 21
 ---
 
