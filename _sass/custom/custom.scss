@@ -1,0 +1,7 @@
+/* Increase usable width inside the sidebar nav without shifting layout */
+.site-nav,
+.site-header,
+.site-footer {
+ width: 340px;     /* or 280px / 300px — adjust to taste */
+ max-width: 340px;
+}
