@@ -22,7 +22,7 @@ If we waited there, a free shuttle bus would come to take us to the mall.
 
 We exchanged trivial conversation, bit by bit.\
 Silences fell, but strangely, they weren't uncomfortable.\
-When I'm with Amemiya Tōru, the kind of silence that should feel awkward doesn't bother me. I think it's because I understand her essence to some degree, and I don't need to feel pressured to 'try hard to keep the conversation going'.
+When I'm with Amamiya Tōru, the kind of silence that should feel awkward doesn't bother me. I think it's because I understand her essence to some degree, and I don't need to feel pressured to 'try hard to keep the conversation going'.
 
 Because we share similar parts, the time we spend overlapping isn't unpleasant.\
 It's actually rather pleasant.

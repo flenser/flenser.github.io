@@ -167,7 +167,7 @@ A kiss that clung to her smooth skin.
 
 "Payback."
 
-Toru Amamiya drew closer.
+Amamiya Tōru drew closer.
 
 "Close your eyes."
 

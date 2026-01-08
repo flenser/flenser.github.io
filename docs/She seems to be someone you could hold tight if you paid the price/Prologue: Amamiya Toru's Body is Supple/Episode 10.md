@@ -61,7 +61,7 @@ The white lines, layered upon each other.
 They won't fade, the scars I inflicted upon myself in the past.\
 Made with the black-handled scissors sitting on my study desk, magical cuts that soothe a lonely heart and an anxious mind.
 
-"If you're feeling anxious, Amemiya-san, I'll always be here to help."
+"If you're feeling anxious, Amamiya-san, I'll always be here to help."
 
 I hugged my arms, as if to conceal the scars, and smiled.\
 Not looking at my reflection in the mirror, but gazing at the girl in my imagination.

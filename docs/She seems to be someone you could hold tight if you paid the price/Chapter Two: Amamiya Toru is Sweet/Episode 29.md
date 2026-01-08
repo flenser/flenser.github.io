@@ -100,14 +100,14 @@ mashiro: '(Sticker of a white cat peeking from the wall with a '?' expression)'
 Today, when we parted ways at the hotel, I plucked up the courage to ask Mashiro for her LINE.\
 The joy of being able to chat even when she wasn't right in front of me seeped into my heart, though it didn't show on my face.
 
-　Toru Amamiya: 'That was quick.'\
-Toru Amamiya: 'Made it home.'\
-Toru Amamiya: 'Cute.'\
+　Amamiya Tōru: 'That was quick.'\
+Amamiya Tōru: 'Made it home.'\
+Amamiya Tōru: 'Cute.'\
 mashiro: 'This sticker is adorable, isn't it?! There's a white cat series and a black cat series – shall I buy them for you?'
 
 After a few seconds' thought, I sent the message.
 
-　Toru Amamiya: 'I'll buy it myself.'\
+　Amamiya Tōru: 'I'll buy it myself.'\
 Mashiro: 'Is that so?'\
 Mashiro: '(A sticker showing a white cat beaming with a "Got it!" written over it)'
 
@@ -116,7 +116,7 @@ No further messages came from Mashiro after that.\
 The conversation ended.\
 After another few seconds' thought, I sent another message.
 
-Toru Amamiya: 'Is it alright if I call you?'
+Amamiya Tōru: 'Is it alright if I call you?'
 
 　The 'read' notification appeared instantly.
 

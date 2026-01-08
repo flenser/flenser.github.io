@@ -51,7 +51,7 @@ Shook her hair as she turned her head to face forward.
 Each of those actions played out like frames from an old film.\
 My brain burned each scene into my memory.
 
-Toru Amamiya attracts attention at this school.
+Amamiya Tōru attracts attention at this school.
 
 In both good and bad ways.\
 A physique that commands stares.\
@@ -63,7 +63,7 @@ This rumour suddenly began circulating midway through our first year of high sch
 
 Because Amamiya Tōru is popular.\
 So popular that seeing her looks makes it feel only natural.\
-　It seems Amamiya Tōru was confessed to by another male student at our school the other day. How many times has this happened now? Amamiya Tou had received confessions from several male students before this.\
+　It seems Amamiya Tōru was confessed to by another male student at our school the other day. How many times has this happened now? Amamiya Tōru had received confessions from several male students before this.\
 But Amamiya Tōru's response was always clear. Her replies had become such clichés that it was obvious, in a roundabout way, there was no love involved.
 
 She invariably said this to the boys who confessed:
@@ -118,7 +118,7 @@ As I embellish and let my imagination run wild, trying to pop another piece of f
 
 "Baaah!"
 
-She —Amemiya Tōru— appeared.\
+She —Amamiya Tōru— appeared.\
 Right before my face. Eyes narrowed, wearing an innocent smile like a child who'd pulled off a successful prank.
 
 Amamiya Tōru's smile.

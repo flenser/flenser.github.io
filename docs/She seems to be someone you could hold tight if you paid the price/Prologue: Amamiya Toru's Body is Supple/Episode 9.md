@@ -6,7 +6,7 @@ nav_order: 9
 
 I closed my eyes.\
 The sensation of something not my own touching my lips.\
-But it felt harder than I’d expected, and as I thought, "Huh?" and opened my eyes, what I saw was Amamiya Toru’s mouth —transparent, yet curved in a way that seemed to be steeped in pleasure.
+But it felt harder than I’d expected, and as I thought, "Huh?" and opened my eyes, what I saw was Amamiya Tōru’s mouth —transparent, yet curved in a way that seemed to be steeped in pleasure.
 
 Her lips weren’t touching anything.\
 Yet I still felt something touching my own lips.\

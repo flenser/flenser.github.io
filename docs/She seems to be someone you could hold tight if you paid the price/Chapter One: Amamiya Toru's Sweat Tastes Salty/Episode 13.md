@@ -25,7 +25,7 @@ Watching her, my drowsiness faded considerably. Driven solely by the realisation
 
 So, towards her trying things on, I certainly didn't wish for any lucky developments. Seeing Amamiya Tōru blushing properly was refreshing, and I felt I'd gained a little something there, but that was all.
 
-　In the end, the types I bought were two kinds of underwear: "cute" and "a bit naughty". The simple ones Amamiya Tou said "I like these" were rejected by me, exercising the payer's prerogative.\
+　In the end, the types I bought were two kinds of underwear: "cute" and "a bit naughty". The simple ones Amamiya Tōru said "I like these" were rejected by me, exercising the payer's prerogative.\
 But while I was intently observing and scrutinising her in her underwear, her fidgeting was utterly adorable. Ironically, the underwear that suited her restless self best turned out to be the more modest, clean-cut designs.
 
 　Well, in the end, I still insisted she take two pieces: a cute, pastel pink one with ribbons, and a slightly sheer black lace one.

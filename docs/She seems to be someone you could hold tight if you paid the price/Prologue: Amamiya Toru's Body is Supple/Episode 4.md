@@ -100,7 +100,7 @@ Would it bleed? Would it stain? Or would it fade, eventually disappearing again?
 
 "You were watching me that much?"
 
-Amemiya Tōru asked.
+Amamiya Tōru asked.
 
 "Yeah."
 
