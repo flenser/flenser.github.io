@@ -100,14 +100,14 @@ I'd bow my head and confess to her.\
 If she looked up at me and asked, "How much can you afford to spend on me?", what would I say?\
 Like the others before me, I might ponder it for a while. Money is important, and we students, still relying on pocket money from our parents, have to be especially careful about how we spend it.
 
-　Once I start pondering, Amamiya To will likely tempt me with something.
+　Once I start pondering, Amamiya Tōru will likely tempt me with something.
 
 What would she let me do for free?\
 Could I learn the shape of her breasts?\
 Could I feel the softness of her bottom?\
 Could I have her gently bite my ear and feel the warmth of her saliva?
 
-I let the imagined Amamiya To make me try all sorts of things.\
+I let the imagined Amamiya Tōru make me try all sorts of things.\
 Each one is incredibly enticing, making my heart race.
 
 　The reason I know her actions so concretely is because I've actually witnessed Amamiya Toru and the former Knights confessing to her several times.\
