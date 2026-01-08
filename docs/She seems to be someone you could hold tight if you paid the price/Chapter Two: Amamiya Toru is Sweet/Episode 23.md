@@ -127,7 +127,7 @@ But I knew the rumours, so I understood exactly what he was referring to. Even s
 The boy scratched the back of his head, muttering, "That's weird."\
 And despite other students being in the corridor, he asked without lowering his voice.
 
-"Kuroda-san, you're like Amemiya, aren't you? Will come to a hotel with them if they pay enough money?"
+"Kuroda-san, you're like Amamiya, aren't you? Will come to a hotel with them if they pay enough money?"
 
 That was a rumour that always came up when people talked about Amamiya Tōru before.\
 It was completely baseless. An exaggerated rumour vastly different from the truth.

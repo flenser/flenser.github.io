@@ -61,7 +61,7 @@ The words barely escaped my lips, raspy, yet my question reached her clearly.
 "Eh?"\
 "This is your reward."
 
-Amemiya Toru pulled her mouth away from my finger.\
+Amamiya Tōru pulled her mouth away from my finger.\
 　With one final lick, taking in the entire slackened thread, she took a handkerchief from her uniform blazer pocket and gently, meticulously wiped my damp fingertips.
 
 I stared at my hand, now free and able to move.\
@@ -82,7 +82,7 @@ I kept thinking about it, agonising over it over and over.
 
 "...Hmm. Still agonising? ...................................Girls really are a pain, aren't they? Well then, how about this?"
 
-Amemiya Tō didn't seem inclined to give me time to agonise.\
+Amamiya Tō didn't seem inclined to give me time to agonise.\
 　Her temptations continued.\
 What would she do next? Or rather, what would she spring on me?\
 I watched her movements carefully, but this time, Amamiya Tōru simply approached me, arms outstretched, a slow smile spreading across her face.

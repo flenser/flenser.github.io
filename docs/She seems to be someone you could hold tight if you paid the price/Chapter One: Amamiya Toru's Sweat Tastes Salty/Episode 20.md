@@ -80,7 +80,7 @@ And though I'd tried not to think about it, the cut on my left arm – which I'd
 The trace of my magic had been exposed to someone.\
 I felt a slight shock at that, followed by mounting irritation.
 
-　Amemiya Toru lowered her gaze to the left, uttering her words awkwardly.
+　Amamiya Tōru lowered her gaze to the left, uttering her words awkwardly.
 
 Her expression was almost blank, yet the hint of remorse was proof my understanding of her was growing.\
 Well, that didn't matter right now.

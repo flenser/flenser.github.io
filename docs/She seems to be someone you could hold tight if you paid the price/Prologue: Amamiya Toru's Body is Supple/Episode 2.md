@@ -21,7 +21,7 @@ We hadn't been in the same class during our first year of high school, so it mad
 Here, I reaffirmed it.\
 That I really was a world apart from her.
 
-"Kuroda, Mashiro..."\
+"Kuroda Mashiro..."\
 "Mashiro-chan, huh? Yeah, that's nice. I've got it now!"
 
 Amamiya Tōru gazed into my eyes and took a step back. Swaying slightly.\
@@ -89,7 +89,7 @@ Yes, laughter.\
 A high-pitched, bubbling sound. A girl's laughter.
 
 　Suddenly, something passed by my face. It was her arm.\
-Amemiya Tou placed her chin on top of my head, wrapping her arm around me from behind as if leaning against me.
+Amamiya Tōru placed her chin on top of my head, wrapping her arm around me from behind as if leaning against me.
 
 "Mashiro-chan, you're such an amusing girl, aren't you?"
 
@@ -141,7 +141,7 @@ The reason Amamiya Tōru called someone like me after school.
 
 Again.
 
-Again, just like the fake version I saw during lunch break, Amamiya Toru blushed.
+Again, just like the fake version I saw during lunch break, Amamiya Tōru blushed.
 
 Then, placing her hand on her chest, she closed the gap of several paces I'd left open, step by step.
 
@@ -158,7 +158,7 @@ As if. This reaction was fake. Artificial. In other words, a lie.\
 So I let it go.\
 Right now, all my awareness was consumed by the sensation travelling through my hand.
 
-The destination my hand reached, guided by Amamiya Tou, was Amamiya Tou's chest.
+The destination my hand reached, guided by Amamiya Tōru, was Amamiya Tōru's chest.
 
 「………」
 

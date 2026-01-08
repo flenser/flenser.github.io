@@ -105,7 +105,7 @@ Her body stiffened.\
 She must understand too.
 
 When we shared our first kiss.\
-It wasn't me who made the move, it was Amamiya Toru.\
+It wasn't me who made the move, it was Amamiya Tōru.\
 What flipped her switch was probably me licking the sweat from her neck.
 
 Is being licked an addiction?\
