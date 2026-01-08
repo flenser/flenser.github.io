@@ -57,7 +57,7 @@ In both good and bad ways.\
 A physique that commands stares.\
 Eyes that draw you in if they meet yours.
 
-　I cannot deny that the girls sitting in front of me called Amamiya Tō a slut.\
+　I cannot deny that the girls sitting in front of me called Amamiya Tōru a slut.\
 Nor do I intend to deny it at present.\
 This rumour suddenly began circulating midway through our first year of high school last year, yet its credibility was eerily high.
 
