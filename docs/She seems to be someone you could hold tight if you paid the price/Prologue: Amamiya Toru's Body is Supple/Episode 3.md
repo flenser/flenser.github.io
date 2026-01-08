@@ -82,7 +82,7 @@ I kept thinking about it, agonising over it over and over.
 
 "...Hmm. Still agonising? ...................................Girls really are a pain, aren't they? Well then, how about this?"
 
-Amamiya Tō didn't seem inclined to give me time to agonise.\
+Amamiya Tōru didn't seem inclined to give me time to agonise.\
 　Her temptations continued.\
 What would she do next? Or rather, what would she spring on me?\
 I watched her movements carefully, but this time, Amamiya Tōru simply approached me, arms outstretched, a slow smile spreading across her face.
