@@ -37,7 +37,7 @@ Checking to ensure it wasn't too tight, Lotte bound Alisha's arms with the rope.
 
 Taking Alisha's word for it, she tied it in a way that could be undone relatively easily.\
 Though, for Alisha, bound as she was, it wouldn't be simple to untie.\
-　Alyssa moved her bound arms as if to check them—
+　Alisha moved her bound arms as if to check them—
 
 "...I can't move, can I?"
 
@@ -45,7 +45,7 @@ She murmured her observation in a small voice.
 
 "Well, I suppose that's because I've tied you up."
 
-The creaking sound of the rope reached her ears —Alyssa seemed to be trying to free herself.\
+The creaking sound of the rope reached her ears —Alisha seemed to be trying to free herself.\
 Lotte kept watch, checking that no one was approaching.
 
 "...It's true, being unable to move does make one feel rather... peculiar."
