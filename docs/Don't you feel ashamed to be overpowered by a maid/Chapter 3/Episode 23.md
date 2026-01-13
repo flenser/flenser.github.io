@@ -66,12 +66,12 @@ Startled by the sudden voice, she jumped.
 "That's... well, yes."
 
 After a moment's hesitation, Lotte nodded.\
-She thought this was good —Alyssa took it from Lotte and headed straight to the shopkeeper.
+She thought this was good —Alisha took it from Lotte and headed straight to the shopkeeper.
 
 "I'll take this one."\
 "Right then."
 
-Instant decision —Alyssa showed no sign of hesitation.\
+Instant decision —Alisha showed no sign of hesitation.\
 After purchasing the choker, Alisha immediately took Lotte with her —this time heading towards a deserted back alley.\
 Taking the newly bought choker out of the paper bag,
 
@@ -111,7 +111,7 @@ Something only the two of them could do, an act they couldn't be seen doing.\
 
 She breathed a sigh of relief.\
 Even if it was Alisha's wish, she couldn't possibly comply if asked to —well, you know —here.\
-　Alyssa took something else from the paper bag she held.\
+　Alisha took something else from the paper bag she held.\
 It seemed to be something she'd bought while Lotte was choosing the choker.
 
 "...Rope? Why on earth would you need that?"
