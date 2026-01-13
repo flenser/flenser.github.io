@@ -5,13 +5,13 @@ nav_order: 30
 ---
 
 After saying that, Lotte made a gesture as if to cover her mouth.\
-To ask such a thing of someone concealing their identity so thoroughly—it was as if she were visually pleading, 'Don't pry.'
+To ask such a thing of someone concealing their identity so thoroughly —it was as if she were visually pleading, 'Don't pry.'
 
 "...No, I don't think so."
 
-But—whether unexpected or not—the figure in the robe answered in a slightly high-pitched voice.\
+But —whether unexpected or not —the figure in the robe answered in a slightly high-pitched voice.\
 　A girl, perhaps? Just from this exchange, it was clear they were still young.\
-Though cloaked in robes, their relatively petite frame had led Lotte to suspect they might be female—likely a girl not much older than herself.\
+Though cloaked in robes, their relatively petite frame had led Lotte to suspect they might be female —likely a girl not much older than herself.\
 The voice denying it also felt familiar to Lotte.\
 Still, prying further would be rather rude.
 
@@ -20,11 +20,11 @@ Still, prying further would be rather rude.
 Lotte apologised immediately.\
 The other was merely a customer; it wasn't a matter worth detaining them over.\
 The robed figure gave a brief nod in acknowledgement before hurrying towards the shop exit.\
-She still felt certain she'd met them somewhere before—but if that were the case, prying into their identity would be wrong.
+She still felt certain she'd met them somewhere before —but if that were the case, prying into their identity would be wrong.
 
 (I'm only here to mind the shop; best not to meddle.)
 
-Lotte's job was simply to sell books to customers who came in—she mustn't get herself tangled up in trouble.\
+Lotte's job was simply to sell books to customers who came in —she mustn't get herself tangled up in trouble.\
 As she was telling herself this,
 
 "Kyaaaaaaaah!"
@@ -51,44 +51,44 @@ This village was one such place, making it a prime target for them.
 
 Lotte instinctively hid behind cover.\
 　—Lotte possessed no strength to fight, nothing she could do.\
-Or perhaps flee from here and summon knights—could Lotte manage that?
+Or perhaps flee from here and summon knights —could Lotte manage that?
 
 "...!"
 
 Lotte couldn't move immediately.\
-Meanwhile—the bandits began their plundering. But then,
+Meanwhile —the bandits began their plundering. But then,
 
 "Guh!?"
 
 A groan echoed.\
 　—Someone had cut them down in an instant.\
-It was the figure in the robe from earlier—drawing the sword at their waist, facing several bandits.
+It was the figure in the robe from earlier —drawing the sword at their waist, facing several bandits.
 
 (W-when did she…?)
 
-She should have been a fair distance from Lotte's shop—yet she closed the gap in an instant and commenced fighting the bandits.\
+It must have been a fair distance from Lotte's shop —yet she closed the gap in an instant and commenced fighting the bandits.\
 Though rogues, they were armed.\
 Coordinated, they rallied their comrades to counterattack the cloaked figure who had suddenly appeared, despite their surprise.
 
 "Kill him!"
 
 Someone shouted, and they all lunged at the robed figure simultaneously.\
-In that instant—a faint, small gust of wind swirled.\
+In that instant —a faint, small gust of wind swirled.\
 It happened almost in the blink of an eye. Before anyone realised, more than five lay sprawled on the roadside.\
-Lotte hadn't been able to follow the action with her eyes, but he must have cut them all down with his sword.\
-However, it seemed he hadn't killed them, for the fallen men were groaning.
+Lotte hadn't been able to follow the action with her eyes, but she must have cut them all down with her sword.\
+However, it seemed she hadn't killed them, for the fallen men were groaning.
 
 "...! You... who the hell are you?"
 
 The man leading the band of thieves became aware of the presence.\
 Other waiting bandits attempted to move towards the robed figure, but the man stopped them.\
-He was clearly the leader—gripping the greatsword, nearly as tall as himself, which he had been carrying on his back, he assumed a stance.
+He was clearly the leader —gripping the greatsword, nearly as tall as himself, which he had been carrying on his back, he assumed a stance.
 
 "Stand down. I'll handle this."
 
 He must have instantly judged it beyond anyone else's capability.\
 The robed figure likewise assumed a fighting stance, sword drawn.\
-The leader moved first—swinging his greatsword wildly.\
+The leader moved first —swinging his greatsword wildly.\
 　Brute force, yet surprisingly swift for such a weapon – the robed figure leapt backwards.\
 The leader didn't let him escape.
 
@@ -108,7 +108,7 @@ The greatsword slammed forcefully into the earth—splitting the ground with eas
 "Gah—"
 
 Bleeding, he dropped the greatsword.\
-The tip of the blade pressed firmly against his throat—and the leader froze.
+The tip of the blade pressed firmly against his throat —and the leader froze.
 
 "—Surrender. Then I won't take your life."
 
@@ -118,12 +118,12 @@ The robed figure uttered only those words.\
 "...I-I understand, I surrender...!"
 
 The leader answered promptly, and the robed figure lowered the blade from his throat.\
-In that instant—the leader lunged at the robed figure.\
+In that instant —the leader lunged at the robed figure.\
 Even without a weapon, there was a size difference.\
 He likely thought that if he could just pin him down, even without arms, he still had a decent chance of winning.\
-　But—the next instant, the large body was sent flying through the air.\
-The robed figure had unleashed magic—a power utilised by converting the magical energy flowing within one's body.\
-That had likely been wind magic—elements like fire, water, and lightning were common, and wind was probably the robed figure's speciality.\
+　But —the next instant, the large body was sent flying through the air.\
+The robed figure had unleashed magic —a power utilised by converting the magical energy flowing within one's body.\
+That had likely been wind magic —elements like fire, water, and lightning were common, and wind was probably the robed figure's speciality.\
 Mastering magic required talent; even those possessing magical energy often couldn't wield it.\
 　Lotte, too, possessed no talent for wielding magic.
 
@@ -131,7 +131,7 @@ Mastering magic required talent; even those possessing magical energy often coul
 
 The leader had been dispatched with ease, and his comrades, who could have fought on—one by one, they laid down their weapons at those words.\
 　Having witnessed his current strength, they likely judged further resistance futile.\
-It happened almost in an instant, yet he had subdued the entire band of thieves single-handedly.\
+It happened almost in an instant, yet she had subdued the entire band of thieves single-handedly.\
 The surrendered bandits were seized by the villagers and would soon be handed over to the knights expected to arrive shortly.
 
 "W-what can I possibly say to thank you..."\
@@ -139,6 +139,6 @@ The surrendered bandits were seized by the villagers and would soon be handed ov
 
 The robed figure brushed aside the villagers' expressions of gratitude and made their way straight to Lotte.\
 It seemed they had come to retrieve the books left inside the shop.\
-That swordplay earlier, that commanding voice—with this much information, Lotte couldn't help but realise.
+That swordplay earlier, that commanding voice —with this much information, Lotte couldn't help but realise.
 
 "...Could it be... Lady Alisha?"

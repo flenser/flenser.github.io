@@ -35,7 +35,7 @@ After hearing Lotte's explanation, the knight sighed softly.
 
 Lotte asked, just to be sure, about what was on her mind.
 
-"Nothing at all. I'd simply wish to express my gratitude for your assistance in capturing the thief. That's all. In such cases, a reward is usually offered... but perhaps you're not interested in that sort of thing."
+"Nothing at all. I'd simply wish to express my gratitude for their assistance in capturing the thief. That's all. In such cases, a reward is usually offered... but perhaps you're not interested in that sort of thing."
 
 　The knight replied thus, then turned and walked away.\
 —Of course, Alisha hadn't done anything wrong.\
@@ -46,7 +46,7 @@ Having dealt with that, Lotte returned to Alisha.
 "Nothing much, she simply left."\
 "Oh? That's good... Since I'm here concealing my knightly status, it would have been rather troublesome if discovered – all the paperwork and such."\
 "I-Is that so?"\
-"Indeed. We'd have to explain why she was in that situation to begin with, and various other things. She might even have had to declare the items she purchased."
+"Indeed. We'd have to explain why I was in that situation to begin with, and various other things. I might even have had to declare the items I purchased."
 
 When it came to items purchased here – her gaze inevitably fell upon the book on the table.
 
@@ -80,7 +80,7 @@ Suddenly, Alisha flashed a somewhat suggestive smile, causing Lotte to gasp invo
 "...Eh?"
 
 　For Lotte, Alisha's request was utterly unexpected.\
-To be precise, it was a perfectly ordinary request—but for Lotte, it was nothing short of shocking.
+To be precise, it was a perfectly ordinary request —but for Lotte, it was nothing short of shocking.
 
 "Personal... maid...!?"\
 "Yes, would you be my personal maid?"
@@ -139,7 +139,7 @@ It was clearly a position unbecoming of Lotte. What would happen if Alisha sudde
 　She didn't even want to imagine it — Lotte curled up small in the bed.\
 What should she do? — As she agonised, she recalled her exchanges with Alisha.\
 Honestly, the time spent with her had been happy.\
-After all, she was willing to become a maid just to be useful to her—no matter what secrets she learned, Lotte's feelings wouldn't change.
+After all, she was willing to become a maid just to be useful to her —no matter what secrets she learned, Lotte's feelings wouldn't change.
 
 "...Ah."
 

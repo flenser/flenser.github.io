@@ -6,22 +6,22 @@ nav_order: 40
 
 "...!?"
 
-The robed figure—Alisha—shuddered as if shaken, but
+The robed figure —Alisha —shuddered as if shaken, but
 
 "That's impossible."
 
 immediately voiced her denial.\
-The voice was similar—but could Alisha possibly be conveniently present here?
+The voice was similar —but could Alisha possibly be conveniently present here?
 
 "Y-yes, you're right. I'm sorry, it just sounded so similar..."\
 "S-sound...? Hmm, hmm! Is it really that similar?"
 
 The robed figure asked, lowering their voice further than before.\
-—What was that about changing their voice when told it sounded similar?\
+—What was that about, changing their voice when told it sounded similar?\
 Could it really be Alisha...? Lotte's suspicions grew deeper and deeper.
 
 "I think it was similar... but perhaps I was mistaken."\
-"Ah, mistaken. By Alisha, you mean Alisha Zeklosia, do you not?"\
+"Ah, mistaken. By Alisha, you mean Alisha Zekrosia, do you not?"\
 "Y-yes. You know Her Highness Alisha, don't you? She's famous throughout the kingdom."
 
 Lotte found herself speaking as if the figure's knowledge was a given.\
@@ -40,12 +40,12 @@ She hadn't yet thanked them for capturing the bandit.\
 "There's no need to worry about it. Well then, I must be going—"
 
 With that, the robed figure turned to leave.\
-In that instant—perhaps the battle moments before had caused it—a snapping sound like a cord breaking revealed her true face.
+In that instant —perhaps the battle moments before had caused it —a snapping sound like a cord breaking revealed her true face.
 
 "—"
 
 Lotte's eyes widened in shock, and she lost her voice.\
-　And no wonder—beneath the mask was someone she could never mistake, the very person she admired.
+　And no wonder —beneath the mask was someone she could never mistake, the very person she admired.
 
 "Y-You're Lady Alisha, aren't you!?"
 
@@ -53,20 +53,20 @@ Lotte cried out the name loudly.
 
 "Ah, u—"
 
-The robed figure—Alisha—stammered, looking around frantically.\
+The robed figure —Alisha —stammered, looking around frantically.\
 Lotte paid her no mind and continued.
 
 "I was saved by you once, Lady Alisha! I admired you so much then that I became a maid for the Zekrosia household...!"\
 "You... you work for us!?"
 
 Alisha exclaimed, clearly astonished.\
-Yes—she had become a maid because she admired her.\
+Yes —she had become a maid because she admired her.\
 Yet she had resigned of her own accord and returned to this frontier.
 
 "Ah... but I handed in my resignation the other day."
 
 Lotte said this with an awkward expression.\
-Even though she'd finally reunited with Alisha, she was no longer a maid for the Zeklosia household.\
+Even though she'd finally reunited with Alisha, she was no longer a maid for the Zekrosia household.\
 —Not that being a maid would have mattered anyway.\
 She didn't even know Lotte.
 
@@ -81,12 +81,12 @@ Lotte picked up the book Alisha had bought earlier and handed it to her.
 "Ah, thank you."
 
 Alisha took it and glanced around again.\
-Perhaps because I had just called her name—come to think of it, she had come here concealing her true identity.\
+Perhaps because I had just called her name —come to think of it, she had come here concealing her true identity.\
 Yet even Lotte couldn't hide her delight in Alisha's presence.
 
 "But, for Lady Alisha to come all the way to our humble establishment—"\
 She trailed off, realising something.\
-The figure in the robe was Alisha—meaning it was she who had come here, disguised, to buy one of these dubious books.\
+The figure in the robe was Alisha —meaning it was she who had come here, disguised, to buy one of these dubious books.\
 Indeed, the purchased book was now in Alisha's hands, unmistakably hers.
 
 "...That book, Lady Alisha?"\
@@ -102,7 +102,7 @@ As for her, she let out a small sigh and wore a troubled expression. Then,
 
 "Th-that book I bought... I mean, um, it's not that I'm interested or anything! I don't even know anything about the contents at all! It's just, you know, seeing the cover? I thought, 'Is this a really amazing book?!' Like that...!?"
 
-　She stammered out excuses, flustered beyond recognition—this was not the Alisha Lotte knew.\
+　She stammered out excuses, flustered beyond recognition —this was not the Alisha Lotte knew.\
 Gone was the Alisha Lotte had admired. In her place stood a pitiful figure, having revealed a secret that must never be known, desperately trying to conceal it with childish excuses.
 
 "Well, there are all sorts of things, aren't there!?　Not just history, but things you need to learn! That's why you need that kind of education..."\
@@ -118,7 +118,7 @@ Lotte had undoubtedly said too much.\
 "......"\
 "......"
 
-Mutual silence—and after a brief stillness,
+Mutual silence —and after a brief stillness,
 
 "—Kill..."\
 "...Kill?"\
