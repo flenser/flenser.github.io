@@ -4,7 +4,7 @@ title: Episode 26
 ---
 Episode 26: I Like You Too, I Love You, Mizuki
 
-Winter break had begun, and Christmas Eve was finally here. The day Mitsuki was coming to stay.
+Winter break had begun, and Christmas Eve was finally here. The day Mizuki was coming to stay.
 
 Only Mum and Dad were home today.\
 My brother had left the house in the morning, looking unusually determined.\
