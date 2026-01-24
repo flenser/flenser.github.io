@@ -37,7 +37,7 @@ Well, it wasn't what I wanted to hear, so I ignored her and kept licking.
 "I heard that earlier. So?"\
 "So...?"\
 "I actually want Amamiya-san to value herself more. Did I ever say I disliked that, even once?"\
-"………I didn't, but—"\
+"………You didn't, but—"\
 "Then that's just your own delusional persecution complex — or rather, aggression complex."
 
 Cutting her off decisively, I resumed licking her body.
