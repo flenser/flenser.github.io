@@ -16,3 +16,7 @@ Stories translated so far
 
 {: .note }
 Most of these are still ongoing, new episodes will be translated and uploaded as soon as possible, usually same day or next.
+
+Join the [Discord].
+
+[Discord]: https://discord.gg/gR9EyGZX8a
