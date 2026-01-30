@@ -1,6 +1,6 @@
----\
-parent: Chapter 4\
-title: Episode 35\
+---
+parent: Chapter 4
+title: Episode 35
 ---
 
 "Wh-what are you saying—"\
