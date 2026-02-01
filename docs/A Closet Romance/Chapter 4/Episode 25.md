@@ -33,7 +33,7 @@ Well, if she's onto me, there's no point helping now. I resignedly dried my hand
 
 "Your friend... Maki-chan?"
 
-"No, not her. ...Mizuki. Kase Mizuki. You know, the one I stayed over at recently? Mum packed me that Baumkuchen to take."
+"No, not her. ...Mitsuki. Kase Mitsuki. You know, the one I stayed over at recently? Mum packed me that Baumkuchen to take."
 
 "Kase-san... Ah! Come to think of it, Kase-san's mother rang the other day."
 
@@ -48,8 +48,8 @@ My heart skipped a beat. Why did Mum's gaze suddenly seem a little sharper, a li
 
 "Ah, yes, she does. I don't know her exact age, but she was a beautiful mother."
 
-This is a lie. I've never met Mizuki's mother and I know her age.\
-Mizuki's mother must have had her when she was sixteen, so she'd be thirty-four this year.\
+This is a lie. I've never met Mitsuki's mother and I know her age.\
+Mitsuki's mother must have had her when she was sixteen, so she'd be thirty-four this year.\
 My own mother is forty-six now, so there's a full generation gap between them. It's only natural to notice her youth just from her voice.
 
 "I hear she has a younger child too?"
@@ -61,13 +61,13 @@ The Asami household values independence in their parenting approach. That's why 
 
 Still, I wondered if Mum disapproved of the Kase household's current situation.
 
-　I don't know exactly what she'd heard from Mizuki's mother, but my mum definitely wouldn't approve of a high schooler like Mizuki looking after a baby all night long on her own.
+　I don't know exactly what she'd heard from Mitsuki's mother, but my mum definitely wouldn't approve of a high schooler like Mitsuki looking after a baby all night long on her own.
 
-Up until now, I'd never asked about what Mizuki's mother did for a living, how Tasuku came to be born, or anything about his father.
+Up until now, I'd never asked about what Mitsuki's mother did for a living, how Tasuku came to be born, or anything about his father.
 
-　When I visit Mizuki's house — what if my mum says something about two high school students looking after little Tasuku? How would I explain it? What if she tells me I can't go to Mizuki's house anymore?
+　When I visit Mitsuki's house — what if my mum says something about two high school students looking after little Tasuku? How would I explain it? What if she tells me I can't go to Mitsuki's house anymore?
 
-Unpleasant thoughts swirl around. I haven't done anything wrong. But even I can see that Mizuki's current situation deviates from what's considered normal.
+Unpleasant thoughts swirl around. I haven't done anything wrong. But even I can see that Mitsuki's current situation deviates from what's considered normal.
 
 　It would be too late if something happened. Irreparable. ...I know that.
 
@@ -89,14 +89,14 @@ Adulthood seems rather complicated. It feels like everyone wears an invisible, t
 When does one learn to skilfully switch between what one truly feels and what one presents to others?\
 Will I ever acquire such a mask myself?\
 Does turning eighteen and becoming an adult change anything?\
-Will I one day be able to see through what Mizuki is thinking, or discern the lies and truths hidden behind her words?
+Will I one day be able to see through what Mitsuki is thinking, or discern the lies and truths hidden behind her words?
 
 ＊＊＊
 
-　After finishing dinner and returning to my room, I call Mizuki.\
+　After finishing dinner and returning to my room, I call Mitsuki.\
 After a few rings, her sweet, gentle voice — the one I love — says "Hello?" in my left ear.
 
-"...Mizuki, is now a good time?"
+"...Mitsuki, is now a good time?"
 
 'Yeah, it's fine. What's up?'
 
@@ -117,7 +117,7 @@ Somehow, talking on the phone felt tingly. It felt like she was whispering right
 
 'Eh? Why not? Come on, I want to see them!'
 
-"Mizuki, you're getting too excited. The joint entrance exams are coming up soon, aren't you being a bit too relaxed? Are you really fine not studying over Christmas?"
+"Mitsuki, you're getting too excited. The joint entrance exams are coming up soon, aren't you being a bit too relaxed? Are you really fine not studying over Christmas?"
 
 'It's fine not studying for one day. More than that, I want to know about the old Nana.'
 
@@ -140,7 +140,7 @@ There it is again, Yamato.
 
 "Hmm..."
 
-My mood darkened, and I couldn't suppress a dissatisfied sound. Then, Mizuki's laughter reached my left ear, pressed against the phone.
+My mood darkened, and I couldn't suppress a dissatisfied sound. Then, Mitsuki's laughter reached my left ear, pressed against the phone.
 
 'Ahaha, Nana, you really are adorable.'
 
@@ -148,9 +148,9 @@ My mood darkened, and I couldn't suppress a dissatisfied sound. Then, Mizuki's l
 
 'Because you get so obviously sulky whenever I mention Yamato's name. It's cute how you're a bit childish despite your looks. I like that.'
 
-"...Mizuki, have you been making fun of me lately?"
+"...Mitsuki, have you been making fun of me lately?"
 
-She pouted, her lips tightening. Lately, she felt like Mizuki was always teasing her.
+She pouted, her lips tightening. Lately, she felt like Mitsuki was always teasing her.
 
 ‘I’m not making fun of you! It’s cute when you get jealous. It makes me feel reassured, like, “Ah, she does like me after all.”’
 
@@ -165,36 +165,36 @@ How selfish… Though it is cute…
 Ugh. Her sweet words made me clutch my chest. I thought my heart might stop from the fluttering.\
 Honestly, what is this girl thinking? I wish I could peek inside her mind...
 
-"Mizuki, things like that... you should only do with someone you truly like..."
+"Mitsuki, things like that... you should only do with someone you truly like..."
 
 I started to say that, but the words caught in my throat.
 
 What was I about to say just now?\
 With the person I truly love?\
-Even if I wanted to be that person, I could never be the one Mizuki truly loves?
+Even if I wanted to be that person, I could never be the one Mitsuki truly loves?
 
 'With the person I truly love... what?'
 
 "...No, never mind. It's nothing."
 
-I forced the words out, and Mizuki didn't press me for more.
+I forced the words out, and Mitsuki didn't press me for more.
 
 　After a little more trivial chatter, I hung up, let out a deep, deep sigh, and closed my eyes.\
-Perhaps it was hearing Mizuki's voice, but my chest still felt faintly sweet and heavy.
+Perhaps it was hearing Mitsuki's voice, but my chest still felt faintly sweet and heavy.
 
-Spending the night alone together makes my heart race, but whatever she says, I just hope I don't start feeling weird about Mizuki.
+Spending the night alone together makes my heart race, but whatever she says, I just hope I don't start feeling weird about Mitsuki.
 
 　Oh dear, I wish there was some sort of pill to suppress sexual desire.\
 They say women reach their peak libido in their thirties, but is that really true?\
 If this is how it is in my teens, I dread to think what lies ahead.
 
-Part of me wants to find some way to release this restlessness on my own, but even if I comforted myself, I feel like it would somehow defile Mizuki, so I can't bring myself to do it. I endure the unbearable heat by taking deep, deep breaths.
+Part of me wants to find some way to release this restlessness on my own, but even if I comforted myself, I feel like it would somehow defile Mitsuki, so I can't bring myself to do it. I endure the unbearable heat by taking deep, deep breaths.
 
-　Before sleep, I always think of Mizuki.
+　Before sleep, I always think of Mitsuki.
 
-Is it really alright for me to leave Mizuki behind and go to Tokyo? Won't I regret it?
+Is it really alright for me to leave Mitsuki behind and go to Tokyo? Won't I regret it?
 
-Mizuki has shackles on her feet. She should be able to fly freely and high, but she remains chained, unable to take flight. A poor caged bird. Mizuki can't go anywhere.
+Mitsuki has shackles on her feet. She should be able to fly freely and high, but she remains chained, unable to take flight. A poor caged bird. Mitsuki can't go anywhere.
 
 　Right now, my love burns too fiercely; I can't think clearly.\
 Perhaps she's just using this affection of mine. Unconsciously, even. The doubt won't fade.
@@ -206,8 +206,8 @@ Humans are greedy creatures. The more you give, the more you inevitably crave so
 
 　If this love of mine isn't returned in the form I desire, then I'll try to fill the void in my heart with something else.
 
-Just how much will I demand from Mizuki?\
+Just how much will I demand from Mitsuki?\
 When my foot slips off the brake holding me back, our relationship seems destined to spiral into distortion.
 
-Does Mizuki have the resolve for that?\
+Does Mitsuki have the resolve for that?\
 To be honest... I was still a little afraid.

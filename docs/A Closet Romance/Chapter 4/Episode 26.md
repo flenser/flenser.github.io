@@ -2,9 +2,9 @@
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
 title: Episode 26
 ---
-Episode 26: I Like You Too, I Love You, Mizuki
+Episode 26: I Like You Too, I Love You, Mitsuki
 
-Winter break had begun, and Christmas Eve was finally here. The day Mizuki was coming to stay.
+Winter break had begun, and Christmas Eve was finally here. The day Mitsuki was coming to stay.
 
 Only Mum and Dad were home today.\
 My brother had left the house in the morning, looking unusually determined.\
@@ -15,11 +15,11 @@ A large whole cake was already waiting in the fridge.
 
 Pulling on my down jacket sleeves and wrapping my scarf around my neck, I slipped my feet into my trainers.\
 Stepping outside, dusk had fallen and it was completely dark. The bitterly cold air stung my cheeks.\
-　My steps towards Mizuki's house felt much lighter than usual. Thank goodness it wasn't snowing today. Mizuki hates the cold, after all.
+　My steps towards Mitsuki's house felt much lighter than usual. Thank goodness it wasn't snowing today. Mitsuki hates the cold, after all.
 
-This would surely be the first and last Christmas I spent with Mizuki.
+This would surely be the first and last Christmas I spent with Mitsuki.
 
-　Since becoming close with Mizuki back in May, somehow it was already December. We'd be graduating high school in just three months.
+　Since becoming close with Mitsuki back in May, somehow it was already December. We'd be graduating high school in just three months.
 
 It had been quick. A blink of an eye.\
 Eight months so happy it brought tears to my eyes, and yet unbearably painful.\
@@ -27,31 +27,31 @@ Once Christmas was over, the new year would arrive soon, and we'd be utterly swa
 
 　Did a year really pass this quickly? When I was a child, time seemed to flow much more slowly than it does now. Does it just speed up more as you grow older? It’s a bit scary, somehow.
 
-Lost in these trivial thoughts, I arrived at Mizuki’s flat. I pressed the intercom, and Mizuki, wrapped in a white, fluffy down jacket, popped her head around.
+Lost in these trivial thoughts, I arrived at Mitsuki’s flat. I pressed the intercom, and Mitsuki, wrapped in a white, fluffy down jacket, popped her head around.
 
 "Nana, thank you for coming to pick me up."
 
 "Oh, it's fine. It's just around the corner."
 
-Seeing Mizuki, her backpack packed with clothes for one night, looking at me innocently with sparkling eyes, was so adorable it made me smile.
+Seeing Mitsuki, her backpack packed with clothes for one night, looking at me innocently with sparkling eyes, was so adorable it made me smile.
 
-"Hey Mizuki, we've got time. It's a bit out of the way, but let's go see the illuminations before heading off."
+"Hey Mitsuki, we've got time. It's a bit out of the way, but let's go see the illuminations before heading off."
 
 　Every winter, this town holds an illumination event where the street trees are decorated with LEDs.\
-I've lived here all my life, and frankly, I'm so used to seeing them that they hold no particular feeling for me now. But since this was likely to be my last Christmas in this town, I wanted to see them with Mizuki.
+I've lived here all my life, and frankly, I'm so used to seeing them that they hold no particular feeling for me now. But since this was likely to be my last Christmas in this town, I wanted to see them with Mitsuki.
 
-Even so, Mizuki puffed out her cheeks and shook her head from side to side.
+Even so, Mitsuki puffed out her cheeks and shook her head from side to side.
 
 "Ehh, no way! That's the one with the superstition that if you go see it together, you'll break up. No, no, it's bad luck. I don't want to be separated from Nana."
 
-Huh? Isn't that for couples? I wanted to retort, but Mizuki squeezed my hand tightly, and I fell silent.\
-My cold fingertips melted in the warmth of Mizuki's still-warm hand.\
-　Mizuki, you actually believed in that superstition? How sweet.
+Huh? Isn't that for couples? I wanted to retort, but Mitsuki squeezed my hand tightly, and I fell silent.\
+My cold fingertips melted in the warmth of Mitsuki's still-warm hand.\
+　Mitsuki, you actually believed in that superstition? How sweet.
 
 "...Don't say things like that. It's a special occasion, let's make some Christmas memories."
 
 I gave her clasped hand a gentle tug.\
-Mizuki looked at me, pouting her lips in a sulk.
+Mitsuki looked at me, pouting her lips in a sulk.
 
 "...Do you want to leave me that much, Nana? You like me, so why?"
 
@@ -69,21 +69,21 @@ Mizuki looked at me, pouting her lips in a sulk.
 
 Well, I suppose so. It is a higher-ranked university than the one I'm aiming for. If you say my whole future depends on it, I understand I should stretch myself a bit and aim for that one.\
 To be honest, I'm just desperately holding back my wavering feelings with sheer willpower.\
-I mustn't let myself be swayed. I'm going to Tokyo. If Mizuki genuinely likes me... well, that's a different story.\
+I mustn't let myself be swayed. I'm going to Tokyo. If Mitsuki genuinely likes me... well, that's a different story.\
 "...I'm like the illuminations, you see. Hey, shall we go?　You really don't want to?"
 
 "...Alright. Fine, if Nana wants to go, as a special exception."
 
 "Yeah, thank you."
 
-Without letting go of the hands we'd joined, we slipped them into my pocket together and started walking. Mizuki didn't pull her hand away either.
+Without letting go of the hands we'd joined, we slipped them into my pocket together and started walking. Mitsuki didn't pull her hand away either.
 
-Summer. I thought I'd never hold hands with Mizuki again.\
+Summer. I thought I'd never hold hands with Mitsuki again.\
 But now, here I am, walking hand in hand with her.
 
-　Truthfully, I want to stay by Mizuki's side like this forever.\
-But even if Mizuki accepted everything I desired, she wouldn't truly love me in the fullest sense. If we couldn't love each other with the same feelings, it would be meaningless.\
-Mizuki is trying to respond to my feelings by accepting them. But it's not the same, you see.
+　Truthfully, I want to stay by Mitsuki's side like this forever.\
+But even if Mitsuki accepted everything I desired, she wouldn't truly love me in the fullest sense. If we couldn't love each other with the same feelings, it would be meaningless.\
+Mitsuki is trying to respond to my feelings by accepting them. But it's not the same, you see.
 
 The closer we were, the more that difference became starkly apparent, tightening its grip around my neck. I didn't have the confidence I could endure it.
 
@@ -96,12 +96,12 @@ It being Christmas Eve, the area was swarming with couples, but everyone was so 
 
 "A girlfriend!?"
 
-My hand was suddenly squeezed tightly, and I looked at Mizuki in surprise.
+My hand was suddenly squeezed tightly, and I looked at Mitsuki in surprise.
 
 "Why? You like me, so what do you mean you want a girlfriend?"
 
-Mizuki looked genuinely baffled, and it was so unreasonable it made me laugh.\
-What was that about? Mizuki wouldn't be my girlfriend herself.
+Mitsuki looked genuinely baffled, and it was so unreasonable it made me laugh.\
+What was that about? Mitsuki wouldn't be my girlfriend herself.
 
 "Eh... isn't that perfectly normal?"
 
@@ -117,15 +117,15 @@ What was that about? Mizuki wouldn't be my girlfriend herself.
 
 "What exactly are you dissatisfied about?"
 
-I peer at her face. The tip of her nose, flushed red, is adorable. I never want to forget this. I want to remember properly this eighteen-year-old Mizuki, still retaining traces of childish innocence.\
+I peer at her face. The tip of her nose, flushed red, is adorable. I never want to forget this. I want to remember properly this eighteen-year-old Mitsuki, still retaining traces of childish innocence.\
 My first love. More precious than anyone else, my special girl.
 
 "...I'm dissatisfied that Nana would fall for a girl other than me."
 
-"Blimey, that's unreasonable. Mizuki, you're quite the bully, aren't you?"
+"Blimey, that's unreasonable. Mitsuki, you're quite the bully, aren't you?"
 
 It's so unreasonable it's laughable.\
-But even that selfish Mizuki is cute and I like her, you know. I know it's crazy, but I've fallen for her, so what can I do? Love is a one-way street, I've already surrendered.
+But even that selfish Mitsuki is cute and I like her, you know. I know it's crazy, but I've fallen for her, so what can I do? Love is a one-way street, I've already surrendered.
 
 "...For Nana, haven't I always been number one?"
 
@@ -133,13 +133,13 @@ But even that selfish Mizuki is cute and I like her, you know. I know it's crazy
 
 "Why not?"
 
-"...Because I like Mizuki, she's number one. If I liked someone more than Mizuki, it'd be normal for that person to become number one, wouldn't it?"
+"...Because I like Mitsuki, she's number one. If I liked someone more than Mitsuki, it'd be normal for that person to become number one, wouldn't it?"
 
 "So if your feelings cool, I'll become completely irrelevant? I can never be special to you? ...If that's the case, I wish you'd never liked me romantically in the first place."
 
 Harsh. A blade pierces my heart without mercy.
 
-I didn't want to tell you how I felt either. But it was you who dragged me out of the closet, Mizuki.\
+I didn't want to tell you how I felt either. But it was you who dragged me out of the closet, Mitsuki.\
 If you hadn't exposed my secret, I intended to stay silent forever.
 
 The blade stuck inside hurts too much to pull out. If I tried, I'd bleed to death, so for now, I'll just have to cherish this pain.
@@ -148,10 +148,10 @@ The blade stuck inside hurts too much to pull out. If I tried, I'd bleed to deat
 
 "I really do love Nana. She's the only one who matters to me."
 
-Mizuki.\
+Mitsuki.\
 Thank you for the sharpest, cruelest "I love you" in the world.
 
-"...I love you too. I love you, Mizuki."
+"...I love you too. I love you, Mitsuki."
 
 "I want to be with Nana forever. I don't want to be apart."
 
@@ -166,7 +166,7 @@ Thank you for the sharpest, cruelest "I love you" in the world.
 "Yes, that's how it is."
 
 Breathing out white vapour, I gaze at the sparkling illuminations.\
-Returning to this town and seeing these winter lights, no matter how many years pass, I'll always remember Mizuki.
+Returning to this town and seeing these winter lights, no matter how many years pass, I'll always remember Mitsuki.
 
 But someday, surely, the day will come when I forget.\
 This pain too. This love too.

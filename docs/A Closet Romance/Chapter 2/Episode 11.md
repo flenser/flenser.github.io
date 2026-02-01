@@ -6,13 +6,13 @@ nav_order: 50
 
 Episode 11: Hmm, I'll head over there now
 
-Ever since summer holidays began, days passed without me going to Mizuki's house.
+Ever since summer holidays began, days passed without me going to Mitsuki's house.
 
-Mizuki, who hadn't been getting proper sleep until now due to school during the day and looking after Tasuku at night, seemed to have finally secured some time for herself now that school was out and Tasuku was at nursery.
+Mitsuki, who hadn't been getting proper sleep until now due to school during the day and looking after Tasuku at night, seemed to have finally secured some time for herself now that school was out and Tasuku was at nursery.
 
 　Right at the start of the holidays, she sent a photo of Tasuku wearing a T-shirt with a summery watermelon illustration, along with a message saying, "I'm so happy I can sleep soundly every night again after so long." Since then, there's been no word.
 
-　It was a happy thing, but this meant I couldn't see Mizuki even if I wanted to.
+　It was a happy thing, but this meant I couldn't see Mitsuki even if I wanted to.
 
 The feeling that she should be left alone to sleep now she finally had free time alternated with an overwhelming urge to see her and talk to her, washing over me like waves.\
 While I agonised over this, my final high school summer holiday was slipping away.
@@ -25,10 +25,10 @@ As a student preparing for exams, this studious lifestyle is probably the right 
 I want to go to the summer festival with Mitsuki.
 
 　The biggest and most famous summer festival in our town, held every year at the start of August. Over ten thousand fireworks light up the sky – this town's major summer event.\
-For my last high school memory, if possible, I want to watch those fireworks with Mizuki.\
+For my last high school memory, if possible, I want to watch those fireworks with Mitsuki.\
 But I can't find an excuse to ask her.
 
-Up until now, I'd always gone to see Mizuki under the pretence of visiting Tasuku, so I never had a way to ask her out on her own without feeling awkward.
+Up until now, I'd always gone to see Mitsuki under the pretence of visiting Tasuku, so I never had a way to ask her out on her own without feeling awkward.
 
 　Technically, I'm her friend, so I shouldn't need a reason to ask her out. Yet, somewhere deep down, I feel guilty, and I just can't take that step.
 
@@ -38,13 +38,13 @@ From the moment we met until now, she's always been my romantic interest. Nothin
 
 　Oh dear, what am I to do...
 
-I have no intention of confessing to Mizuki for the rest of my life, but surely it wouldn't be too much to hope for a little bit of happiness?
+I have no intention of confessing to Mitsuki for the rest of my life, but surely it wouldn't be too much to hope for a little bit of happiness?
 
-To this devotion of mine, please, God, Mizuki-sama, grant me a little mercy.
+To this devotion of mine, please, God, Mitsuki-sama, grant me a little mercy.
 
-Even so, if Mizuki's mother was working on the day of the summer festival, she wouldn't be able to go out at night anyway, what with Tasuku being there...
+Even so, if Mitsuki's mother was working on the day of the summer festival, she wouldn't be able to go out at night anyway, what with Tasuku being there...
 
-　After mulling it over, I gave up on messaging Mizuki and flung my phone aside.
+　After mulling it over, I gave up on messaging Mitsuki and flung my phone aside.
 
 "It's just impossible... I can't ask her out..."
 
@@ -115,12 +115,12 @@ The phone fell with force beside my ear and was still vibrating. I hurriedly pic
 
 'Well, there's this problem I need help with...'
 
-"A problem? Are you studying, Mizuki?"
+"A problem? Are you studying, Mitsuki?"
 
 'Yeah, lately—I've been able to nap, so I'm feeling good. I'm trying to catch up.'
 
 Her bright voice made my chest feel light and airy.\
-So... Mizuki really does want to go to university. She just doesn't have the time right now.
+So... Mitsuki really does want to go to university. She just doesn't have the time right now.
 
 "Right, alright. What's the problem?"
 
@@ -155,10 +155,10 @@ Out of habit, I almost shoved my foot into my loafers, then pulled it back.\
 Opening the shoe cupboard door, I hooked my index and middle fingers onto the heel of a white trainer. Hastily slipping on the trainers I'd tossed by the front door, I burst out of the house.\
 The stinging summer sunlight made me groan.
 
-Truthfully, I wanted to run straight to Mizuki right now, but I hated the idea of getting drenched in sweat.\
-　It'd be rather embarrassing if she noticed I'd rushed over. I always want to appear composed in front of Mizuki.
+Truthfully, I wanted to run straight to Mitsuki right now, but I hated the idea of getting drenched in sweat.\
+　It'd be rather embarrassing if she noticed I'd rushed over. I always want to appear composed in front of Mitsuki.
 
 Oh dear, I wish I could get my driving licence sooner.\
-Why must I be an early-born? If I had a car, I could dash over to Mizuki much, much faster.
+Why must I be an early-born? If I had a car, I could dash over to Mitsuki much, much faster.
 
 Such thoughts... occupied my mind as I walked at my absolute maximum speed along the mere fifteen-minute walk.

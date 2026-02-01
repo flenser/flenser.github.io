@@ -10,47 +10,47 @@ As I was putting on my trainers in the hallway, Mum called out, "Nana!" and I tu
 
 "Hey, are you really sure it's alright not to call Kase-san's parents?"
 
-"Yeah, it's fine. Mizuki said so."
+"Yeah, it's fine. Mitsuki said so."
 
 "Well then, at least take this with you. Give my regards to Kase-san, won't you?"
 
 "Right. Right then, off I go!"
 
-With a Boston bag packed with clothes in one hand and a paper bag containing a Baumkuchen gift in the other, I dashed out the front door and hurried towards Mizuki's house.
+With a Boston bag packed with clothes in one hand and a paper bag containing a Baumkuchen gift in the other, I dashed out the front door and hurried towards Mitsuki's house.
 
 By late September, evenings had grown chilly, and on overcast days like today, the air touching my bare skin made autumn feel ever closer.
 
 The weather was unfortunate, but my spirits were high.\
-　I was nervous too. But I was overjoyed at the prospect of spending the night with Mizuki.
+　I was nervous too. But I was overjoyed at the prospect of spending the night with Mitsuki.
 
 I did feel a twinge of guilt.\
-Mizuki saw me purely as a friend; she couldn't possibly suspect I harboured romantic feelings for her.
+Mitsuki saw me purely as a friend; she couldn't possibly suspect I harboured romantic feelings for her.
 
 If someone said I was exploiting the lack of caution between women, they'd be right. Things I could never have done as a man came easily to me as a woman.
 
 　Even if we can't be lovers, it's a perk of having secured this best-friend position. Though that makes the ache all the more intense...
 
-After walking the fifteen-minute journey, I pressed the intercom at Mizuki's apartment, a place I'd grown thoroughly familiar with.
+After walking the fifteen-minute journey, I pressed the intercom at Mitsuki's apartment, a place I'd grown thoroughly familiar with.
 
 "Hello?"
 
-With a light voice, Mizuki opened the door, happily holding Tasuku in one arm.
+With a light voice, Mitsuki opened the door, happily holding Tasuku in one arm.
 
 "Nana, come in. Thank you for coming."
 
-Smiling back at Mizuki's innocent grin, I stepped over the threshold.
+Smiling back at Mitsuki's innocent grin, I stepped over the threshold.
 
 "Excuse me."
 
-Mizuki's loungewear remained unchanged: a white T-shirt and blue shorts. Even though she was a third-year high school student, this outfit, reminiscent of a middle schooler, accentuated her childlike face, making her utterly adorable.
+Mitsuki's loungewear remained unchanged: a white T-shirt and blue shorts. Even though she was a third-year high school student, this outfit, reminiscent of a middle schooler, accentuated her childlike face, making her utterly adorable.
 
-"Mizuki, this is from Mum. She said it's a Baumkuchen. She asked me to give her regards to your mum."
+"Mitsuki, this is from Mum. She said it's a Baumkuchen. She asked me to give her regards to your mum."
 
-As soon as we entered the living room, I handed over the gift Mum had given me. Mizuki looked surprised.
+As soon as we entered the living room, I handed over the gift Mum had given me. Mitsuki looked surprised.
 
 "Eh? I'm the one who invited you over, so I feel a bit bad about this..."
 
-"No, don't worry about it. More importantly, have you eaten dinner yet, Mizuki?"
+"No, don't worry about it. More importantly, have you eaten dinner yet, Mitsuki?"
 
 "Not yet. I've just finished feeding Tasuku his baby food."
 
@@ -66,30 +66,30 @@ When he smiled, his two bottom teeth showed, making him look like a little squir
 
 "Come on, Tasuku, let's play together."
 
-The playpen, set up to keep the increasingly mobile Tasuku safe, occupied nearly half of Mizuki's living room.\
+The playpen, set up to keep the increasingly mobile Tasuku safe, occupied nearly half of Mitsuki's living room.\
 　When she lived with just her mother, they apparently stayed in a slightly smaller flat. Well, I see. Only now do I understand why moving to a larger flat was necessary.\
 I climbed into the playpen with him, sat cross-legged, placed Tasuku between us, and placed a toy in his little hand.\
 Every time Tasuku happily waved the toy about, it made a tinkling sound, a sound so distinctly baby-like.
 
 "Right then, I'll take you up on that and tuck in straight away."
 
-Mizuki took the dinner her mother had prepared in advance from the fridge and, still standing in the kitchen, began eating without even warming it up.
+Mitsuki took the dinner her mother had prepared in advance from the fridge and, still standing in the kitchen, began eating without even warming it up.
 
-"Mizuki, why not sit down and eat properly?"
+"Mitsuki, why not sit down and eat properly?"
 
 "Ah."
 
-She was shovelling rice into her mouth with the gusto of an ochazuke advert, which took me aback. It was a rather boisterous eating style, quite at odds with Mizuki's usual neat and delicate image.
+She was shovelling rice into her mouth with the gusto of an ochazuke advert, which took me aback. It was a rather boisterous eating style, quite at odds with Mitsuki's usual neat and delicate image.
 
 "Ah, ahaha, sorry, that's rather ill-mannered... It's just, eating quickly has become a habit..."
 
-　Mizuki blushed bright red, looking down shyly.
+　Mitsuki blushed bright red, looking down shyly.
 
 "No, no. It's not that. I just thought, since I'm here, why not take your time?"
 
 "Oh... right. That's true. It's nice having two people, isn't it?"
 
-Mizuki said, savouring the words.
+Mitsuki said, savouring the words.
 
 When you're always raising a child alone, certain habits seem to form unconsciously.
 
@@ -99,27 +99,27 @@ It wasn't that I particularly liked children; I often pictured a future spent al
 But now, I find myself thinking just a little that I'd like to experience raising a child like this too, if possible.\
 Marrying the girl I love, and someday having a child together. Wouldn't that be happiness... surely.
 
-"...When I was a baby, I apparently cried terribly at night too. What about you, Mizuki?"
+"...When I was a baby, I apparently cried terribly at night too. What about you, Mitsuki?"
 
 "She said I hardly cried at all compared to Tasuku. That I was low-maintenance."
 
-It seems that hasn't changed. Mizuki is a good girl.\
-If I'd been in Mizuki's situation, I'd definitely have gone off the rails and probably abandoned looking after Tasuku.\
+It seems that hasn't changed. Mitsuki is a good girl.\
+If I'd been in Mitsuki's situation, I'd definitely have gone off the rails and probably abandoned looking after Tasuku.\
 I wouldn't have gone home, I'd have drifted from friend to friend, and I'd undoubtedly have ended up living a hopeless life.
 
-　Why doesn't Mizuki blame her mum or dad? Or does she just keep it to herself, even though she probably wants to vent sometimes?
+　Why doesn't Mitsuki blame her mum or dad? Or does she just keep it to herself, even though she probably wants to vent sometimes?
 
 "...Why don't we remember things from when we were babies, I wonder?"
 
-After finishing her meal, Mizuki walked over, sat down next to me hugging her knees, and murmured quietly.
+After finishing her meal, Mitsuki walked over, sat down next to me hugging her knees, and murmured quietly.
 
 "...Wouldn't it be scary if you did remember?"
 
 "I wish he did remember. I mean, Tasuku's a boy, so his rebellious phase is bound to be rough. Just thinking about him hurling abuse at me once he hits secondary school... Ugh, depressing. It'd be awful if he didn't remember a single thing about how much I cherished him and looked after him..."
 
-"Mizuki, are you worrying about that far ahead?"
+"Mitsuki, are you worrying about that far ahead?"
 
-Mizuki pressed her cheek against her knees, wiggling her toes and pouting her lips.
+Mitsuki pressed her cheek against her knees, wiggling her toes and pouting her lips.
 
 "What if Tasuku says 'Shut up, you old hag!' or something... Ugh, I hate the thought..."
 
@@ -133,16 +133,16 @@ She didn't want to think about the future. Forcing the words out, she tried not 
 
 "Really? But I'd love to be at Nana's wedding. I'd want to give the best friend's speech. So until that day, I'll stubbornly hold onto being Nana's best friend, no matter what."
 
-To Mizuki, who said this with a big grin, I forced my own lips into a smile and returned it.
+To Mitsuki, who said this with a big grin, I forced my own lips into a smile and returned it.
 
-"Even if we're apart, Mizuki, you'll always be my best friend."
+"Even if we're apart, Mitsuki, you'll always be my best friend."
 
-If only I could say that to her, Mizuki would surely be delighted.\
+If only I could say that to her, Mitsuki would surely be delighted.\
 But that one simple phrase—I simply cannot bring myself to say it now.
 
 ＊＊＊
 
-While Mizuki was doing the housework, I played with Tasuku, and before I knew it, it was past seven o'clock.
+While Mitsuki was doing the housework, I played with Tasuku, and before I knew it, it was past seven o'clock.
 
 "It's nearly time to get Tasuku into the bath."
 
@@ -152,12 +152,12 @@ While Mizuki was doing the housework, I played with Tasuku, and before I knew it
 
 "Oh, I see."
 
-Mizuki efficiently pulled out bath towels and pyjamas from Tasuku's small chest of drawers.
+Mitsuki efficiently pulled out bath towels and pyjamas from Tasuku's small chest of drawers.
 
 "Is there anything I can help with?"
 
 I was too scared to actually bathe him myself, but if there was anything else I could assist with, I wanted to lend a hand.\
-　As she said this, Mizuki turned around with a bright smile.
+　As she said this, Mitsuki turned around with a bright smile.
 
 "Really? Thank you! Bathing him alone is quite a chore. Right then, I'll bathe Tasuku, so please come when I call. After you've dried him off, apply moisturiser all over his body... and put these pyjamas on him! Nana, are you alright? Is it alright to ask you?"
 
@@ -167,13 +167,13 @@ I mentally made a note so I wouldn't forget.
 
 "Right then, Tasuku, shall we go have a bath with big sister?"
 
-Mizuki smiled happily, slipped her arms under Tasuku's armpits, and lifted him effortlessly.
+Mitsuki smiled happily, slipped her arms under Tasuku's armpits, and lifted him effortlessly.
 
 "Nana, I'll leave it to you."
 
 "Yeah, off you go."
 
-　Once Mizuki and Tasuku disappeared into the bathroom, I was left alone in the quiet living room. I perched on the sofa and took a moment to catch my breath.
+　Once Mitsuki and Tasuku disappeared into the bathroom, I was left alone in the quiet living room. I perched on the sofa and took a moment to catch my breath.
 
 Having a child in daily life leaves no time to catch your breath. Time just vanishes in an instant.
 
@@ -182,9 +182,9 @@ I seem to recall him sleeping much more when we first met.
 
 　At this rate, I doubt I'll have much time to myself at all.
 
-As long as Mizuki's mother keeps working like this, even when Mizuki's at university, she'll still be tied to looking after Tasuku. Mizuki's stuck here, unable to move.
+As long as Mitsuki's mother keeps working like this, even when Mitsuki's at university, she'll still be tied to looking after Tasuku. Mitsuki's stuck here, unable to move.
 
-Compared to Mizuki, I think I grew up in a pretty comfortable environment.\
+Compared to Mitsuki, I think I grew up in a pretty comfortable environment.\
 If only my own sexual orientation hadn't pointed in a different direction, I probably could have had a fairly easy life.\
 　Had I liked men like the majority, I'd surely have found a partner more easily, just like the other girls, and enjoyed a sparkling youth.
 
@@ -196,7 +196,7 @@ In fact, the sound of the shower from the bathroom is utterly unsettling me.
 
 I don't want to imagine it, but I do.
 
-Mizuki naked.
+Mitsuki naked.
 
 　I loathe my own thought process, ravenous with lust like some middle school boy.\
 Ugh, really... I didn't come to this house today with any ulterior motives...
@@ -206,11 +206,11 @@ But seriously, how could you not get all flustered when the girl you like is bat
 It's beyond my control! I'm absolutely not at fault!!!
 
 I should have foreseen this situation, yet I overestimated myself.\
-　Just imagining Mizuki after her bath makes me tremble with nerves.
+　Just imagining Mitsuki after her bath makes me tremble with nerves.
 
 While I was agonising like this, the call melody sounded.\
 Ah, Tasuku's bath is finished. Steeling myself, I stand up.
 
 "Phew... Keep calm, keep calm..."
 
-Holding the bath towel Mizuki had prepared for me earlier, I headed for the changing room as she'd instructed.
+Holding the bath towel Mitsuki had prepared for me earlier, I headed for the changing room as she'd instructed.

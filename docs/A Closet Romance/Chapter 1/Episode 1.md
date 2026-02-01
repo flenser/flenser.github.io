@@ -21,11 +21,11 @@ Maki grabbed my shoulder and shook me excitedly.\
 I put on an expression of indifference and replied haughtily, "Well, yeah."
 
 　I glance around the corridor.\
-The crucial Kase Mizuki hasn't come to see the freshly posted rankings yet; it seems she still doesn't know she's been beaten by me.
+The crucial Kase Mitsuki hasn't come to see the freshly posted rankings yet; it seems she still doesn't know she's been beaten by me.
 
-Since we started school, Kase Mizuki had always monopolised the top spot in our year. Not once had she ever dropped in the rankings.
+Since we started school, Kase Mitsuki had always monopolised the top spot in our year. Not once had she ever dropped in the rankings.
 
-Even the 'New Student Representative Speech' at the entrance ceremony was given by Kase Mizuki, who entered as valedictorian.\
+Even the 'New Student Representative Speech' at the entrance ceremony was given by Kase Mitsuki, who entered as valedictorian.\
 　Therefore, there wasn't a single person in our year who didn't know her name.
 
 She was someone I'd admired endlessly since my first year.
@@ -59,17 +59,17 @@ Maybe Maki learned her lesson from the long lecture, because she's given up on f
 
 "Sakata's not idle; it's his job."
 
-More importantly, where on earth is Kase Mizuki?
+More importantly, where on earth is Kase Mitsuki?
 
 What will her reaction be to finally being knocked off the top spot in our year – a position she's held since we started school, only to be beaten for the first time in our third year?
 
 I couldn't care less about Sakata. That was my primary concern.
 
-Returning to the classroom, Kase Mizuki sat by the window, her cheek propped up in her hand, eyes closed, quietly asleep.
+Returning to the classroom, Kase Mitsuki sat by the window, her cheek propped up in her hand, eyes closed, quietly asleep.
 The breeze blowing in through the window gently swayed her long black hair.
 
 Hmm, feels like indifference.\
-I tried pretty hard... but competing over test rankings clearly doesn't capture Kase Mizuki's interest. I felt rather deflated.
+I tried pretty hard... but competing over test rankings clearly doesn't capture Kase Mitsuki's interest. I felt rather deflated.
 
 After glancing sideways at her, I pulled out my chair a little way from hers. Maki, who seemed to have noticed me watching her, narrowed her eyes and leaned closer to me.
 
@@ -97,13 +97,13 @@ Where on earth did this ridiculous rumour about her having a child even come fro
 
 Maki pouted her lips in boredom.
 
-Well, I can understand wanting some gossip about Kase Mizuki.
+Well, I can understand wanting some gossip about Kase Mitsuki.
 
 A striking beauty.\
 　A solitary girl who doesn't associate with anyone.\
 If there were any sensational gossip, it would surely spread like wildfire.
 
-Kase Mizuki stands out in the classroom.
+Kase Mitsuki stands out in the classroom.
 
 Like an oil painting of Venus set against a background of ballpoint pen doodles, her very presence seems utterly mismatched to this classroom.
 
@@ -112,7 +112,7 @@ She doesn't have any particularly close friends, but she isn't bullied either. S
 　She doesn't feel like a lone wolf either. She seems normal when you talk to her. But she never opens up to anyone.
 
 I thought if I knocked her off the top spot, she might take a little interest in me.\
-But my hopes were dashed; Kase Mizuki seems utterly unconcerned about her ranking.\
+But my hopes were dashed; Kase Mitsuki seems utterly unconcerned about her ranking.\
 She doesn't even bother checking the leaderboard, just idly doodling on her desk.
 
 Lately, it's always like this. She sleeps through every break between lessons.\
@@ -157,6 +157,6 @@ Because she avoids interacting with anyone, people start spreading unfounded rum
 
 The bell rang, and with a snap, she opened her heavy eyelids.
 
-As always, Kase Mizuki looked perpetually sleepy lately—utterly exhausted.
+As always, Kase Mitsuki looked perpetually sleepy lately—utterly exhausted.
 
 Her skin was pale and bloodless, and she looked as if she might collapse any moment.

@@ -3,11 +3,11 @@ parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
 title: Episode 6
 ---
 
-Episode 6: It's Not Bad, Mizuki's Brilliant
+Episode 6: It's Not Bad, Mitsuki's Brilliant
 
-"Hey, Mizuki. Where should I put my things?"
+"Hey, Mitsuki. Where should I put my things?"
 
-After arriving home and entering the living room, I asked where to put the tote bag and the baby clothes we'd bought. Mizuki turned around and looked up at my face intently.
+After arriving home and entering the living room, I asked where to put the tote bag and the baby clothes we'd bought. Mitsuki turned around and looked up at my face intently.
 
 "...Nana, you know... I've been thinking this for ages, but you're a proper handsome girl, aren't you?"
 
@@ -27,7 +27,7 @@ I laughed awkwardly, trying to cover it up.
 　Blimey. I'd totally pulled off a proper boyfriend move.\
 But isn't it normal to want to lend a hand when someone you like is struggling?
 
-Mizuki's just so adorable, I can't help wanting to look after her in all sorts of ways.
+Mitsuki's just so adorable, I can't help wanting to look after her in all sorts of ways.
 
 But maybe I went a bit too far.\
 I might have crossed the line of what's acceptable for a friend to do.
@@ -40,7 +40,7 @@ I've never had a girlfriend, but if I did, maybe it would feel like this... or s
 Without saying anything more, she gave a faint smile with just her lips and placed her school bag on the living room floor.\
 Then she lifted Tasuku out of the baby carrier and placed him in the cot.\
 　A rice ball patterned romper today, how cute.\
-Mizuki pulled Tasuku's socks off both feet with a pop, revealing his tiny feet.
+Mitsuki pulled Tasuku's socks off both feet with a pop, revealing his tiny feet.
 
 Tasuku, lying on his back, gazed at the mobile attached to the cot.\
 Then, after freezing for a moment, perhaps realising the situation, he suddenly scrunched up his face and started whimpering softly.
@@ -57,7 +57,7 @@ I found myself oddly conscious of the delicate lines of Mitsuki's body, now clad
 
 "Thank you, I'll make the milk."
 
-Following Mizuki's lead, I too took off my blazer, tossed it onto the sofa, and rolled up my blouse sleeves.\
+Following Mitsuki's lead, I too took off my blazer, tossed it onto the sofa, and rolled up my blouse sleeves.\
 While I was doing this, Tasuku's face turned bright red and he started crying as if on fire, so I steeled myself and turned back to him.
 
 A baby's cry really hits your eardrums.\
@@ -86,30 +86,30 @@ We humans reign at the top of the food chain with no natural predators, so cry a
 Tasuku, you're doing brilliantly at asserting your hunger.\
 It's proof you're doing your baby job properly.
 
-　Distracted by such trivial thoughts, I heard Mizuki sigh deeply from the kitchen.
+　Distracted by such trivial thoughts, I heard Mitsuki sigh deeply from the kitchen.
 
 "...It's times like this, when he cries because he's hungry, that I really wish my milk would come in. Formula is supposed to be filling, but it takes a bit to prepare... Liquid formula is far too expensive for everyday use."
 
-Mizuki said this with a weary look, staring at the kettle's temperature display.\
+Mitsuki said this with a weary look, staring at the kettle's temperature display.\
 　True, if I could produce milk, I might be able to quiet Tasuku immediately...
 
 "Listen, what if you tried letting him suckle? Might it come out?"
 
 I knew full well that breast milk only comes after pregnancy and childbirth.\
-But seeing Mizuki's expression cloud over more and more as Tasuku's crying persisted, I felt compelled to lighten the mood with a joke.
+But seeing Mitsuki's expression cloud over more and more as Tasuku's crying persisted, I felt compelled to lighten the mood with a joke.
 
 "It wouldn't. I've tried."
 
 "Eh, really!?"
 
-I couldn't help but stare at Mizuki's face.\
-Mizuki smiled wryly as she poured hot water into the bottle.
+I couldn't help but stare at Mitsuki's face.\
+Mitsuki smiled wryly as she poured hot water into the bottle.
 
 "I'm a bit more used to it now, but at first he just wouldn't stop crying at all... I'd given him milk, changed his nappy, but I had no idea why he was crying. I wondered if maybe he missed his mummy's breast... I must have been half-mad from lack of sleep. Of course it wouldn't come out, and he sucked so hard it hurt terribly. It was awful. ...I feel awful for Tasuku too. Sucking on his big sister's breast... Tasuku didn't want that either, did he?"
 
 Holding Tasuku, who wouldn't stop crying in the dead of night, she must have felt utterly helpless.
 
-Just imagining Mizuki, desperate enough to grasp at straws, pulling up her nightclothes and letting her little brother take her nipple into his mouth, made me feel so terribly sorry for her.
+Just imagining Mitsuki, desperate enough to grasp at straws, pulling up her nightclothes and letting her little brother take her nipple into his mouth, made me feel so terribly sorry for her.
 
 　Tasuku, your sister is utterly exhausted.\
 Please, just let her sleep a little longer.
@@ -118,35 +118,35 @@ As I silently urged this in my mind, Tasuku, tears glistening, glared at me with
 
 It felt like he was scolding me: Don't give orders when you're the one using me...
 
-　Mizuki lifted Tasuku from my arms, sat down, and brought the bottle to his mouth.
+　Mitsuki lifted Tasuku from my arms, sat down, and brought the bottle to his mouth.
 
 Noticing the milk, Tasuku opened his mouth desperately, like a chick waiting for its mother to feed it – utterly adorable.
 
 Once he got the milk he wanted, Tasuku clung to the bottle, tears still glistening at the corners of his eyes, and settled down quietly.
 
-"...You're quite the expert. You'd make a good mum, Mizuki."
+"...You're quite the expert. You'd make a good mum, Mitsuki."
 
 "I... don't want to be a mum. I don't want children. Tasuku is incredibly cute, but I never want to go through this ordeal again."
 
 I realised my intended compliment had backfired and flinched.
 
-Hmm, with Mizuki right now, you never know where the landmines are...
+Hmm, with Mitsuki right now, you never know where the landmines are...
 
 I regret having spoken without consideration.\
-The dark circles beneath her eyes, likely caused by lack of sleep, speak volumes about how gruelling Mizuki's night shifts are.
+The dark circles beneath her eyes, likely caused by lack of sleep, speak volumes about how gruelling Mitsuki's night shifts are.
 
-I'd sensed it from the atmosphere at home, but it seems Mizuki's father is absent.\
+I'd sensed it from the atmosphere at home, but it seems Mitsuki's father is absent.\
 There were only women's shoes at the entrance, and not a single item of men's clothing could be seen among the laundry hanging out to dry.
 
 Hey, Tasuku, what happened to your father?\
 Did he abandon you right after you were born?
 
-There was no way I could ask Mizuki, so I silently questioned Tasuku instead. But, as expected, no answer came.
+There was no way I could ask Mitsuki, so I silently questioned Tasuku instead. But, as expected, no answer came.
 
 "...My mum had me when she was sixteen and raised me. So it's wrong for me, an eighteen-year-old adult, to complain, isn't it?"
 
 That's not true.\
-Mizuki's mother chose to have her, but Mizuki didn't choose to raise Tasuku.
+Mitsuki's mother chose to have her, but Mitsuki didn't choose to raise Tasuku.
 
 I think eighteen is still an age where it's okay to be a child. Or rather, I want to think that...
 
@@ -163,14 +163,14 @@ I knew how much Mitsuki cherished Tasuku. The affection came through loud and cl
 
 "Eh? How could that be? I didn't give birth, you know."
 
-"Then maybe it's that postnatal neurosis thing? Either way, I think you're doing brilliantly, Mizuki. It's not awful at all. You're amazing."
+"Then maybe it's that postnatal neurosis thing? Either way, I think you're doing brilliantly, Mitsuki. It's not awful at all. You're amazing."
 
 Her eyes, trembling as if ready to burst into tears, looked at me.\
 I desperately wanted to hold that fragile body of hers, as if my life depended on it.
 
 But I couldn't.
 
-So instead, I simply placed my hand over Mizuki's, the one cradling Tasuku.
+So instead, I simply placed my hand over Mitsuki's, the one cradling Tasuku.
 
 "...I can really feel how hard you're trying. I've never had kids myself, so I might not truly understand how tough it is for you... But I think it's perfectly normal to feel that way. You're a brilliant big sister."
 
@@ -181,15 +181,15 @@ A tear rolled from her large eyes, trickled down her cheek, and plopped onto Tas
 "Yes."
 
 I nodded without hesitation.\
-Then, even as she wept, Mizuki smiled faintly, as if suddenly relieved.
+Then, even as she wept, Mitsuki smiled faintly, as if suddenly relieved.
 
 "...Nana, thank you. Somehow... it makes me really happy."
 
 Her crying face was adorable too – that was unfair.\
-　Fighting the urge to hug her tightly, I gently let go. Mizuki rubbed her eyelids roughly.
+　Fighting the urge to hug her tightly, I gently let go. Mitsuki rubbed her eyelids roughly.
 
 "...Don't rub them, you'll make them swell."
 
 She gently wiped away the overflowing tears with her thumb.
 
-Peering into Mizuki's eyes, brimming with tears—the setting sun streaming through the window reflected in them, making them sparkle as if ablaze.
+Peering into Mitsuki's eyes, brimming with tears—the setting sun streaming through the window reflected in them, making them sparkle as if ablaze.

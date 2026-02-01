@@ -12,29 +12,29 @@ Episode 9: Wondering Whether to Go to University
 
 "Mm..."
 
-Rubbing her sleepy eyes, Mizuki's bedhead was adorable. Still holding Tasuku in one arm, I unconsciously reached out to smooth her fringe.
+Rubbing her sleepy eyes, Mitsuki's bedhead was adorable. Still holding Tasuku in one arm, I unconsciously reached out to smooth her fringe.
 
-　Oh, I've done it, I thought, but Mizuki didn't seem to mind, just blinking a few times.
+　Oh, I've done it, I thought, but Mitsuki didn't seem to mind, just blinking a few times.
 
-Mizuki is adorable.\
+Mitsuki is adorable.\
 Her round, cat-like eyes are utterly charming. Those pale pink lips... I want to touch them with mine.\
 That slender body... how happy I'd feel if I could pull her close.
 
 　I know it's absolutely impossible, but precisely because it is impossible, my imagination runs wild, relentlessly crushing my chest.
 
-Hugging as friends is perfectly normal, and I do it routinely with Maki. But Mizuki is different from Maki.\
-Just because we're both girls and no one would notice, touching Mizuki while hiding ulterior motives feels wrong. It's absolutely not fair.
+Hugging as friends is perfectly normal, and I do it routinely with Maki. But Mitsuki is different from Maki.\
+Just because we're both girls and no one would notice, touching Mitsuki while hiding ulterior motives feels wrong. It's absolutely not fair.
 
 　A message from Mum had come in: "What time will you be home?" I replied, "About fifteen minutes."
 
 "Right then, I'll be back."
 
-I slipped my feet into the loafers I'd lined up beside Mizuki's trainers and turned around. She was staring at me with an unusually serious expression, so I tilted my head.
+I slipped my feet into the loafers I'd lined up beside Mitsuki's trainers and turned around. She was staring at me with an unusually serious expression, so I tilted my head.
 
 "...What's up? Did you not get enough sleep?"
 
-For Mizuki, a long night was about to begin.\
-Maybe she wanted a bit more sleep. I should have checked with Mizuki before messaging her mum, I thought, but Mizuki shook her head from side to side.
+For Mitsuki, a long night was about to begin.\
+Maybe she wanted a bit more sleep. I should have checked with Mitsuki before messaging her mum, I thought, but Mitsuki shook her head from side to side.
 
 "No. Nana, listen, is it alright if I ask? Which university are you planning to apply to?"
 
@@ -50,12 +50,12 @@ That's what I thought, but I couldn't bring myself to lie to those eyes staring 
 
 "I see... Tokyo..."
 
-Mizuki's expression clouded over instantly. I could see a shadow fall deep within her eyes.
+Mitsuki's expression clouded over instantly. I could see a shadow fall deep within her eyes.
 
-"...Where are you applying, Mizuki?"
+"...Where are you applying, Mitsuki?"
 
 Until now, I'd somehow found it awkward to ask. But not asking now, given the flow of the conversation, felt unnatural.\
-Thinking that, I asked. Mizuki averted her gaze from me and stared at her feet.
+Thinking that, I asked. Mitsuki averted her gaze from me and stared at her feet.
 
 "I... I'm not sure if I'll go on to university."
 
@@ -65,7 +65,7 @@ Eh? The word slipped out before I could stop it.
 
 With her grades, she could probably get into the most prestigious university in the prefecture if she just carried on?
 
-Still holding Tasuku, Mizuki gave a faint, fragile smile.\
+Still holding Tasuku, Mitsuki gave a faint, fragile smile.\
 I couldn't say anything, just pressed my lips together.
 
 "...Sorry for asking something weird and trying to stop you. Take care getting home."
@@ -73,7 +73,7 @@ I couldn't say anything, just pressed my lips together.
 ＊＊＊
 
 　The summer night was still bright.\
-Walking slowly home through the muggy, humid air, I thought about Mizuki.
+Walking slowly home through the muggy, humid air, I thought about Mitsuki.
 
 If she’d given up on further education, it was only natural she’d lost the will to study.
 
@@ -90,9 +90,9 @@ But surely maintaining this 'normality' is actually incredibly difficult.
 
 Our daily lives are balanced on scales that tip easily, whether something is added or taken away.
 
-　With such a difference in our backgrounds, it feels like I'm living in a completely different world from Mizuki.
+　With such a difference in our backgrounds, it feels like I'm living in a completely different world from Mitsuki.
 
-I wonder how this world appears through Mizuki's eyes.
+I wonder how this world appears through Mitsuki's eyes.
 
 "...I'm home."
 
@@ -126,9 +126,9 @@ Did babies really differ this much at just one month old?
 I kept quiet about how I'd recently had regular chances to hold babies.\
 　I deliberately feigned awkwardness and swiftly returned Taku-kun to Hana-chan's arms.
 
-If Mum found out about Mizuki and Tasuku, I doubt she'd be too pleased.
+If Mum found out about Mitsuki and Tasuku, I doubt she'd be too pleased.
 
-If she heard about a high schooler looking after a baby all night alone... Mum would certainly not view Mizuki's family favourably. That's why I find it rather difficult to tell her.
+If she heard about a high schooler looking after a baby all night alone... Mum would certainly not view Mitsuki's family favourably. That's why I find it rather difficult to tell her.
 
 ＊＊＊
 
@@ -155,7 +155,7 @@ Or will it just become a sad memory of sacrificing her youth and future?
 
 After all, she wasn't her own child. Forced into the adult headcount, Mitsuki had no choice in the matter.
 
-　But still, at least when she looks back on the past like that, whether the memories are good or bad, I want Mizuki to never forget that I was by her side. That's why I'll keep going to her house, and I want to see Tasuku grow up until graduation.
+　But still, at least when she looks back on the past like that, whether the memories are good or bad, I want Mitsuki to never forget that I was by her side. That's why I'll keep going to her house, and I want to see Tasuku grow up until graduation.
 
 　Finishing dinner, my habit is to bathe first, and today was no exception—I headed straight for the changing room.
 
@@ -177,7 +177,7 @@ If that girl's boyfriend were there, his pride would be utterly crushed and he'd
 　It's not that I'm not interested in such things. Quite the opposite, actually.\
 But when I imagine myself actually doing those things with someone, I don't picture myself being pinned down by a man. I picture myself pinning down a woman.
 
-And beneath my arms, there's always Mizuki.
+And beneath my arms, there's always Mitsuki.
 
 I've wanted to take her clothes off more than once or twice.\
 I want to know the feel of her fine, white skin.\
@@ -197,6 +197,6 @@ There's no way I could know the reason. Even dissecting this body wouldn't revea
 
 There's only one thing I know for certain.
 
-I like Mizuki.
+I like Mitsuki.
 
 This feeling alone—well, there's simply no doubting it.
