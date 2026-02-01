@@ -8,11 +8,11 @@ Episode 13: You've Got Quite the Attitude Now, Haven't You?
 
 The evening of the fifth of August, the day we'd promised to go to the Tanabata festival together.
 
-When I went to pick her up at her house, Mizuki greeted me in a summery aqua blue dress. Just as I'd imagined, she stood out more than anyone else, even without wearing a yukata.
+When I went to pick her up at her house, Mitsuki greeted me in a summery aqua blue dress. Just as I'd imagined, she stood out more than anyone else, even without wearing a yukata.
 
 I particularly love her long lashes framing her eyes and her perfectly round, cat-like eyes.\
-　Her long, glossy black hair, which seemed to absorb all the sunlight, was simply stunning. Mizuki's appearance hit me right in the heart.\
-From any angle, Mizuki was incredibly cute, but the look she gave me when she looked up at me with those slightly upturned eyes was irresistible. I couldn't believe there was another girl in the world this adorable.\
+　Her long, glossy black hair, which seemed to absorb all the sunlight, was simply stunning. Mitsuki's appearance hit me right in the heart.\
+From any angle, Mitsuki was incredibly cute, but the look she gave me when she looked up at me with those slightly upturned eyes was irresistible. I couldn't believe there was another girl in the world this adorable.\
 "It feels like ages since I've gone out feeling this light."
 
 "Well, you're always carrying Tasuku, aren't you?"
@@ -27,7 +27,7 @@ From any angle, Mizuki was incredibly cute, but the look she gave me when she lo
 
 "Yeah, come visit. Maybe during the summer holidays."
 
-With her sleep debt cleared, Mizuki was in high spirits the whole time.\
+With her sleep debt cleared, Mitsuki was in high spirits the whole time.\
 　It was truly fortunate that it hadn't rained today.\
 The fireworks display was scheduled to go ahead rain or shine, unless it was absolutely pouring, but a clear sky would make them look so much prettier.\
 They walked side by side to the venue park.\
@@ -41,7 +41,7 @@ Having lived in this town for seventeen years and a bit, and seeing these annual
 
 　Is it only once a year that Orihime and Hikoboshi can meet? Just how long have they been maintaining such a long-distance relationship?\
 No matter how far apart they are, it’s enviable that they can keep thinking of each other. Do they spend the whole year longing for the moment they cross the Milky Way?\
-But for me and Mizuki, if we were to be separated, that would surely be the end of it. Unfortunately, we can never be like Orihime and Hikoboshi.
+But for me and Mitsuki, if we were to be separated, that would surely be the end of it. Unfortunately, we can never be like Orihime and Hikoboshi.
 
 "Come to think of it, Nana, aren't you sad you're not with Yamada-san?"
 
@@ -84,13 +84,13 @@ The uniquely humid summer air clung to our skin, making it slightly stifling.
 
 "Ah, Nana, wait!"
 
-"Mizuki, over here!"
+"Mitsuki, over here!"
 
-We nearly got separated. Instinctively, I turned and grabbed Mizuki's hand. Without a word, she squeezed mine back.
+We nearly got separated. Instinctively, I turned and grabbed Mitsuki's hand. Without a word, she squeezed mine back.
 
 This action felt natural. Or rather, I hoped it did.
 
-Even if my cheeks were flushed crimson, surely Mizuki wouldn't notice in this dim light and heat.\
+Even if my cheeks were flushed crimson, surely Mitsuki wouldn't notice in this dim light and heat.\
 　Her hand was slightly damp, slender and soft. I savoured this sensation, knowing we'd never hold hands again.
 
 To say I never experienced the bittersweet romance most people go through in middle or high school because I'm homosexual... that's just an excuse.
@@ -110,11 +110,11 @@ I know what this is called.\
 A contradiction. Two emotions tug at my right and left hands, mercilessly trying to tear me apart.
 
 　Weaving through the crowd into the park, I finally found a little space.\
-I'd rather watch the fireworks a bit further away from the jostling throng, but what would Mizuki think?
+I'd rather watch the fireworks a bit further away from the jostling throng, but what would Mitsuki think?
 
 Gently loosening my grip, my fingertips parted without a struggle.
 
-"Mizuki, it gets crowded further in, so shall we watch the fireworks around here?"
+"Mitsuki, it gets crowded further in, so shall we watch the fireworks around here?"
 
 "Yeah, I want to check out the stalls before the fireworks. What do you usually get, Nana? Candy apples or something?"
 
@@ -122,7 +122,7 @@ Gently loosening my grip, my fingertips parted without a struggle.
 
 "Eh? That's kinda boring. Don't you do social media? You can't take cute photos then."
 
-"You're one to talk, Mizuki. You don't do it either."
+"You're one to talk, Mitsuki. You don't do it either."
 
 "You caught me. But I don't have many friends, and there's no one I want to see or show things to."
 
@@ -133,7 +133,7 @@ The class cliques were already set in stone, and Mitsuki still stood apart. But 
 
 It's painfully clear that her mind is completely elsewhere, utterly detached from school life.
 
-Mizuki possesses a unique aura.\
+Mitsuki possesses a unique aura.\
 She's neither gloomy nor plain. Though quiet in class, she's quite striking. In a word, she has presence.\
 She's intelligent too, and undeniably pretty to boot.
 
@@ -156,10 +156,10 @@ Why can't we give up on love on our own? It's our own feelings, yet we can't con
 
 "...You've got quite the cheeky mouth on you now, haven't you?"
 
-I ruffled Mizuki's fringe roughly, running my fingers through her hair. She let out a squeal and laughed innocently.
+I ruffled Mitsuki's fringe roughly, running my fingers through her hair. She let out a squeal and laughed innocently.
 
 Truth be told, it's not like that at all.\
-I don't think of Mizuki as a friend in the slightest.
+I don't think of Mitsuki as a friend in the slightest.
 
 　I adore her.
 So much that thinking of her keeps me awake at night.

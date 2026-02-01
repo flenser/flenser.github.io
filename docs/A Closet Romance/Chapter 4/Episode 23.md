@@ -12,7 +12,7 @@ Thinking that, even a view I'd normally take for granted seemed tinged with a ce
 
 When you reach your third year of high school, everything gets a "last" attached to it.\
 The last school festival, the last sports day, etc...\
-Sadly, I never got to make memories of typical high school events with Mizuki, but I'm satisfied we managed to go see the fireworks together in summer.
+Sadly, I never got to make memories of typical high school events with Mitsuki, but I'm satisfied we managed to go see the fireworks together in summer.
 
 　But who’d have thought that in the winter of my third year, the girl I’d always liked would suddenly start flirting with me so intensely? Life really is unpredictable.
 
@@ -81,7 +81,7 @@ Even that quiet, serious-looking girl who always sits at the back of the class, 
 Even if they look serious and seem like they only study, they're still properly interested in boys' lower halves. Schoolgirls are strange.
 
 I just don't understand how everyone can get physical so easily.\
-Can this balloon-like, swollen desire even be released if I were to direct it at someone else, not Mizuki?
+Can this balloon-like, swollen desire even be released if I were to direct it at someone else, not Mitsuki?
 
 　I don't know. I've never experienced it.\
 I do think I'd like to try it someday, but I still hate boys. I definitely want a girl.
@@ -106,7 +106,7 @@ To hide my shock, I fixed my gaze, barely moving my eyes, and looked at Maki wit
 "...Stop it. Do I look like that? That's kind of shocking."
 
 It's fine. I can cover it up. I've managed to hide it well like this until now.\
-The only one who's seen the real me is Mizuki. For now, anyway.
+The only one who's seen the real me is Mitsuki. For now, anyway.
 
 "Ahaha, just kidding! No way, no way!"
 
@@ -134,7 +134,7 @@ If you're here, I'm sorry, someone just like me. It's because I'm weak.
 　It's painful. I really can't tell Maki after all. Or rather, I can't tell anyone, and I don't want to either.
 
 Maki's reaction is perfectly normal. She'd never imagine her friend sitting right in front of her could be like this.\
-The fact that Mizuki accepted me without denying who I am felt like a miracle.
+The fact that Mitsuki accepted me without denying who I am felt like a miracle.
 
 "...Even if a girl likes another girl, there's nothing strange about it."
 
@@ -142,12 +142,12 @@ Suddenly, a voice unfamiliar to the classroom echoed through the space.\
 Everyone in the class, hearing a voice they rarely recognised, fell silent as if water had been poured over them.\
 I knew the owner of that voice all too well, and I couldn't help but turn my head towards it.
 
-Mizuki lifted her face from her desk, rubbing her eyes sleepily.
+Mitsuki lifted her face from her desk, rubbing her eyes sleepily.
 
 「……Eh? Do you fancy girls, Kase-san?」
 
 Maki asked, looking taken aback.\
-Mizuki stared straight at Maki.
+Mitsuki stared straight at Maki.
 
 「No, it's not exactly like that. But I don't think it's strange. It's not something others should be telling me what to do about.」
 
@@ -155,12 +155,12 @@ A complex mix of feelings welled up inside her – something like happiness, som
 
 　"Not exactly like that"... huh.
 
-Hearing Mizuki clearly state she wasn't into girls, even though I knew it, felt like being told outright there was no hope. It hurt.
+Hearing Mitsuki clearly state she wasn't into girls, even though I knew it, felt like being told outright there was no hope. It hurt.
 
-I knew Mizuki had said it thinking of me, so I really ought to be glad.\
+I knew Mitsuki had said it thinking of me, so I really ought to be glad.\
 I hated myself for getting hurt like this, after being defended by the girl I liked.
 
-　Mizuki's sharp remark left Maki speechless, scratching her cheek with her index finger.\
+　Mitsuki's sharp remark left Maki speechless, scratching her cheek with her index finger.\
 Maki is insensitive and foolish, but she's not fundamentally a bad person.\
 It's just that the valve deep in her throat, which everyone has, is broken and loose, so whatever she thinks inside her head flows straight out of her mouth unstoppably.
 

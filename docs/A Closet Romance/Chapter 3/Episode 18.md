@@ -17,18 +17,18 @@ Anything. Just give me some excuse.
 
 　I thought that, yet my head — which I prided myself on being reasonably sharp — failed me completely.
 
-"Mizuki..."
+"Mitsuki..."
 
-Unable to come up with a clever excuse, I called her name in a trembling voice. Speaking so feebly would only let Mizuki see how unsettled I was.\
+Unable to come up with a clever excuse, I called her name in a trembling voice. Speaking so feebly would only let Mitsuki see how unsettled I was.\
 My lips parted slightly, quivering pitifully. Unable to form a single word, I could only take shallow breaths.
 
-　Mizuki, who had simply been watching me, now unable to speak, blinked slowly before gently parting her lips.
+　Mitsuki, who had simply been watching me, now unable to speak, blinked slowly before gently parting her lips.
 
 "...I read that novel I borrowed from you. All the way to the end."
 
 "Eh?"
 
-Hearing this suddenly, in this situation where I was practically on top of Mizuki, I was taken aback.
+Hearing this suddenly, in this situation where I was practically on top of Mitsuki, I was taken aback.
 
 Why bring that up now?
 
@@ -41,10 +41,10 @@ But it was easy enough to figure out with a little thought.\
 If you had not a shred of interest in female romance, you wouldn't pick up such a novel.
 
 Let's check the answers.\
-Mizuki's gaze, as if demanding that, drove me to the edge of a precipice.
+Mitsuki's gaze, as if demanding that, drove me to the edge of a precipice.
 
 　I might have been terribly mistaken.\
-I'd underestimated how sharp Mizuki's intuition was.\
+I'd underestimated how sharp Mitsuki's intuition was.\
 I'd completely forgotten that this girl was far, far sharper than me.\
 Because normally she was so innocent and carefree, showing no sign whatsoever that she was observing me so keenly—
 
@@ -73,18 +73,18 @@ Until I reached a town where I could belong.
 But the one person I most wanted to remain hidden from found out. And in the worst possible way.
 
 I gulped, swallowing hard.\
-Looking up at me, speechless, Mizuki smiled faintly. Not her usual innocent smile, but a mature, grown-up one.
+Looking up at me, speechless, Mitsuki smiled faintly. Not her usual innocent smile, but a mature, grown-up one.
 
 "...It's fine."
 
 What is fine? What exactly is fine?
 
-Before I could ask, Mizuki's warm palm slid across my cheek. Her slender arms wrapped around my neck like a snake, pulling my body tightly towards hers. My cheek brushed against her soft hair.
+Before I could ask, Mitsuki's warm palm slid across my cheek. Her slender arms wrapped around my neck like a snake, pulling my body tightly towards hers. My cheek brushed against her soft hair.
 
 "...Whatever Nana wants to do, it's fine."
 
 　Her lips, pressed close to my ear, whispered softly in a voice laden with a sweetness I'd never heard before.\
-The moment Mizuki's voice vibrated my eardrums, my mind went completely blank.
+The moment Mitsuki's voice vibrated my eardrums, my mind went completely blank.
 
 I couldn't stop myself.
 
@@ -94,13 +94,13 @@ It was rough, as if venting emotions with nowhere to go — my first kiss was fa
 The soft, moist sensation on my lips sent a surge of heat like molten magma rising from deep within my stomach.\
 I'd lived my whole life unaware that such a dangerous impulse lay dormant inside me.
 
-Mizuki, I like you. I like you so much.
+Mitsuki, I like you. I like you so much.
 
 I pressed my lips against hers again and again, changing the angle, as if to confirm. I didn't know the right way to do it. But instinct drove me on.
 
-　Mizuki's hands, wrapped around my back, grasped my nightclothes uncertainly. The sheer fact of being held by her made my blood feel like it was boiling.
+　Mitsuki's hands, wrapped around my back, grasped my nightclothes uncertainly. The sheer fact of being held by her made my blood feel like it was boiling.
 
-When I pulled away, Mizuki slowly opened her eyes.\
+When I pulled away, Mitsuki slowly opened her eyes.\
 Then, gazing at me with moist eyes, she murmured in a voice so faint it seemed about to vanish.
 
 "...Please, Nana. Don't leave me. Don't go to university in Tokyo..."
@@ -109,18 +109,18 @@ Then, gazing at me with moist eyes, she murmured in a voice so faint it seemed a
 
 I realised what she meant by offering me her lips...
 
-Mizuki doesn't like me.\
+Mitsuki doesn't like me.\
 To her, I'm a lifeline. Right now, I'm the only person she can confide in, the only one she can rely on. Of course she doesn't want to let go.\
 And somewhere deep down, I had hoped this would be the case.\
-　I wanted to be special to Mizuki, in any form at all.
+　I wanted to be special to Mitsuki, in any form at all.
 
-"...Mizuki."
+"...Mitsuki."
 
 "What?"
 
 "How long have you known how I feel...?"
 
-Mizuki gently stroked my cheek. I just stared intently into those dark eyes.
+Mitsuki gently stroked my cheek. I just stared intently into those dark eyes.
 
 "...Well, Nana, you're especially kind to me. When you look at me like that, I start to think maybe you do."
 
@@ -129,20 +129,20 @@ Mizuki gently stroked my cheek. I just stared intently into those dark eyes.
 "...I'm sorry. I couldn't be certain."
 
 How awful. She tested me.\
-And I fell right into Mizuki's trap, letting her find me when I should have been locked away in the closet. So easily.
+And I fell right into Mitsuki's trap, letting her find me when I should have been locked away in the closet. So easily.
 
-"...So, now you're sure? Mizuki, that's awful. If you knew how I felt, you'd realise I didn't want anything."
+"...So, now you're sure? Mitsuki, that's awful. If you knew how I felt, you'd realise I didn't want anything."
 
 "Wanting nothing is a lie. There's no such thing as love without expecting something in return."
 
 Those words stabbed into my chest.\
-I couldn't utter a sound. Because the truth was, I'd kissed Mizuki when she invited me to. Even now, I remained motionless, still on top of her.
+I couldn't utter a sound. Because the truth was, I'd kissed Mitsuki when she invited me to. Even now, I remained motionless, still on top of her.
 
-"...So you're saying you can give me everything, Mizuki?"
+"...So you're saying you can give me everything, Mitsuki?"
 
 Even though you don't like me?
 
-I was desperate now. When I asked, Mizuki nodded once.
+I was desperate now. When I asked, Mitsuki nodded once.
 
 "...If Nana stays by my side, you can do whatever you like."
 
@@ -153,7 +153,7 @@ She pulls my neck tightly against hers. My reason wavers dangerously in the swee
 
 Was this the ending I truly desired?
 
-"...Have you ever done this with anyone before, Mizuki?"
+"...Have you ever done this with anyone before, Mitsuki?"
 
 "...No. Nana's the first. But it's fine. I'll give everything to you."
 
@@ -161,10 +161,10 @@ The first.\
 Is it right to take her first time like this?\
 Is this what I wanted?
 
-The thought itself excited me. Seeing Mizuki's unexpectedly mature expression, I could almost hear the crackling sound of my rationality's shell peeling away.\
-　My hand reaching for Mizuki's body wouldn't stop.
+The thought itself excited me. Seeing Mitsuki's unexpectedly mature expression, I could almost hear the crackling sound of my rationality's shell peeling away.\
+　My hand reaching for Mitsuki's body wouldn't stop.
 
-When I slipped my hand inside her T-shirt and gently touched her side, Mizuki flinched, her shoulders shaking exaggeratedly.
+When I slipped my hand inside her T-shirt and gently touched her side, Mitsuki flinched, her shoulders shaking exaggeratedly.
 
 See... she's scared.
 
@@ -180,15 +180,15 @@ With a hand slipped inside her clothes, I seized her breast.\
 
 "Nana..."
 
-I pulled up her clothes. Mizuki wasn't wearing any underwear. Those same round breasts I'd seen in the bathroom earlier. When I pressed my lips to her nipple, I felt Mizuki's body tense, but I ignored it completely.
+I pulled up her clothes. Mitsuki wasn't wearing any underwear. Those same round breasts I'd seen in the bathroom earlier. When I pressed my lips to her nipple, I felt Mitsuki's body tense, but I ignored it completely.
 
 　I thought I could just keep loving her from afar.\
 A body I thought I wasn't even allowed to touch.\
 Like a pathetic beast, I pounced the moment the bait was tossed before me.\
 My fleeting romantic feelings were kicked aside by lust, bursting apart in a pitiful display.
 
-　When I stroked her hipbone, Mizuki's body twitched and lifted. I hooked my fingers into her shorts and pulled them down in one swift motion, along with her underwear.\
-Then Mizuki grabbed the hem of my loungewear and pulled it up, so I discarded it as she wished.
+　When I stroked her hipbone, Mitsuki's body twitched and lifted. I hooked my fingers into her shorts and pulled them down in one swift motion, along with her underwear.\
+Then Mitsuki grabbed the hem of my loungewear and pulled it up, so I discarded it as she wished.
 
 Embraced naked, our touching skin felt scorching. I simply adored her, pressing my lips against hers again and again, as if to confirm.
 
@@ -197,35 +197,35 @@ Embraced naked, our touching skin felt scorching. I simply adored her, pressing 
 I'd wanted to touch her for so very long. I couldn't count how many times I'd dreamt of nights like this.\
 When I held her, she held me back. The heat only surged higher, yet it felt agonising, making me want to cry, unbearable.
 
-I looked down at Mizuki. Her frightened eyes, like a discarded puppy's, reflected my own beastly self, making me ache.
+I looked down at Mitsuki. Her frightened eyes, like a discarded puppy's, reflected my own beastly self, making me ache.
 
-"...Mizuki, say you love me. Even if it's a lie, say it."
+"...Mitsuki, say you love me. Even if it's a lie, say it."
 
-Before my fingertips went any further, before our relationship became irrevocable, I begged for forgiveness, clinging to her. Mizuki looked at me with tear-filled eyes.\
-Are you scared? Are you frightened? Did I want to make Mizuki look like this?
+Before my fingertips went any further, before our relationship became irrevocable, I begged for forgiveness, clinging to her. Mitsuki looked at me with tear-filled eyes.\
+Are you scared? Are you frightened? Did I want to make Mitsuki look like this?
 
 "Nana... 'I love you'."
 
 　Someone, anyone, stop me.
 
 It was the moment I tensed my fingers.\
-Suddenly, Tasuku let out a growl. Startled, I sprang away from Mizuki.
+Suddenly, Tasuku let out a growl. Startled, I sprang away from Mitsuki.
 
 "Funya, funya, funya... funyaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 
 "Tasuku's awake."
 
-As I frantically pulled on the discarded clothes, watching Mizuki ignore me completely and immediately pick up Tasuku, I felt all my strength drain away.
+As I frantically pulled on the discarded clothes, watching Mitsuki ignore me completely and immediately pick up Tasuku, I felt all my strength drain away.
 
 The heat that had consumed me moments before drained away in an instant.
 
 Then, coming to my senses, I shuddered.
 
-　What did I just do to Mizuki...?
+　What did I just do to Mitsuki...?
 
 I clenched my trembling palms so tightly my nails dug into my skin.
 
-"...Sorry, Mizuki. I'm going home."
+"...Sorry, Mitsuki. I'm going home."
 
 "Eh? Nana, wait a moment..."
 

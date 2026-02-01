@@ -5,12 +5,12 @@ title: Episode 5
 
 Episode 5: When You're Not Alone, You Should Just Ask for Help
 
-The next day, when I arrived at school, Mizuki was already sitting in her classroom chair, eyes closed, fast asleep.
+The next day, when I arrived at school, Mitsuki was already sitting in her classroom chair, eyes closed, fast asleep.
 
 I really wanted to ask how her night shift had gone last night, but with people around, I couldn't bring myself to ask.
 
-Somehow, Mizuki at school always seems to have this aura that makes it hard to approach her.\
-I'm quite noticeable myself, so for Mizuki, who probably just wants to be left in peace, being spoken to might be a nuisance.
+Somehow, Mitsuki at school always seems to have this aura that makes it hard to approach her.\
+I'm quite noticeable myself, so for Mitsuki, who probably just wants to be left in peace, being spoken to might be a nuisance.
 
 　As I placed my school bag on the desk, a sudden thud hit my back. Startled, I spun around.
 
@@ -46,7 +46,7 @@ But there's no way I could say that.
 I've always been bloody good at dodging questions.
 
 The warning bell rang. I swept my long, curled hair back over my shoulders and sat down at my desk.\
-After holding Tasuku for over an hour, the bicep soreness – my honourable injury sustained for Mizuki's sake – grew worse by the minute.
+After holding Tasuku for over an hour, the bicep soreness – my honourable injury sustained for Mitsuki's sake – grew worse by the minute.
 
 ＊＊＊
 
@@ -54,14 +54,14 @@ People like me, who haven't come out about their sexual orientation to anyone, m
 
 The L in LGBTQ+. Lesbian. That's me.
 
-Falling for Mizuki made me realise it all too clearly.
+Falling for Mitsuki made me realise it all too clearly.
 
 The emotion occupying my heart was far too intense to be directed towards someone of the same sex, far too profound to be dismissed as mere admiration.
 
 　There was no longer any doubt.\
 After all, from the moment I was born until now, from my earliest childhood, I'd never once felt drawn to a man.
 
-Amongst all that, meeting Mizuki was—like having a bullet fired straight through my skull.
+Amongst all that, meeting Mitsuki was—like having a bullet fired straight through my skull.
 
 I have to admit it. I like girls. That fact will surely never change, no matter how much I deny it, and I can never escape from myself.\
 　Even if I can't tell anyone yet, I want to at least acknowledge this part of myself.
@@ -125,13 +125,13 @@ We dashed through the ticket gates and reached the platform just as our train pu
 If no one was watching, I’d have pulled my blouse out from under my skirt and flapped it about to catch the breeze.\
 Of course, I couldn’t do something so indecent.
 
-Mizuki always bolted out of the classroom the moment the bell rang, but perhaps it was to pick up Tasuku.
+Mitsuki always bolted out of the classroom the moment the bell rang, but perhaps it was to pick up Tasuku.
 
 　No wonder I, strolling leisurely to the station, never bumped into her.
 
-When I wiped the sweat beading on her forehead with my handkerchief, Mizuki looked up at me with a startled expression.\
+When I wiped the sweat beading on her forehead with my handkerchief, Mitsuki looked up at me with a startled expression.\
 Her almond-shaped eyes, round like a cat's, looked up at me with an adorable gaze.\
-Blushing, Mizuki brushed my hand away.
+Blushing, Mitsuki brushed my hand away.
 
 "It's dirty."
 
@@ -142,11 +142,11 @@ Blushing, Mizuki brushed my hand away.
 It wasn't dirty.
 The red Vivienne gauze handkerchief, snatched away somewhat forcefully, vanished into the pocket of Mitsuki's blazer.
 
-When she arrived at the nursery just a short walk from the nearest station, Mizuki took a blue lanyard name tag from her large tote bag, hung it around her neck, and pressed the nursery's intercom.
+When she arrived at the nursery just a short walk from the nearest station, Mitsuki took a blue lanyard name tag from her large tote bag, hung it around her neck, and pressed the nursery's intercom.
 
 "I'm here to collect Kase Tasuku."
 
-The nursery teacher seemed accustomed to this, paying little heed to Mizuki in her school uniform.\
+The nursery teacher seemed accustomed to this, paying little heed to Mitsuki in her school uniform.\
 But when a woman with a child happened to cross our path and stared at us with a strange look, I felt unbearably uncomfortable.
 
 　A schoolgirl in uniform picking up a baby was bound to be unusual.\
@@ -156,10 +156,10 @@ Tasuku isn't this child's son, he's her brother.\
 There's no reason for people to look at us like that; in fact, what we're doing should be commended.
 
 　Adults, who know nothing, cut us down mercilessly with their curious stares.\
-Does Mizuki endure this feeling all the time? The hardship... is beyond my imagination.
+Does Mitsuki endure this feeling all the time? The hardship... is beyond my imagination.
 
-Equipping the black baby carrier, Mizuki lifted Tasuku up in an instant.\
-Snuggled tightly against Mizuki's stomach, looking perfectly content, he munched away at the shoulder straps of the carrier as if they were delicious.
+Equipping the black baby carrier, Mitsuki lifted Tasuku up in an instant.\
+Snuggled tightly against Mitsuki's stomach, looking perfectly content, he munched away at the shoulder straps of the carrier as if they were delicious.
 
 "Nana, can we pop into the baby shop before we go home? I need to buy some undershirts for Tasuku."
 
@@ -171,7 +171,7 @@ I'd never been to a shop selling baby goods before, so I felt strangely excited.
 
 "Right."
 
-Before we started walking, I grabbed the large tote bag hanging from Mizuki's shoulder.
+Before we started walking, I grabbed the large tote bag hanging from Mitsuki's shoulder.
 
 "I'll carry this. It'd be tough carrying Tasuku and the bag at the same time, wouldn't it?"
 
@@ -183,18 +183,18 @@ Before we started walking, I grabbed the large tote bag hanging from Mizuki's sh
 
 "Mm-hmm, you're welcome."
 
-Walking slowly beside Mizuki, who set off cradling Tasuku carefully, I followed.
+Walking slowly beside Mitsuki, who set off cradling Tasuku carefully, I followed.
 
 　The shop with the large sign featuring a rabbit character was one I'd definitely seen before, though never entered. Inside, there was no background music playing at all, making it feel like a rather peculiar space.
 
 Children's clothes were crammed onto tall shelves, packed tightly together.\
-Mizuki headed straight for the baby underwear section as if she knew her way around. After examining a few items, she placed a mesh undershirt with a dinosaur illustration into her basket.
+Mitsuki headed straight for the baby underwear section as if she knew her way around. After examining a few items, she placed a mesh undershirt with a dinosaur illustration into her basket.
 
-"You know, Mizuki, you look like a proper mum."
+"You know, Mitsuki, you look like a proper mum."
 
 I don't know what a fake mum is like, but seeing a high schooler seriously choosing baby clothes gives me a strange feeling.
 
-Mizuki looked momentarily bewildered, then gave a wry smile.
+Mitsuki looked momentarily bewildered, then gave a wry smile.
 
 "Really? That's... complicated..."
 
@@ -213,7 +213,7 @@ Mizuki looked momentarily bewildered, then gave a wry smile.
 She's actually not a mum but an older sister, but unless someone asks about the circumstances, no one would know that, right?
 Tasuku probably doesn't understand yet either.
 
-　As far as I can tell, Mizuki is taking childcare seriously.
+　As far as I can tell, Mitsuki is taking childcare seriously.
 
 Seeing her like that, I genuinely start to wonder.
 

@@ -44,9 +44,9 @@ My heart began pounding wildly, its rhythm accelerating sharply.
 　Please, let this be a mistake on my part.\
 I want to believe that, but there's no way I could mistake that face I've watched for so long.
 
-Could it be... Kase Mizuki...?
+Could it be... Kase Mitsuki...?
 
-The rumour Maki told me flashed through my mind. The rumour that Kase Mizuki has a child.
+The rumour Maki told me flashed through my mind. The rumour that Kase Mitsuki has a child.
 
 Was it true?
 
@@ -57,7 +57,7 @@ Besides, she's so slender—if her stomach had shown even slightly, it would hav
 Then whose child is that little one...?
 
 Tentatively, I lifted the umbrella just a little.\
-Standing on the other side of the intersection, it was indeed... Mizuki Kase herself, her face pale and her head bowed.
+Standing on the other side of the intersection, it was indeed... Mitsuki Kase herself, her face pale and her head bowed.
 
 I strained my eyes to observe her.\
 　The large yellow-green bag she held had a baby's photo printed on it. It seemed to be a pack of nappies.
@@ -71,7 +71,7 @@ Even from a distance, with her head bowed, she looked utterly exhausted.
 It didn't seem like the face a blossoming high school girl should have. Her expressionless face, swaying on the commuter train like an early-morning salaryman, lacked any vitality.
 
 The pedestrian signal turned green.\
-From the other side, Kase Mizuki approached at a slow pace.
+From the other side, Kase Mitsuki approached at a slow pace.
 
 Her gait was slightly awkward.\
 With her slender frame carrying a baby, one couldn't help but wonder if she'd bought a bit too much.
@@ -107,13 +107,13 @@ Just as we finished crossing, the lights turned red. I turned to face her.
 
 "Well, I suppose I am a model student."
 
-With my long brown hair curled at the ends, piercings in both ears, and my uniform worn casually, I certainly didn't look the part of a model student from any angle. But Kase Mizuki didn't particularly point that out; she just gave a wry smile.
+With my long brown hair curled at the ends, piercings in both ears, and my uniform worn casually, I certainly didn't look the part of a model student from any angle. But Kase Mitsuki didn't particularly point that out; she just gave a wry smile.
 
 　Your fake smile is rubbish. But cute.
 
 "...More importantly, Kase-san, you knew my name. That surprised me."
 
-It wasn't strange that she knew my name since we were in the same class, but I never imagined the day would come when Kase Mizuki would properly call me "Asami-san" by my surname.
+It wasn't strange that she knew my name since we were in the same class, but I never imagined the day would come when Kase Mitsuki would properly call me "Asami-san" by my surname.
 
 "Of course I know you, Asami-san. You're very noticeable. But this is the first time we've spoken, right?"
 
@@ -122,7 +122,7 @@ It wasn't strange that she knew my name since we were in the same class, but I n
 No, it wasn't the first time.\
 We spoke on the day of the entrance ceremony, just a little bit.\
 You might not remember, though.\
-I murmured this silently to myself and began walking in step with Kase Mizuki.
+I murmured this silently to myself and began walking in step with Kase Mitsuki.
 
 The weight of the plastic bag digging into my palm. Why on earth did she buy so much alone?
 
@@ -144,14 +144,14 @@ I wouldn't eat her or anything, but does she find me scary?\
 Seeing her gaze, as if she'd made up her mind, the tension eased slightly from my shoulders.\
 I shifted my gaze to the baby sleeping peacefully, snoring softly, nestled against her chest.\
 　Plump cheeks, perfectly round like snow-view daifuku mochi. Sleeping soundly with such a contented expression.\
-Those long lashes... I couldn't help but think they bore a faint resemblance to Kase Mizuki's.
+Those long lashes... I couldn't help but think they bore a faint resemblance to Kase Mitsuki's.
 
 Noticing my gaze shift to the baby, I could sense her breath catch ever so slightly.\
 I peered into her dark eyes, now positioned lower than my own.
 
 "...Did you really need to buy so much on a rainy day like this? Was it a special sale today?"
 
-Caught off guard by the unexpected question, Kase Mizuki's eyes widened in surprise.
+Caught off guard by the unexpected question, Kase Mitsuki's eyes widened in surprise.
 
 Is it really that surprising?\
 But I won't ask. Not if it's something you don't want to talk about.
@@ -160,7 +160,7 @@ I've no intention of telling anyone.\
 Because I harbour not a shred of hostility towards you.
 
 　All along, I wanted you to see me with those eyes.\
-Kase Mizuki, who used to just stare at me one-sidedly, is now beside me, talking to me.\
+Kase Mitsuki, who used to just stare at me one-sidedly, is now beside me, talking to me.\
 That fact alone has me wildly elated.
 
 Because I thought time would just pass with us having no connection, and we'd graduate.

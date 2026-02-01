@@ -8,7 +8,7 @@ Episode 10: You Thoughtless Thief
 
 With summer holidays imminent, the final exam results were posted in the corridor. When I saw 'Asami Nana's' name at the very top, my gaze immediately slid down.
 
-'Kase Mizuki's' name was nowhere to be found among the top ten.
+'Kase Mitsuki's' name was nowhere to be found among the top ten.
 
 Amidst this spectacular fall from grace as the year's top student, the students crowding the corridor began whispering uneasily.
 
@@ -21,21 +21,21 @@ Amidst this spectacular fall from grace as the year's top student, the students 
 I bit my lip, fighting the urge to speak up.\
 Tasuku and I had promised to keep it our secret. So I said nothing, just glared at my own name.
 
-　Even if that rumour flared up again, Mizuki wasn't the type to dwell on such trivial matters.\
+　Even if that rumour flared up again, Mitsuki wasn't the type to dwell on such trivial matters.\
 Besides, once summer holidays began, the rumours would surely blow over like a sudden gust of wind.\
 So rather than stirring up trouble now, it was far wiser to remain quiet.
 
-Even before the tests, I'd slipped away whenever I could to visit Mizuki. But while I watched over Tasuku, she still prioritised sleep over studying.
+Even before the tests, I'd slipped away whenever I could to visit Mitsuki. But while I watched over Tasuku, she still prioritised sleep over studying.
 
 　Tasuku, now six months old, had apparently chosen this moment to begin his night-time crying.\
 I still couldn't imagine that same Tasuku – so calm during the day, giggling and chattering when soothed – transforming into such a crying demon in the dead of night.\
-Whether it was because of this or not, I couldn't say for certain, but as summer arrived, Mizuki grew thin.\
+Whether it was because of this or not, I couldn't say for certain, but as summer arrived, Mitsuki grew thin.\
 　She no longer even bothers to check the rankings; she just collapses face-down on her desk, utterly disregarding her appearance.\
-Whether thin or plump, Mizuki is adorable, but seeing her protruding wrist bones and thin legs is painful and hard to watch.
+Whether thin or plump, Mitsuki is adorable, but seeing her protruding wrist bones and thin legs is painful and hard to watch.
 
 "...Hey, Nana, Kase-san seems to be in a bad way lately, doesn't she?"
 
-Whispering to me, Maki watched Mizuki sleeping like the dead in the corner of the classroom.\
+Whispering to me, Maki watched Mitsuki sleeping like the dead in the corner of the classroom.\
 　Despite her flashy appearance, health-conscious Maki looked slightly concerned as she pierced a straw through a carton of soya milk.
 
 "Extreme dieting's bad for you. You need to eat properly, exercise, and lose weight healthily. I think she's a bit too thin."
@@ -43,16 +43,16 @@ Whispering to me, Maki watched Mizuki sleeping like the dead in the corner of th
 Maki, who possessed absolute confidence and pride in her own looks, usually acted silly and goofed around, but occasionally said something incredibly sensible.\
 　Truth be told, Maki wasn't just thin. Even from beneath her short skirt, her legs stretched out slenderly, toned and beautiful despite her not being in any sports club.\
 It was probably precisely because she was so particular about her own appearance that she noticed others' too.\
-It was a sense I lacked. I doubt I'd notice changes in any classmates besides Maki and Mizuki. Just because I liked girls didn't mean I was casting arrows in every direction.\
-　I'm certain the majority of this class hasn't even noticed Mizuki has lost weight.
+It was a sense I lacked. I doubt I'd notice changes in any classmates besides Maki and Mitsuki. Just because I liked girls didn't mean I was casting arrows in every direction.\
+　I'm certain the majority of this class hasn't even noticed Mitsuki has lost weight.
 
-The current Mizuki, who doesn't utter a word in class, doesn't move a muscle, just lies there sleeping quietly, has completely blended into the background.
+The current Mitsuki, who doesn't utter a word in class, doesn't move a muscle, just lies there sleeping quietly, has completely blended into the background.
 
 "...Really? Lost weight? I hadn't noticed. Doesn't she look much the same as before?"
 
 That's a lie.\
-I'm absolutely certain I'm the first to notice any change in Mizuki.\
-　But I don't say it. Mizuki didn't lose weight by choice, and pointing it out won't solve anything right now.
+I'm absolutely certain I'm the first to notice any change in Mitsuki.\
+　But I don't say it. Mitsuki didn't lose weight by choice, and pointing it out won't solve anything right now.
 
 I deliberately acted disinterested to end the conversation, but Maki, completely oblivious, moved even closer, hooked her arm through mine, and persisted.\
 The strands of her half-twisted ponytail, held stiffly in place by a cape, swayed – strands of black mixed with gold.
@@ -61,7 +61,7 @@ The strands of her half-twisted ponytail, held stiffly in place by a cape, swaye
 
 "No way."
 
-That's an exaggeration. Mizuki is certainly slim, but she's not exactly skin and bones.
+That's an exaggeration. Mitsuki is certainly slim, but she's not exactly skin and bones.
 
 "Miss Kase sleeps through everything except lessons, and her test results this time were rubbish, right? If it's not dieting, then maybe... it's that, isn't it?"
 
@@ -84,16 +84,16 @@ She gave my head a little tap, and I nonchalantly handed the carton back to Maki
 Truthfully, I wanted to tell her it wasn't her place to make assumptions about someone she barely knew, but Maki looked genuinely concerned, so I managed to keep quiet and brush it off at the last moment.
 
 　Depression. Or something like it.\
-I don't think it's quite that bad, but to someone unaware of the circumstances, Mizuki probably looks like she could be.\
+I don't think it's quite that bad, but to someone unaware of the circumstances, Mitsuki probably looks like she could be.\
 I did suspect 'postnatal depression' at first, after all. Though I was promptly dismissed with "I didn't give birth, you know."
 
-　I glance sideways at Mizuki.\
+　I glance sideways at Mitsuki.\
 Perhaps from the lack of sleep, her complexion looks pale, almost drained of colour.\
-Watching her sleeping face, her smooth, colourless skin looks almost like a wax figure. Mizuki has such regular features, it makes her look even more like one.\
-Does Mizuki's mother not notice these changes, obvious even to an outsider?\
+Watching her sleeping face, her smooth, colourless skin looks almost like a wax figure. Mitsuki has such regular features, it makes her look even more like one.\
+Does Mitsuki's mother not notice these changes, obvious even to an outsider?\
 Or is she simply too close, living with her every day, to see?
 
-　It was plain as day that looking after Tasuku was a burden on Mizuki.\
+　It was plain as day that looking after Tasuku was a burden on Mitsuki.\
 It seemed only natural that, pushed to her limits, she might occasionally imagine a 'daily life without Tasuku'.
 
 The innocent smile of Tasuku flashed through her mind—and her chest tightened.
@@ -101,11 +101,11 @@ The innocent smile of Tasuku flashed through her mind—and her chest tightened.
 　When people are suffering, they inevitably imagine a different future, one unlike the present.\
 They conjure up non-existent choices – 'If only this had happened', 'If only that had happened' – and escape from reality. Even though they know it's pointless.
 
-What was the root cause that pushed Mizuki to this breaking point in the first place?\
+What was the root cause that pushed Mitsuki to this breaking point in the first place?\
 Was her mother the sole source of all this?\
 No, wait. Before that, where did Tasuku's father go? He's to blame too, isn't he? Humans can't reproduce asexually, so the responsibility lies with both parties.
 
-The anger I'd thought had subsided towards Mizuki's parents began to simmer anew.\
+The anger I'd thought had subsided towards Mitsuki's parents began to simmer anew.\
 I know outsiders have no right to pry, but it's unbearably frustrating.\
 Still, I've decided I won't ask her anything until she chooses to tell me.\
 It's wrong to speculate and speak ill without knowing the full story.
@@ -124,33 +124,33 @@ It's wrong to speculate and speak ill without knowing the full story.
 
 The truth was different.
 
-"Don't you come near my Mizuki."
+"Don't you come near my Mitsuki."
 
-To feel jealousy even towards my best friend... I'm despicable. I must be completely mad. I'm not even Mizuki's girlfriend or anything.
+To feel jealousy even towards my best friend... I'm despicable. I must be completely mad. I'm not even Mitsuki's girlfriend or anything.
 
 The warning bell rang, and the classroom erupted into a clattering flurry of activity.\
 Everyone continued their idle chatter while rummaging through their desks, then began shuffling out of the classroom in groups, notebooks and pencil cases in hand.
 
-Mizuki, apparently fast asleep, remained oblivious to the commotion and showed no sign of waking.
+Mitsuki, apparently fast asleep, remained oblivious to the commotion and showed no sign of waking.
 
 "I wonder if Kase-san doesn't need to wake up? We've got a move to another classroom next. Oh, right, I'll go and wake her up."
 
-I reflexively grabbed Maki's hand as she innocently said this and started towards Mizuki.\
-Ignoring Maki, who looked up at me in surprise, I walked straight past her and headed directly for Mizuki's desk.
+I reflexively grabbed Maki's hand as she innocently said this and started towards Mitsuki.\
+Ignoring Maki, who looked up at me in surprise, I walked straight past her and headed directly for Mitsuki's desk.
 
 　Her back moved rhythmically with her breathing. Her glossy black hair shimmered, reflecting the sunlight streaming through the window. Her long lashes lay lowered.\
 The cheek pressed flat against her arm was soft and cute.\
-Mizuki's sleeping face was so precious. Just looking at her made my brain feel like it was melting.
+Mitsuki's sleeping face was so precious. Just looking at her made my brain feel like it was melting.
 
 Forcing myself to hold back the smile threatening to spread across my face, I silently tapped the top of her head gently with my notebook.
 
 "Whoa!"
 
-Mizuki jolted awake, startled.
+Mitsuki jolted awake, startled.
 
 "Kase-san. Next period's a mobile class. The warning bell's already rung, so you should get up soon."
 
-Perhaps surprised that I'd spoken to her in class for the first time, Mizuki blinked rapidly and stared intently at my face.
+Perhaps surprised that I'd spoken to her in class for the first time, Mitsuki blinked rapidly and stared intently at my face.
 
 "Ah... um, yeah... Sorry. Thanks for waking me..."
 
@@ -158,12 +158,12 @@ Perhaps surprised that I'd spoken to her in class for the first time, Mizuki bli
 
 "You've got a mark on your cheek."
 
-When I pointed it out, Mizuki instantly covered her cheek with her palm, looked down, and her pale cheeks flushed red.\
+When I pointed it out, Mitsuki instantly covered her cheek with her palm, looked down, and her pale cheeks flushed red.\
 She's always clinging to me, saying "Nana, Nana," so why is she suddenly so shy now? But it's cute.
 
 "Right, Maki, let's go too."
 
-Class breaks were precious sleep time for Mizuki. That mattered more to her than interacting with friends.\
+Class breaks were precious sleep time for Mitsuki. That mattered more to her than interacting with friends.\
 To avoid accidentally letting on we were close by chatting casually, I abruptly shifted my gaze towards Maki.
 
 "Nana, sneaking off like that is sneaky. You thoughtless thief."
@@ -172,9 +172,9 @@ To avoid accidentally letting on we were close by chatting casually, I abruptly 
 
 "Yeah, but still. It was my kindness, you know."
 
-Leaving a flustered Mizuki scrambling to get ready, Maki and I walked out into the corridor together.
+Leaving a flustered Mitsuki scrambling to get ready, Maki and I walked out into the corridor together.
 
-Deep down, I felt immense relief at having managed to distance Maki from Mizuki. But was my current behaviour truly for Mizuki's sake?
+Deep down, I felt immense relief at having managed to distance Maki from Mitsuki. But was my current behaviour truly for Mitsuki's sake?
 
 　I play the hero, yet inside I harbour a monster desperate to monopolise the heroine.
 
@@ -182,7 +182,7 @@ I lock it away in the closet, desperately securing the key, but it always bangs 
 
 In my heart, I always spout nothing but pretty words, but in reality, I'm no different from any other horny high school boy who just wants to do it, desperately.
 
-　Even just touching Mizuki's slender body makes me ache so much — my infatuation has reached terminal stages.
+　Even just touching Mitsuki's slender body makes me ache so much — my infatuation has reached terminal stages.
 
 It's an illness now. A sickness called lovesickness.
 
@@ -193,6 +193,6 @@ Then all the world's romantic anguish would vanish, and people might find happin
 
 　...Nah, I'd still prefer a love potion.\
 I want that beloved girl to be mine alone.\
-I want a convenient magic pill that makes Mizuki see only me, love only me.
+I want a convenient magic pill that makes Mitsuki see only me, love only me.
 
 Thinking that sounds rather sci-fi, I was utterly horrified to realise I'd harboured such dangerous thoughts.

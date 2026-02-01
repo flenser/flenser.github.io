@@ -8,15 +8,15 @@ has_children: true
 
 ## Description
 
-I'll make sure Nana says she absolutely never wants to leave Mizuki's side.
+I'll make sure Nana says she absolutely never wants to leave Mitsuki's side.
 Asami Nana is a third-year high school student. She looks a bit flashy, just your average ordinary schoolgirl, but in reality, she's a closeted lesbian who's never dated anyone.
-She's been secretly in love with Kase Mizuki, who's been top of the year since they started school, since their first year.
+She's been secretly in love with Kase Mitsuki, who's been top of the year since they started school, since their first year.
 
 A crush on a straight girl could never be reciprocated.
 There was absolutely no chance she'd ever notice me.
 So I'd keep this love hidden, cherishing it silently.
-I'd leave my hometown soon, go to university in Tokyo, find a cute girlfriend who was also gay like me, and forget about Kase Mizuki.
-That's what I thought, anyway. But then an unexpected turn of events brought me suddenly close to Mizuki, the girl I'd been pining for all this time?
+I'd leave my hometown soon, go to university in Tokyo, find a cute girlfriend who was also gay like me, and forget about Kase Mitsuki.
+That's what I thought, anyway. But then an unexpected turn of events brought me suddenly close to Mitsuki, the girl I'd been pining for all this time?
 
 This is the story of a lesbian high schooler utterly swept along by a straight girl who plays hard to get. 🫶
 

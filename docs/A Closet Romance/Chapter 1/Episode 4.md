@@ -5,7 +5,7 @@ title: Episode 4
 
 Episode 4: Call Me Nana
 
-Then, Kase Mizuki awoke after just over an hour, and by the time it had grown completely dark outside, the rain had stopped entirely.
+Then, Kase Mitsuki awoke after just over an hour, and by the time it had grown completely dark outside, the rain had stopped entirely.
 
 "Thank you, Asami-san. I feel like I've recovered a bit of my energy thanks to you."
 
@@ -38,24 +38,24 @@ If we suddenly started getting along in class, everyone would be genuinely shock
 　It's not that I want to take away her precious rest time.\
 I still want her to sleep as much as possible between lessons, just like before, so I have no intention of disturbing her at school from now on.
 
-"Then just when we're alone is fine. Can I call you Mizuki?"
+"Then just when we're alone is fine. Can I call you Mitsuki?"
 
 "Ah, yeah, of course. Actually... you knew my name?"
 
-"How could I not know the name of the top student in the year? Ever since first year, I've been wondering how I could beat you. I've always been aware of you, Mizuki."
+"How could I not know the name of the top student in the year? Ever since first year, I've been wondering how I could beat you. I've always been aware of you, Mitsuki."
 
 The real reason I was aware of her wasn't because she was top of the year, though.\
 But I'll never tell her that, not in a million years.
 
 "I did lose to you in the mid-term exams, though."
 
-Mizuki said it casually, not seeming bothered at all.\
+Mitsuki said it casually, not seeming bothered at all.\
 Or rather, I was slightly surprised she'd even noticed the mid-term rankings.\
 　After all, she’d always been asleep in class and seemed utterly disinterested in rankings.
 
 "...You can't call this winning. It's like I got covering fire from you, Tasuku. That's not skill, is it?"
 
-When I said this with a pout, Mizuki laughed brightly, ahaha.
+When I said this with a pout, Mitsuki laughed brightly, ahaha.
 
 "You've been trying to beat me this whole time?"
 
@@ -145,14 +145,14 @@ Well, I'm an early birthday person, so my actual birthday is still a long way of
 I still don't quite grasp this difference between adults and children that lies on the cusp between seventeen and eighteen.\
 After all, it doesn't mean you can start smoking or drinking alcohol. I just can't see the difference at all.
 
-Mizuki's birthday was in April, I believe, so she's already an adult.\
+Mitsuki's birthday was in April, I believe, so she's already an adult.\
 My birthday is next March, so I'm still a child.
 
 That's how society distinguishes us.
 
 　But I’m sure I’ll still be a child even when I turn eighteen, and I want to stay that way.
 
-Having been raised freely and unfettered myself, I simply cannot understand why Mizuki’s parents make their eighteen-year-old daughter look after their young child.
+Having been raised freely and unfettered myself, I simply cannot understand why Mitsuki’s parents make their eighteen-year-old daughter look after their young child.
 
 Still, there are people who enter the workforce straight after finishing high school.\
 Claiming "I’m still a child!" while receiving a salary probably wouldn’t fly.\
