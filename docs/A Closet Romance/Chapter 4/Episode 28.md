@@ -1,7 +1,7 @@
----\
-parent: 'Chapter Four: This Was a Love I Had to Give Up On'\
-title: Episode 28\
----\
+---
+parent: 'Chapter Four: This Was a Love I Had to Give Up On'
+title: Episode 28
+---
 Episode 28: What Do You Like About Me, Nana? Tell Me Everything
 
 I spread out a futon on the floor of my room and waited for Mitsuki. She returned, having finished drying her hair and changed into black shorts and a T-shirt, looking like a middle school sports club member.

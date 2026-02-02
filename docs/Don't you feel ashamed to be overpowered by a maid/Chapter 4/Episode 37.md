@@ -1,6 +1,6 @@
----\
-parent: Chapter 4\
-title: Episode 37\
+---
+parent: Chapter 4
+title: Episode 37
 ---
 
 Alisha had departed on her expedition, and Lotte was working at the Zekrosia family mansion.\
