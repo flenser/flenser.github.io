@@ -2,7 +2,6 @@
 parent: "Chapter Four: So the Light Was You After All"
 title: Episode 43
 ---
-Episode 43
 
 Beyond the door lay darkness.\
 Yet within that dim shadow, we could make out a figure taller than us.\
