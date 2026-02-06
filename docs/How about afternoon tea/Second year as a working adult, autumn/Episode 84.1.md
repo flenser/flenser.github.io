@@ -9,7 +9,7 @@ How many people can one truly love from birth to death?
 
 To be honest, I cannot recall the number of women I have shared the night with.
 
-There have been two people I have loved.
+There have been two people I have loved.\
 But the one I loved from the depths of my heart will likely remain the only one in my lifetime.
 
 Thanks to that first person I fell for — I feel I was able to correctly recognise that I am homosexual.
@@ -20,14 +20,14 @@ Had I not broken up with my ex and instead dragged out the relationship through 
 
 　They say life is about serendipity, and I truly feel that to be the case. If the eighteen-year-old me, despairing of everything and resigned to giving up on life that night, could hear that a day would come when I'd meet someone I cherish this deeply, I'd be utterly astonished.
 
-　Exhausted, I pressed my lips to the long lashes of Kanata, who slept soundly beside me, gently stroking her soft cheek, careful not to wake her.
+　Exhausted, I pressed my lips to the long lashes of Kanata, who slept soundly beside me, gently stroking her soft cheek, careful not to wake her.\
 Gently drawing her white, rounded shoulders closer, I felt they were slightly cool. After tucking the duvet up over her shoulders, I held her slender body tightly.
 
 　The nightclothes I'd hastily stripped off and tossed aside were probably lying under the bed somewhere, but before I could retrieve them and dress her, she'd already fallen asleep in my arms. So I gave up on getting dressed myself and decided to sleep like this tonight.
 
 　Autumn nights are long.
 
-Even though I'd promised to go eat pancakes with Kanata tomorrow, sleeping felt like such a waste, and Friday nights always ended up like this, staying up late.
+Even though I'd promised to go eat pancakes with Kanata tomorrow, sleeping felt like such a waste, and Friday nights always ended up like this, staying up late.\
 The usual Saturday morning routine was Kanata waking before me, puffing out her cheeks in a pout as she shook my shoulder to wake me.
 
 But it couldn't be helped.
@@ -42,10 +42,10 @@ You might laugh if I said such things, but I'm always seriously thinking about n
 
 　I wish spring would come sooner.
 
-When I bumped into Shinji — I realised. That Kanata felt guilty about this relationship.
+When I bumped into Shinji — I realised. That Kanata felt guilty about this relationship.\
 I remember how our clasped hands trembled slightly, and my chest tightened terribly.
 
-I swore I’d never hurt you again, yet here I am, causing this girl I adore so much pain once more.
+I swore I’d never hurt you again, yet here I am, causing this girl I adore so much pain once more.\
 　Come to think of it, it was only natural. Unlike me, Kanata is earnest and sincere, the type who thinks things through deeply before acting.
 
 There's no way Kanata has the sort of character that could tolerate infidelity.
@@ -54,11 +54,11 @@ Even if there was absolutely no love between Shinji and me, there was no way she
 
 And yet, she accepted my feelings — I know it was because of her affection.
 
-　I couldn't bear it. When Kanata told me she wanted to be my secretary, that she wouldn't let any other girl have that role, I became certain her feelings were still directed towards me.
+　I couldn't bear it. When Kanata told me she wanted to be my secretary, that she wouldn't let any other girl have that role, I became certain her feelings were still directed towards me.\
 From that moment on, my heart was so full I couldn't sleep at night, I loved Kanata so much, so very much. I couldn't wait until spring.
 
-　Three years ago, when I promised my father I would "absolutely deliver results," it was both a personal resolution and an act of selfishness.
-My first year as a working adult was spent in the holding company's corporate planning department, where I poured blood, sweat, and tears into my work.
+　Three years ago, when I promised my father I would "absolutely deliver results," it was both a personal resolution and an act of selfishness.\
+My first year as a working adult was spent in the holding company's corporate planning department, where I poured blood, sweat, and tears into my work.\
 I worked relentlessly during the weekdays, studied relentlessly after returning home, sacrificing sleep, and on weekends, I would crash at Yuki-nii's place, bowing my head to beg for his guidance.
 
 　Because I was the president's daughter. Because I was the next president. I was subjected to those curious stares, and I know there were times when people gossiped behind my back. But none of that mattered.
@@ -97,14 +97,14 @@ I found myself thinking something quite out of character: perhaps God really doe
 
 Spring passed, summer went by, autumn arrived, and now Kanata lies in my arms. Could there be anything happier than this? I simply cannot imagine ever letting go of this warmth.
 
-Truthfully, perhaps it would be simpler to tell my father soon that I am gay and have him call off my engagement to Shinji.
+Truthfully, perhaps it would be simpler to tell my father soon that I am gay and have him call off my engagement to Shinji.\
 　He’d be shocked, no doubt, and deep down disappointed, but I don’t think he’d force me to marry Shinji. The father I know well was clumsy, but that was the sort of man he was.
 
 But the reason I haven’t done it immediately, keeping Kanata waiting — is because I feel strongly that I want to show my father, through concrete results, that my feelings aren’t half-hearted, that I’m serious.
 
 　Since my student days, my father had probably noticed I wasn't keen on running the company. At every opportunity, he always apologised to me. "I'm sorry for pushing the responsibility onto you," he'd say.
 
-That's why he arranged Shinji for me. His ambition for social status must have seemed perfect for someone as unambitious as me. Had I not met Kanata, I would surely have chosen to marry Shinji without complaint.
+That's why he arranged Shinji for me. His ambition for social status must have seemed perfect for someone as unambitious as me. Had I not met Kanata, I would surely have chosen to marry Shinji without complaint.\
 　He doesn't force 'love' upon me. That suited me perfectly. Far better than being pressured into a romantic relationship.
 
 But then I met Kanata.
@@ -131,7 +131,7 @@ I'm sorry, Kanata. But I won't let you go now. I'll cherish you forever. As long
 
 　I buried my cheek in her fluffy hair and closed my eyes. If 'happiness' truly existed in this world in tangible form, it was undoubtedly here, in my arms, right now. I felt certain of it.
 
-　The next morning, as usual, I overslept. Kanata shook my shoulder, pouting her lips in displeasure. Her fingertips touched the bite marks on my shoulder – marks I'd grown accustomed to and no longer noticed – and they stung just a little.
+　The next morning, as usual, I overslept. Kanata shook my shoulder, pouting her lips in displeasure. Her fingertips touched the bite marks on my shoulder – marks I'd grown accustomed to and no longer noticed – and they stung just a little.\
 Even though I thought, 'That was definitely on purpose,' I didn't point it out. Instead, I blinked several times to reboot my brain.
 
 "Hey, Yui-san, wake up. It's already nine o'clock. If we don't hurry, the limited-edition pancakes will sell out..."

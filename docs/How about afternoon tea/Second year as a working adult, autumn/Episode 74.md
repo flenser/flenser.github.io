@@ -5,24 +5,24 @@ nav_order: 30
 ---
 Episode 74: Do you understand what that means?
 
-After parting ways with the two seniors, the tense atmosphere still lingering.
+After parting ways with the two seniors, the tense atmosphere still lingering.\
 I met up with Yui-san a little later, and we rode the train towards the station nearest my flat.
 
 It was me who suggested to Yui-san, who had offered to take a taxi, "Let's take the train home."
 
 Because a taxi would get us there in no time, whereas the train meant we could stay together just a little longer.
 
-　I was the one who decided to return to my own flat today, having plans to meet Yuri tomorrow.
+　I was the one who decided to return to my own flat today, having plans to meet Yuri tomorrow.\
 And yet, even now, finding myself wanting to stay with her just a little longer, I realise I'm hopelessly in love with Yui-san.
 
-I wish we could live together again, like we did when we were students. I do think that, but right now, I can't be so selfish.
-　Even though our feelings are mutual, a major problem remains. To be honest, I'm not entirely free of guilt towards Kitakami-san.
-I have no idea how he feels about Yui-san.
+I wish we could live together again, like we did when we were students. I do think that, but right now, I can't be so selfish.\
+　Even though our feelings are mutual, a major problem remains. To be honest, I'm not entirely free of guilt towards Kitakami-san.\
+I have no idea how he feels about Yui-san.\
 But Yui-san promised me she would "absolutely break off the engagement". So I believe her word.
 
 Living together would be after everything was over. Once it was all finished, then I would return to that house. Yes, that was my decision.
 
-　Just a few stops later, we reached the station nearest my flat.
+　Just a few stops later, we reached the station nearest my flat.\
 I wanted to stay with her a little longer. Even though it was my own decision, I forced myself to suppress the pouting urge and looked at Yui-san.
 
 "...Thank you for seeing me off."
@@ -35,7 +35,7 @@ I wanted to stay with her a little longer. Even though it was my own decision, I
 
 “I’ll take a taxi home, so it’s fine. Besides, walking alone at night isn’t safe, is it?”
 
-I gazed back at Yui-san, who looked at me with such affection.
+I gazed back at Yui-san, who looked at me with such affection.\
 　I hadn't drunk that much, had I? Was I drunk? Just looking at each other like this made my pulse race, my heart tightening painfully.
 
 Our clasped hands felt hot. I wanted to get closer. I wanted her to hug me tight like she always did. I didn't want to let go. But doing that in public was impossible. Lately, I'd been thinking about nothing else.
@@ -52,7 +52,7 @@ Back when I chose to part ways, I never imagined I could picture such a happy fu
 
 Gazing at her elegant profile illuminated by the headlights of passing cars, I thought, savouring the feeling: Ah, I really do love her.
 
-　We walked home, chatting about random things — like how Mitsuya-san and Seno-san had been arguing again, or the film I planned to see with Yuri tomorrow.
+　We walked home, chatting about random things — like how Mitsuya-san and Seno-san had been arguing again, or the film I planned to see with Yuri tomorrow.\
 Yui-san always listens to my stories with a cheerful smile.
 
 We’d walked slowly, reluctant to part, yet because I’d chosen an apartment just five minutes’ walk from the nearest station, we arrived home all too soon.
@@ -69,7 +69,7 @@ Unable to let go of the hands we were holding, I faced her and squeezed her hand
 
 "...Well then, see you tomorrow. I'll come pick you up, so do give me a call."
 
-I nodded. Yui gently lifted my chin with the fingers of her free hand, raising my lowered face.
+I nodded. Yui gently lifted my chin with the fingers of her free hand, raising my lowered face.\
 After kissing me softly, she peered into my eyes. The orange streetlight reflected in her dark pupils, making them sparkle.
 
 "...Don't look so sad. It makes me not want to let you go."
@@ -98,7 +98,7 @@ I pressed my forehead against her back as I called her name. Then, I felt a vibr
 
 I wanted to say she should know without me having to put it into words — but Yui probably already understood my feelings. She knew, and she was asking me to say it, wanting to hear those words from me.
 
-I knew everything, but putting it into words felt a little embarrassing.
+I knew everything, but putting it into words felt a little embarrassing.\
 She, who usually took the lead, was being terribly teasing today.
 
 After catching my breath just a little, I tightened my arms around her and summoned my courage.
@@ -137,7 +137,7 @@ I wanted to cling to her body, but feared that if I did, Yui-san would never let
 
 Still unaccustomed to such things, I always let Yui-san take the lead. Her palm gently caressed my waist, then slowly traced the contours of my body.
 
-Yui-san loves kissing, so she never lets go easily. As our lips pressed together again and again from different angles, I struggled to breathe and tried to push her shoulders away. But before I knew it, she’d hiked up my favourite flared skirt, and I felt her left hand creeping up my thigh.
+Yui-san loves kissing, so she never lets go easily. As our lips pressed together again and again from different angles, I struggled to breathe and tried to push her shoulders away. But before I knew it, she’d hiked up my favourite flared skirt, and I felt her left hand creeping up my thigh.\
 Panicking, I grabbed her hand to stop her.
 
 "Yu, Yui-san...!?"
@@ -174,12 +174,12 @@ When I pouted those words, Yui-san laughed and hugged me tightly.
 
 "Sorry, sorry. It's just, you look so adorable. If you don't want to, I won't do anything. Right? Shall we take a bath together?"
 
-Whenever you say that, I always find myself at a loss.
+Whenever you say that, I always find myself at a loss.\
 Because, you see, I've never once disliked being touched by you.
 
 ＊＊＊
 
-　We squeezed into the tiny bathtub of the studio flat, packed in like sardines. I’d popped in a fluffy, bubbly bath bomb because I felt too shy to be seen naked – and it was the right call.
+　We squeezed into the tiny bathtub of the studio flat, packed in like sardines. I’d popped in a fluffy, bubbly bath bomb because I felt too shy to be seen naked – and it was the right call.\
 When she hugged me from behind, the smooth skin touching felt wonderful.
 
 My hair was tied up, leaving my nape exposed. Her lips brushed against it, tickling me just a little. I giggled softly, my voice echoing in the bathroom.
@@ -188,7 +188,7 @@ My hair was tied up, leaving my nape exposed. Her lips brushed against it, tickl
 
 "No, this is better. We get to snuggle together."
 
-Yui-san's home had a whirlpool bath easily twice this one's size.
+Yui-san's home had a whirlpool bath easily twice this one's size.\
 I felt bad about the cramped space, but since Yui-san seemed happy, perhaps this was fine as it was.
 
 If we could live together again, would we bathe like this every day? I leaned back heavily, then turned just my face towards Yui. She smiled gently, brushed her lips against my cheek, then said, "I'll wash you," sliding her palms over my body.

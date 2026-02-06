@@ -7,16 +7,16 @@ Episode 72: First, Teach Your Body
 
 The scorching heat that seemed to burn the skin had slipped away unnoticed, replaced by pleasant breezes on this autumn day.
 
-Spending weekends at Yui's house, where we'd lived together during university, was becoming a habit.
+Spending weekends at Yui's house, where we'd lived together during university, was becoming a habit.\
 A calm Saturday evening. The summer's hectic pace felt like a distant memory.
 
-　Seeing Yui standing in the kitchen, a sight so familiar during our university days, felt fresh again after four years.
+　Seeing Yui standing in the kitchen, a sight so familiar during our university days, felt fresh again after four years.\
 Glancing sideways at her tearing lettuce and arranging it on a plate, I took a tomato out of the fridge.
 
 "Hey, Kanata. Do you think we need rice with the takoyaki...?"
 
-Suddenly, Yui stopped what she was doing and said this, and I stopped too, caught up in her pause.
-　Today, I'd promised to have a takoyaki party with Ritsu and Yuri. Ritsu was the one who'd suggested it.
+Suddenly, Yui stopped what she was doing and said this, and I stopped too, caught up in her pause.\
+　Today, I'd promised to have a takoyaki party with Ritsu and Yuri. Ritsu was the one who'd suggested it.\
 Apparently, when Ritsu left Osaka, her first posting, her colleagues had given her a takoyaki maker as a gift.
 
 "Isn't takoyaki a staple food? I mean, it's carbohydrates."
@@ -25,8 +25,8 @@ Apparently, when Ritsu left Osaka, her first posting, her colleagues had given h
 
 Saying that, Yui-san smiled. Glancing at my watch, I saw it was nearly six-thirty, the agreed time.
 
-This would be our first meeting since telling Ritsu-san and Yuri about us officially being together.
-I felt deeply moved that the day had come when I could share this news with the two of them, who had looked after me so much since university days.
+This would be our first meeting since telling Ritsu-san and Yuri about us officially being together.\
+I felt deeply moved that the day had come when I could share this news with the two of them, who had looked after me so much since university days.\
 Having friends who genuinely celebrate our relationship felt like a true blessing.
 
 　As I set out chopsticks and side plates on the table, lost in these thoughts, Yui suddenly embraced me from behind. I turned, turning only my head. She pressed her lips to my cheek and hugged me tightly.
@@ -35,13 +35,13 @@ Having friends who genuinely celebrate our relationship felt like a true blessin
 
 "Yeah, so let me have lots of hugs before Ritsu and the others arrive."
 
-Since we started dating, Yui-san has been like she's gone back to her university days.
-Right after we reunited, she was so reserved around me, perhaps out of consideration.
+Since we started dating, Yui-san has been like she's gone back to her university days.\
+Right after we reunited, she was so reserved around me, perhaps out of consideration.\
 But once our feelings were mutual, even at work, she'd touch me without a shred of reserve, conveying her affection straight to the point.
 
 Every time she did that, my heart would flutter, and I felt a tingling sensation deep within my chest. It might sound like a cliché, but I savoured the thought that this must be what they call 'happiness'.
 
-Since meeting Yui, I've come to know so many emotions. There were painful moments, difficult times, but the happiness I feel now has effortlessly swept away all the struggles I've endured.
+Since meeting Yui, I've come to know so many emotions. There were painful moments, difficult times, but the happiness I feel now has effortlessly swept away all the struggles I've endured.\
 　I shifted position in her arms, turning to face Yui-san.
 
 "Well then, just this once, I'll give you a special hug too."
@@ -50,12 +50,12 @@ Just as I was about to return her embrace, the doorbell chimed perfectly timed.
 
 "Ah, it's Ritsu and the others."
 
-My arms, which had been reaching round her back to embrace her, froze instantly. I gently pushed Yui-san's shoulders away. Slipping out of her embrace, Yui-san let out a small "Ah," her eyebrows lowering in disappointment.
+My arms, which had been reaching round her back to embrace her, froze instantly. I gently pushed Yui-san's shoulders away. Slipping out of her embrace, Yui-san let out a small "Ah," her eyebrows lowering in disappointment.\
 But it couldn't be helped. The hug would have to wait. After all, we couldn't keep our guests waiting.
 
 "I'll be right back."
 
-Saying this to Yui, who hung her head dejectedly, I headed for the front door.
+Saying this to Yui, who hung her head dejectedly, I headed for the front door.\
 Opening it, I found Ritsu standing there holding a large carrier bag, presumably containing a takoyaki maker, and Yuri standing beside her, both hands full of plastic bags likely brimming with alcohol.
 
 ＊＊＊
@@ -68,8 +68,8 @@ When she poured the takoyaki batter onto the plate, I'd wondered if an amateur c
 
 "Well, after living in Osaka for three years, you'd think so, wouldn't you? I've lost count of how many takoyaki parties I've had. I made them for Yuri too, when she came to visit once, didn't I?"
 
-Yuri, seated beside Ritsu, said with a mouthful of salad, "That happened too, didn't it?"
-The two of them had become acquainted after I'd run away from home following a quarrel with Yui-san, and had grown close from there.
+Yuri, seated beside Ritsu, said with a mouthful of salad, "That happened too, didn't it?"\
+The two of them had become acquainted after I'd run away from home following a quarrel with Yui-san, and had grown close from there.\
 Even after Ritsu got a job and moved to Osaka, Yuri seemed to visit occasionally. I vaguely recall seeing a photo of the two of them on Yuri's social media, probably taken at a famous theme park.
 
 "Right then, you can start eating now."
@@ -78,11 +78,11 @@ Just as Ritsu-san said this, Yui-san deftly extended a bamboo skewer. She prompt
 
 "Here you go, Kanata. Careful, it's hot."
 
-She offered it to me with a beaming smile, so I said "Thank you" a little bashfully. Ritsu and Yuri exchanged glances and grinned.
-Why on earth does Yui-san prioritise me so blatantly?
+She offered it to me with a beaming smile, so I said "Thank you" a little bashfully. Ritsu and Yuri exchanged glances and grinned.\
+Why on earth does Yui-san prioritise me so blatantly?\
 Knowing exactly what the two sitting opposite were thinking made me feel just a little embarrassed.
 
-　As if to hide my embarrassment, I added sauce and mayonnaise, finished it off with bonito flakes, and took a big bite of the piping hot takoyaki.
+　As if to hide my embarrassment, I added sauce and mayonnaise, finished it off with bonito flakes, and took a big bite of the piping hot takoyaki.\
 The secret recipe takoyaki flavour that Ritsu-san learned from colleagues during her time working in Osaka. The subtle aroma of dashi spreading in my mouth made me groan involuntarily. It was just like takoyaki from a proper shop.
 
 "Kanata, is it tasty?"
@@ -123,7 +123,7 @@ Oh dear. I had to stop Yuri before she said anything more bizarre. That's what I
 
 "Kanata, you know, is actually incredibly popular. He's been hit on by men so good-looking it makes me jealous, and not just once or twice. Even so, Kanata has always been devoted to you, thinking only of you. I know you care about Kanata, Senpai. But if you ever do anything to make her cry again, I absolutely won't forgive you."
 
-H-help. I instinctively looked to Ritsu for support. Ritsu-san met my gaze perfectly, grinning and narrowing her eyes with amusement.
+H-help. I instinctively looked to Ritsu for support. Ritsu-san met my gaze perfectly, grinning and narrowing her eyes with amusement.\
 I recognised that look on Ritsu-san's face. It was the mischievous glint in her eyes when she was usually teasing Yui-san and finding it highly entertaining. She didn't seem to have any intention of stopping Yuri.
 
 "Yeah... Thanks for worrying about me. But it's alright. I won't make Kanata cry ever again. I promise."
@@ -132,16 +132,16 @@ Saying that, Yui-san squeezed my hand tightly under the table. Deep down, I brea
 
 Yuri nodded contentedly. "I'm counting on you for Kanata. Make sure you make her absolutely happy, you hear?" she said, before stuffing another bite of takoyaki into her mouth.
 
-　Though she rarely says it aloud, I realised just how much Yuri truly cares for me, and honestly, it made me happy.
-All these years, Yuri never asked questions, never spoke ill of Yui-san, just stayed by my side. That’s why I could cherish and protect this feeling for four whole years.
+　Though she rarely says it aloud, I realised just how much Yuri truly cares for me, and honestly, it made me happy.\
+All these years, Yuri never asked questions, never spoke ill of Yui-san, just stayed by my side. That’s why I could cherish and protect this feeling for four whole years.\
 So, this happiness I’ve found now — it’s also thanks to Yuri being there for me. That’s what I thought.
 
 * * *
 
 "Right then, we wouldn't want to keep the newlyweds company too long. Shall we head off soon? Thanks for today, you know."
 
-After filling our bellies with takoyaki and reminiscing about old times, the enjoyable hours flew by in a flash.
-Ritsu stood up, tucking the takoyaki pan under her arm. Today's takoyaki was delicious. I might want to make it at home again. Maybe I should buy a takoyaki maker too.
+After filling our bellies with takoyaki and reminiscing about old times, the enjoyable hours flew by in a flash.\
+Ritsu stood up, tucking the takoyaki pan under her arm. Today's takoyaki was delicious. I might want to make it at home again. Maybe I should buy a takoyaki maker too.\
 Thinking this, I saw them off to the front door.
 
 "Ah, right. I forgot to say something important."
@@ -166,7 +166,7 @@ She said it without any trace of embarrassment.
 
 After seeing Ritsu and the others off, the sounds of the dishwasher and hairdryer echoed in the living room, now just the two of us. After my bath, while Yui-san dried my hair, I found myself reflecting on today's events.
 
-When Yuri blurted out the word 'mixer', I thought Yui seemed a bit taken aback. But since neither of them brought it up again after they left, I felt a little relieved.
+When Yuri blurted out the word 'mixer', I thought Yui seemed a bit taken aback. But since neither of them brought it up again after they left, I felt a little relieved.\
 I'd expected to be pressed about it, so it was a bit of a let-down.
 
 It's true I went to a mixer, but that's water under the bridge now. Yui's always been straightforward, so now we're a couple, she probably doesn't dwell on the past much.
@@ -179,8 +179,8 @@ After I said that, she nodded and deftly coiled the hairdryer cord. Glancing at 
 
 　Yui hadn't taken her bath yet, and if I waited in the living room, I might fall asleep on the sofa. Maybe I should just go to bed first. Just as I thought that and started to stand up, a warm palm gripped my hand firmly, stopping me.
 
-That's when I realised. Come to think of it — Yui would normally say, "Let's take a bath together," but today she'd let me go without a fuss.
-　And since Ritsu and Yuri had left, she hasn't hugged me or kissed me even once.
+That's when I realised. Come to think of it — Yui would normally say, "Let's take a bath together," but today she'd let me go without a fuss.\
+　And since Ritsu and Yuri had left, she hasn't hugged me or kissed me even once.\
 I gasped, meeting her eyes, and her gaze, heavy with heat, made me catch my breath. Instinctively, I knew. Oh, this is rather dangerous. Deep in her eyes, the flames of jealousy that should have been dormant until just now were flickering.
 
 "...Yui-san, um, I'll go to bed first, then."
@@ -205,7 +205,7 @@ Ah, a familiar name. Hearing she remembered even Hayakawa-kun made me feel a lit
 
 "But I've never responded when anyone hit on me... ? Besides, if we're talking about that, Yui-san, you were far, far more popular than me, weren't you? Have you forgotten?"
 
-　I won't let you forget how badly you behaved back in university. When I said it with a pout, Yui-san gave a wry smile and then stood up.
+　I won't let you forget how badly you behaved back in university. When I said it with a pout, Yui-san gave a wry smile and then stood up.\
 As if to cover it up, she hugged me tightly.
 
 "Hey, Kanata."
@@ -218,12 +218,12 @@ As if to cover it up, she hugged me tightly.
 
 　I started to say that there was absolutely no way I could ever like anyone but Yui-san, but stopped myself. Even I found it a bit embarrassing to express my love so directly.
 
-I gently stroked the back of Yui-san, who was rubbing her neck against mine sulkily.
+I gently stroked the back of Yui-san, who was rubbing her neck against mine sulkily.\
 Even though I like her this much, how can I make her understand? How can I make her realise?
 
 "That's why... I thought I had to properly hold onto you, Kanata."
 
-She gently pulled away, peering into my eyes.
+She gently pulled away, peering into my eyes.\
 When I met her gaze — those deep, dark eyes like the night sea, looking at me so tenderly — Yui smiled brightly.
 
 "You need me, Kanata... First, I'll teach your body."

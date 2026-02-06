@@ -20,12 +20,12 @@ But — I really don't like troublesome girls like Yui-san...
 
 It really makes me wonder if all the lovers in the world live with such agonising frustration. It seems I was truly blessed to have avoided this experience until now.
 
-　I knew Yui-san was bad at keeping in touch even back when we lived together. Even then, she’d get frequent calls from various girls, but if she wasn’t in the mood, she’d never pick up. I remember she probably never properly replied to messages either.
+　I knew Yui-san was bad at keeping in touch even back when we lived together. Even then, she’d get frequent calls from various girls, but if she wasn’t in the mood, she’d never pick up. I remember she probably never properly replied to messages either.\
 After all, when she was at home, Yui-san hardly ever touched her phone; it was always just left on the coffee table.
 
 　Knowing that made it even harder to reach out. Knowing Yui, I doubt she’d ignore me no matter how busy she was... but honestly, after just one meeting, I couldn’t tell if she still felt the same way she did back then.
 
-　That day, she did say I was cute... but Yui-san is the sort who can flirt with girls completely nonchalantly, even when she doesn't mean it.
+　That day, she did say I was cute... but Yui-san is the sort who can flirt with girls completely nonchalantly, even when she doesn't mean it.\
 After spending a year together, I know all too well that to understand Yui-san's true feelings, you can't just take her words at face value.
 
 I tore my gaze away from the dark, unresponsive smartphone screen and returned it to the PC monitor.
@@ -46,10 +46,10 @@ Hearing her teasing tone, I felt my cheeks flush hot. I shook my head franticall
 
 "We'll talk later. We've only got the afternoon meeting left anyway, so let's finish on time and go for drinks!"
 
-I denied it instinctively, but it seemed completely obvious I was lovesick, and I couldn't help but slump my shoulders.
+I denied it instinctively, but it seemed completely obvious I was lovesick, and I couldn't help but slump my shoulders.\
 Come to think of it, back in university, even without saying anything, Ritsu-san and Yuri had figured out I liked Yui-san.
 
-　Am I really that obvious? I should know better by now – I need to stop letting it show on my face.
+　Am I really that obvious? I should know better by now – I need to stop letting it show on my face.\
 As if to steel myself, I pinched my cheeks with both hands and turned back to my PC.
 
 After a slightly late lunch break, I headed to the meeting room with Mitsuya-san, notebook in hand. Just a week ago, a meeting notice had been sent to all employees in the Web Production Division.
@@ -60,7 +60,7 @@ After a slightly late lunch break, I headed to the meeting room with Mitsuya-san
 
 "Yes, it is. I just hope we don't get told off..."
 
-　Having spent a year in the management team, I understood all too well how hard this division was struggling. I didn't think either the sales or production teams were being negligent. Still, what doesn't turn a profit simply doesn't.
+　Having spent a year in the management team, I understood all too well how hard this division was struggling. I didn't think either the sales or production teams were being negligent. Still, what doesn't turn a profit simply doesn't.\
 They'd apparently undergone numerous large-scale organisational reforms and operational reviews, but the effects were minimal. I vaguely sensed that other divisions regarded this business as a liability.
 
 Opening the door to the large conference room, I was startled by the distinguished faces gathered there. Mitsuya-san nudged my side gently with her elbow and whispered.
@@ -99,7 +99,7 @@ So that's why she said, "Is this fate?"... Is that what it meant?
 
 　Unable to sort out my confused thoughts, I felt like burying my head in my hands. A business sale meant all employees would be moving en masse... right? So, did that mean I was about to become an employee of Yui-san's company?
 
-　My mind went blank at the suddenness of it all, and I don't recall much of what the president said after that.
+　My mind went blank at the suddenness of it all, and I don't recall much of what the president said after that.\
 The afternoon meeting ended in an uproar. Apparently, starting tomorrow, all division employees will have personnel interviews where salary conditions and such will be discussed.
 
 Only the services for existing customers entrusted with operation and maintenance seem to be staying, absorbed into a separate division. But it appears we, the administrative department included, are part of the sale.
@@ -120,15 +120,15 @@ Because I never imagined I'd end up working at Yui's company. When we met again,
 
 　After returning to our desks, Mitsuya-san said she was going for a smoke and didn't come back for a while, probably because she couldn't muster the energy to work.
 
-Yui-san had said she'd deliver results within three years. Was this business acquisition part of that plan?
+Yui-san had said she'd deliver results within three years. Was this business acquisition part of that plan?\
 What was her reasoning behind this decision? I wanted to know the company's financials, but since Yui-san's company isn't listed, there's no information on the website.
 
 But even if I can't see the detailed figures, I should be able to view segment information by business from the parent company's website. The Ichinose Group... well, the accommodation business should only be handled by Yui-san's company. I might be able to make some educated guesses.
 
 Upon realising this and searching the site, my prediction proved correct.
 
-Yui-san's first year as president. Both operating revenue and operating profit had fallen significantly compared to the previous year.
-　In the second year, revenue remained flat, but profits visibly improved, and at the same time, capital expenditure increased sharply.
+Yui-san's first year as president. Both operating revenue and operating profit had fallen significantly compared to the previous year.\
+　In the second year, revenue remained flat, but profits visibly improved, and at the same time, capital expenditure increased sharply.\
 But the segment information was too rough... With just this, I couldn't tell what Yui-san's intentions were in managing the business.
 
 I wanted to know more. What Yui-san was thinking. If I were working at the same company... Maybe even I could be of some help...
@@ -155,7 +155,7 @@ So we wrapped up work early and headed to Mitsuya-san's favourite Korean restaur
 
 　It was a blessing in disguise that the conversation hadn't veered onto my love life, which had been the original purpose of our meeting, given the sheer impact of what we'd just heard.
 
-My feet felt light as I boarded the train for home, still feeling as if I were in a dream.
+My feet felt light as I boarded the train for home, still feeling as if I were in a dream.\
 Just as my apartment block came into view, my phone buzzed in my pocket. Huh, could it be Mitsuya-san? Thinking that, I checked the screen.
 
 "Ah..."

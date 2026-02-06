@@ -22,12 +22,12 @@ We always walked hand-in-hand back in our student days, and I wasn't asking beca
 
 "It's fine. I'll cover for us if it happens."
 
-She said it so casually, but did she really think it was okay if someone saw us? Yui-san was truly unpredictable.
+She said it so casually, but did she really think it was okay if someone saw us? Yui-san was truly unpredictable.\
 I never had any intention of pulling away from the hand she'd taken without hesitation. Instead, I squeezed hers back tightly.
 
 　When I found out Yui-san had come to like tea, I decided I absolutely had to introduce her to this shop first.
 
-It's originally a long-established shop in England. Thankfully, it's a specialist tea shop that also has branches in Japan. It's been my regular since I lived in London, and I still visit every time I go back.
+It's originally a long-established shop in England. Thankfully, it's a specialist tea shop that also has branches in Japan. It's been my regular since I lived in London, and I still visit every time I go back.\
 They have a huge variety, not just limited to tea, so I'm sure we'll find something to suit Yui-san's taste.
 
 "I had no idea there were so many varieties of tea."
@@ -64,7 +64,7 @@ Picking up a small teapot adorned with a camellia design from the shelf, Yui-san
 
 　Wait, Yui-san, please check the price tag properly — I started to say, then thought better of it.
 
-That's right, Yui-san doesn't have the sense that "tens of thousands of yen" is expensive.
+That's right, Yui-san doesn't have the sense that "tens of thousands of yen" is expensive.\
 Yui-san fundamentally doesn't buy unnecessary things. Her home is always neatly organised, simple, and contains few possessions.
 
 Precisely because of that, she doesn't spare any expense at all for things she wants, things she's decided to buy.
@@ -75,7 +75,7 @@ That was the kind of person Yui-san was.
 
 Seeing Yui-san say this with a beaming, delighted smile somehow made the tension drain from my shoulders.
 
-I found her offer of matching items genuinely pleasing. Every time I brewed tea at home, I'd surely think of Yui-san.
+I found her offer of matching items genuinely pleasing. Every time I brewed tea at home, I'd surely think of Yui-san.\
 That might be rather nice, I found myself thinking, warming to the idea.
 
 "In that case... I'll pay for my own."
@@ -168,7 +168,7 @@ Thinking it through that far, I reconsidered. This sort of thing... probably isn
 
 Yui-san, who probably didn't suspect for a moment that I was jealous of her secretary, whom I hadn't even met yet, looked at me with gentle eyes and said that.
 
-　Places I wanted to go? There were plenty. Too many, in fact.
+　Places I wanted to go? There were plenty. Too many, in fact.\
 I thought for just a moment, then looked straight into Yui-san's eyes and said the place I most wanted to go right now.
 
 "...The aquarium."
@@ -199,18 +199,18 @@ Stepping out of the car, Yui-san took a tea set and a paper bag containing loung
 
 "I'll leave another set at home, so feel free to come and stay anytime."
 
-Saying this, Yui-san smiled, then reached out and gently stroked my cheek affectionately.
+Saying this, Yui-san smiled, then reached out and gently stroked my cheek affectionately.\
 Just this slight touch made my heart beat faster, thumping away in an amusing way.
 
-What is Yui-san thinking right now? I... don't want to go home. I want to stay with her longer. That's what I'm thinking.
+What is Yui-san thinking right now? I... don't want to go home. I want to stay with her longer. That's what I'm thinking.\
 I swallowed hard, holding back the words threatening to spill from my lips, and nodded. Yui-san lowered the outer corners of her eyebrows and gave a soft smile.
 
 "...Kanata, why are you so adorable? I don't want to let you go. Why don't you stay over again tonight?"
 
 "Eh..."
 
-I felt Yui-san's gaze fixed on my lips, and my heart skipped a beat despite myself.
-Back in our school days, Yui-san would probably have kissed me without hesitation.
+I felt Yui-san's gaze fixed on my lips, and my heart skipped a beat despite myself.\
+Back in our school days, Yui-san would probably have kissed me without hesitation.\
 But now — those gentle dark eyes just look at me, never daring to touch.
 
 　Yet those lips kept saying things that made me think. Hearing that made me hope. That she still liked me.
@@ -229,7 +229,7 @@ If only I could say I don't want to go home either. She knows my personality wel
 
 "...Good night, Yui."
 
-Unable to voice how much longer I wanted to stay, I reluctantly made my way towards the apartment.
+Unable to voice how much longer I wanted to stay, I reluctantly made my way towards the apartment.\
 Turning just before the door, Yui was still outside the car, watching me. She waved with a smile, so I waved back the same way.
 
 　Even after that whirlwind spring ended, I still liked you just as much. Since we met again, that feeling has grown stronger and stronger, to the point it could overflow at any moment.

@@ -206,7 +206,7 @@ Her resentful gaze pierces me like a needle. She probably still doesn't realise 
 
 "Don't sulk, Yui-san. Let's drop this, shall we? Come on, I'm sleepy... Let's sleep together."
 
-Saying that, I pull her neck close to me. Ah, that lovely scent again. Perfume and Shachi-kun alone just weren't enough.
+Saying that, I pull her neck close to me. Ah, that lovely scent again. Perfume and Shachi-kun alone just weren't enough.\
 The real thing is completely different. A slow, steady wave of euphoria washes over me. Yui-san's scent is addictive, I think.
 
 "Kanata—"

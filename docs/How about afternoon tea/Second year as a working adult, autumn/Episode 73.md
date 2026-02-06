@@ -29,7 +29,7 @@ Placing sliced onions onto the grill with heavy metal chopsticks, I glanced at t
 
 "Mitsuya-san, Seno-san. I've been meaning to apologise for ages. I'm terribly sorry that my departure meant you both had to work overtime. So, no successor has been decided yet?"
 
-I'd noticed the increase in their overtime since I left, having checked the departmental accounting data.
+I'd noticed the increase in their overtime since I left, having checked the departmental accounting data.\
 It wasn't just once or twice I'd seen Seno-san, whose motto was surely 'leaving on time without fail', still at her desk past six.
 
 　Even if Manager Yamazato is a superwoman at her job, she's on reduced hours, and there's a limit to how much she can handle.
@@ -58,8 +58,8 @@ After teasing Mitsuya-san, Seno-san turned back to me.
 
 "Manager Yamazato seems to be carefully vetting the successor, so I don't think you need to worry. She's quite keen on training people, so I imagine she wants to choose a subordinate she can nurture."
 
-It was true, Manager Yamazato was a skilled mentor, I recalled.
-　Mitsuya-san, who transferred over with me, was already a capable worker back at the previous company.
+It was true, Manager Yamazato was a skilled mentor, I recalled.\
+　Mitsuya-san, who transferred over with me, was already a capable worker back at the previous company.\
 Manager Yamazato saw that in an instant after working with her just a little, and after minimal training, assigned her tasks appropriately as an immediate asset.
 
 Someone who can adapt their training approach to suit their subordinates. That's the image I admired in Manager Yamazato.
@@ -136,8 +136,8 @@ Standing there, beer mug in hand, was Niiyama-san, wearing his characteristic sm
 
 "Mind if I sit here?"
 
-Before I could say yes or no, Niiyama-san pulled out the chair next to me and sat down.
-I couldn't help but give a wry smile at his timing.
+Before I could say yes or no, Niiyama-san pulled out the chair next to me and sat down.\
+I couldn't help but give a wry smile at his timing.\
 After all, just now, Mitsuya-san and Seno-san had been on the verge of arguing over Niiyama-san.
 
 "Right then, cheers."
@@ -148,7 +148,7 @@ I clinked my glass against the mug he offered and gave a slight bow.
 
 "Well, that's only natural for the president's secretary, isn't it?"
 
-When Mitsuya-san said that, Niiyama-san laughed. I was sure Niiyama-san was a year senior to Mitsuya-san, but she wasn't using honorifics. Come to think of it, these two might have been close for a long time.
+When Mitsuya-san said that, Niiyama-san laughed. I was sure Niiyama-san was a year senior to Mitsuya-san, but she wasn't using honorifics. Come to think of it, these two might have been close for a long time.\
 　But — Mitsuya, silently stuffing her face with meat, just didn't look like she fancied Niiyama-san at all...
 
 "Aosawa-san's amazing, isn't he? I was really surprised. Heard there were loads of applicants for the president's secretary position."
@@ -173,17 +173,17 @@ The moment the criticism ricocheted, Seno-san, unusually, visibly furrowed his b
 
 "...I'm going for a smoke."
 
-Saying that, Mitsuya-san stood up. Wait a moment, please, Mitsuya-san. Don't leave me behind in this atmosphere—
+Saying that, Mitsuya-san stood up. Wait a moment, please, Mitsuya-san. Don't leave me behind in this atmosphere—\
 Unnoticing my pleading gaze, she stuffed the cigarette packet she'd left on the table into her pocket and walked away.
 
 "Hey, wait up!"
 
-With a clatter, Seno-san too went after Mitsuya-san's retreating back.
+With a clatter, Seno-san too went after Mitsuya-san's retreating back.\
 Wait, don't leave me behind too, Seno-san. If Yui-san were to see me alone with Niiyama-san...
 
 "What's she angry about?"
 
-Just as Niiyama-san tilted his head, a hand landed on my shoulder. Startled, I spun round.
+Just as Niiyama-san tilted his head, a hand landed on my shoulder. Startled, I spun round.\
 　Looking up, Yui-san was standing right beside me.
 
 "Th-The President...!?"
@@ -200,10 +200,10 @@ Yui-san asked this with a smooth smile, and her words stung my ears. I don't thi
 
 "I just fancied catching up with Aosawa-san after so long. We were quite close back at the old company, chatting often. Right?"
 
-Asked for agreement, I gave a wry smile. No, even if we did talk, it was just small talk. We weren't actually close.
+Asked for agreement, I gave a wry smile. No, even if we did talk, it was just small talk. We weren't actually close.\
 What should I do? Please, don't say anything else that might fuel Yui-san's jealousy.
 
-　Because the other night — it was awful. Yui-san is usually so incredibly kind, but when that switch flips, she becomes like a different person, so mean.
+　Because the other night — it was awful. Yui-san is usually so incredibly kind, but when that switch flips, she becomes like a different person, so mean.\
 If I kept being held like that, I felt like some strange door inside me I didn't even know existed would be forced open. It was terrifying. Just remembering it makes my face flush.
 
 　I know all that jealousy stems from love, but Yui in that mode is a bit... too intense for someone as inexperienced as me.
@@ -224,7 +224,7 @@ As Niiyama-san pressed me with his questions, I just... well, I thought, whateve
 
 At that, Niiyama-san slumped, his shoulders dropping dramatically. Seeing him like that, Yui-san beamed, looking thoroughly satisfied.
 
-　After Niiyama-san staggered away from the table, a little while later, Mitsuya-san and Seno-san returned. Neither of them made eye contact at all, making me wonder if they'd had a row. But then again, these two always make up quickly...
+　After Niiyama-san staggered away from the table, a little while later, Mitsuya-san and Seno-san returned. Neither of them made eye contact at all, making me wonder if they'd had a row. But then again, these two always make up quickly...\
 Probably best not to dwell on it. As they say, 'couples' quarrels are of no interest to anyone'.
 
 　Yui-san had moved on to the next table, and just as it seemed the gathering was drawing to a close, my phone buzzed.

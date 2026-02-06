@@ -49,7 +49,7 @@ I gaze back into those eyes asking me so gently. Of course not. Shaking my head 
 
 "No, I don't mind. It always feels good and makes me happy... I just thought maybe today, Yui-san could feel that way too."
 
-Just being touched by your hand, just being gazed at by those eyes full of heat, lets me feel loved from the bottom of my heart.
+Just being touched by your hand, just being gazed at by those eyes full of heat, lets me feel loved from the bottom of my heart.\
 It was none other than Yui-san who taught me that uniting bodies can fill the heart too.
 
 "Yui... do you dislike being touched by me?"
@@ -62,12 +62,12 @@ I squeezed her hesitant hand firmly, as if to seal the deal. Having finally mana
 
 "...Do you want it that much? Absolutely?"
 
-I nodded. I didn't know if I could do it well, but you wouldn't know unless you tried.
+I nodded. I didn't know if I could do it well, but you wouldn't know unless you tried.\
 Yui seemed to ponder for a moment, then looked straight at me and smiled defiantly. It was a slightly challenging smile I'd never seen before.
 
 "Well then... see if you can get me in the mood. If you manage that, I'll give in today."
 
-Get me in the mood...? Taken aback by this sudden demand, I hesitated just a little.
+Get me in the mood...? Taken aback by this sudden demand, I hesitated just a little.\
 Her fingers took my hand and drew it to her mouth. After gently pressing her lips against mine, she lightly bit my middle finger. Startled, I pulled my hand away.
 
 Amused by my reaction, Yui-san smiled mischievously.
@@ -78,8 +78,8 @@ Amused by my reaction, Yui-san smiled mischievously.
 
 I slid my hand under the hem of her shirt to remove it, touching her smooth side. Yui laughed, saying it tickled, completely ruining the mood, and I puffed out my cheeks.
 
-What should I do? How did I always handle this before? I tried desperately to recall the nights we'd spent together, but my clumsiness made me fumble.
-Slowly, I pulled the shirt up to her chest, revealing her pure white skin and navy underwear. I'd seen it just now in the hot spring, yet somehow it felt incredibly alluring, making my heart leap.
+What should I do? How did I always handle this before? I tried desperately to recall the nights we'd spent together, but my clumsiness made me fumble.\
+Slowly, I pulled the shirt up to her chest, revealing her pure white skin and navy underwear. I'd seen it just now in the hot spring, yet somehow it felt incredibly alluring, making my heart leap.\
 Without thinking, I hurriedly pulled the shirt back down.
 
 「……Yui-san, I suppose you'll have to take it off yourself」
@@ -98,8 +98,8 @@ She tugged at the hem of my shirt with her fingertips. Somehow, Yui-san seemed u
 
 "Take it off yourself and show me."
 
-Yui-san always undressed me, so I never imagined she'd tell me to undress myself. Suddenly, I felt terribly embarrassed.
-But then again, I was the one who'd asked Yui-san to "take it off" in the first place — so perhaps I had no grounds to complain.
+Yui-san always undressed me, so I never imagined she'd tell me to undress myself. Suddenly, I felt terribly embarrassed.\
+But then again, I was the one who'd asked Yui-san to "take it off" in the first place — so perhaps I had no grounds to complain.\
 　Her eyes fixed on me looked mischievous, and I felt if I dawdled any longer, she might take back control. So, flustered, I hooked my fingertips onto the buttons of my own blouse.
 
 "...Are you nervous? Your hands are shaking."
@@ -108,7 +108,7 @@ If she knew, why didn't she just help me instead of staring so intently? My nerv
 
 "Are you alright? Should I... take it off for you?"
 
-If I accepted that offer and said "Take it off," I knew exactly what would happen.
+If I accepted that offer and said "Take it off," I knew exactly what would happen.\
 I get aroused just from Yui-san touching me, so why isn't it the same for her? Is it the difference in experience?
 
 "I can... take it off myself..."
@@ -137,7 +137,7 @@ She said I could do whatever I wanted — but what should I do? What on earth sh
 
 Yui's hand undid the hook on my skirt and pulled down the zip. Surprised, I hear her say, "You'll crease it, take it off," but having all my clothes except my underwear taken away leaves me feeling rather exposed.
 
-Desperately, I rack my brains. How did Yui-san always hold me? I try to recall, reaching out my trembling fingertips towards her.
+Desperately, I rack my brains. How did Yui-san always hold me? I try to recall, reaching out my trembling fingertips towards her.\
 As I lean over her, the bed springs creak. I hadn't realised. I'd never noticed before, always too flustered, but being the one doing it reveals so many things.
 
 "...Is it... okay if I kiss you?"
@@ -150,7 +150,7 @@ Oh, well, whatever happens, happens.
 
 　Closing my eyes, I gently pressed my lips to hers, and all the strength seemed to drain from my body.
 
-Just touching her felt wonderful, but — huh? I thought. The sweet tongue that would normally sneak in wasn't making any move to enter.
+Just touching her felt wonderful, but — huh? I thought. The sweet tongue that would normally sneak in wasn't making any move to enter.\
 Wondering why, I lifted my face and met her eyes directly.
 
 "Um, Yui-san..."
@@ -167,8 +167,8 @@ Hearing that left me flustered. Gently, his thumb traced my lips softly.
 
 "...This doesn't get me in the mood at all. Remember how I always do it. Try doing it the same way."
 
-Even if you tell me to do the same, I've no idea what you mean. All I ever think about is how good it feels; I've no clue what's actually happening to me.
-Hesitantly, I drew my lips closer and gave them a quick lick. Yui-san parted her lips slightly, so I timidly slipped my tongue inside.
+Even if you tell me to do the same, I've no idea what you mean. All I ever think about is how good it feels; I've no clue what's actually happening to me.\
+Hesitantly, I drew my lips closer and gave them a quick lick. Yui-san parted her lips slightly, so I timidly slipped my tongue inside.\
 　But — the moment the tips of our tongues touched, I startled and pulled mine back, making Yui chuckle softly.
 
 "Yui... I don't know what to do..."
@@ -177,10 +177,10 @@ Hesitantly, I drew my lips closer and gave them a quick lick. Yui-san parted her
 
 An arm wrapped around my back, pulling me close with a firm tug. As our lips met, this time her gentle tongue slipped into my mouth like it always did.
 
-Her tongue gently entwined with mine, sending shivers through my body.
+Her tongue gently entwined with mine, sending shivers through my body.\
 No. I shouldn't be reacting like this. It's not like I'm the one being held today. My body was more honest than my mind, and with each kiss, a slow, deep heat spread through my stomach.
 
-When my hips were gently stroked and my tongue sucked, a hot sensation shot between my legs — startled, I jerked away.
+When my hips were gently stroked and my tongue sucked, a hot sensation shot between my legs — startled, I jerked away.\
 Why was I reacting like this? My body hadn't been like this before. Ever since I started seeing Yui-san, my body had gone haywire.
 
 　Embarrassed, I lowered my gaze.
@@ -189,12 +189,12 @@ Why was I reacting like this? My body hadn't been like this before. Ever since I
 
 "N-nothing at all."
 
-My body felt as though it had been set alight, the heat building up in a swirling, suffocating way. I felt like I might lose control.
+My body felt as though it had been set alight, the heat building up in a swirling, suffocating way. I felt like I might lose control.\
 Does Yui-san always feel like this when she's with me? My body felt painful, frustrating, and I felt like crying.
 
 　What should I do? I want her to touch me. Once that thought entered my mind, it was over.
 
-Trying to calm down, I buried my face in the nape of her neck and inhaled Yui-san's scent. But that very fragrance, far from soothing me, only made the heat in my body worsen.
+Trying to calm down, I buried my face in the nape of her neck and inhaled Yui-san's scent. But that very fragrance, far from soothing me, only made the heat in my body worsen.\
 It backfired. What on earth should I do? It wasn't supposed to be like this.
 
 "Yui..."
@@ -215,7 +215,7 @@ Burying my face in her neck, I protested in a trembling voice. I knew full well 
 
 "...I think you did really well, Kanata. Good girl, good girl."
 
-She patted my head gently, speaking as if soothing a child, and I could almost hear the sound of my spirit snapping.
+She patted my head gently, speaking as if soothing a child, and I could almost hear the sound of my spirit snapping.\
 My body was burning up. I felt like I was going to lose control.
 
 "Surrender?"
@@ -244,7 +244,7 @@ I’d suspected it all along... Yui-san, who’s usually so kind, is teasing in 
 
 　I couldn't say it out loud, too embarrassed. But my body was already aflame, beyond control... I couldn't sleep like this. I didn't want her to stop here.
 
-Just then, I suddenly remembered. Right, there was a way to tempt her without saying a word.
+Just then, I suddenly remembered. Right, there was a way to tempt her without saying a word.\
 I gripped her left hand tightly, lifting it up, and pressed my lips to her middle and ring fingers. Then, gently, I took them into my mouth and bit down lightly.
 
 　Yui-san always said that when I touched these fingers on her left hand, she couldn't help but think I was inviting her. So, I suppose that's what it means.
@@ -259,7 +259,7 @@ The finger withdrawn from my mouth gently traced the line from my neck down to t
 
 「Since you begged properly, you'll get a reward」
 
-I nodded quietly. "Lift your hips a little," she said gently, and I obediently did as told.
+I nodded quietly. "Lift your hips a little," she said gently, and I obediently did as told.\
 Yet, there was no sign of her pushing me down. Wondering why, I looked up at her. Yui-san must have noticed my expression, for she gave a soft laugh.
 
 "Stay like that. Climb on top."
@@ -292,7 +292,7 @@ Whatever the reason, I absolutely must never leave Yui-san alone again...
 
 "...Not really, I'm not sulking..."
 
-On the way home in the car, Yui-san asked me that, half-jokingly.
+On the way home in the car, Yui-san asked me that, half-jokingly.\
 Not sulking. It's just that remembering yesterday makes me feel a bit embarrassed, so I can't quite look at her.
 
 "Yui-san's meanness isn't something that just started now..."
@@ -313,7 +313,7 @@ Yui, singing a tune with one hand on the wheel, seemed unusually cheerful. So, I
 
 Given how much energy I'd expended last night, I'd been hoping to just chill with Yui-san until evening anyway, so it worked out perfectly.
 
-After the long drive, we arrived at Yui-san's house just past noon. She opened the garage door and parked the car.
+After the long drive, we arrived at Yui-san's house just past noon. She opened the garage door and parked the car.\
 　Feeling a bit sleepy, I started taking my things out of the car when Yui gently took my hand.
 
 It made me happy that she held my hand even for the short walk from the garage to the front door. As I thought this and looked at her, Yui looked back at me and gave me a warm smile.
@@ -328,14 +328,14 @@ We were exchanging such trivial talk when I went to unlock the door.
 
 "——Yui."
 
-My heart gave a sharp thud. A low, resonant male voice came from behind me, and I turned.
+My heart gave a sharp thud. A low, resonant male voice came from behind me, and I turned.\
 —His gaze was like that of a snake stalking its prey. Standing there in plain clothes, tall and imposing, he wore a faint, knowing smile.
 
 　Startled, I tried to pull my hand away, but Yui-san gripped it tightly, stopping me. I felt myself about to panic, but Yui-san calmly turned to face Kitakami-san.
 
 "I was wondering who you were meeting, ignoring messages from your boyfriend... but it was Aosawa-san. That's a relief."
 
-His piercing gaze fixed on our clasped hands. I felt cold sweat trickle down my spine.
+His piercing gaze fixed on our clasped hands. I felt cold sweat trickle down my spine.\
 What on earth should I say? As I hesitated, Yui-san opened her mouth without any sign of fluster.
 
 "Hang on, when did we become a couple again?"
@@ -386,7 +386,7 @@ Now that she put it like that, he certainly didn't seem like that sort. But...
 
 "...All Shinji wants is status. Once my father understands my situation, I intend to have him promise Shinji a suitable position too, so it'll be fine. Even if our engagement is called off, nothing really changes. In fact, wouldn't Shinji be happy to marry someone he truly loves?"
 
-I wonder if that's really true. Somehow, I can't quite see Kitakami-san thinking that way...
+I wonder if that's really true. Somehow, I can't quite see Kitakami-san thinking that way...\
 　Yui, perhaps you simply don't understand because you're too disinterested in Kitakami-san...
 
 As if to dispel my unease, I rubbed myself against Yui's chest and held her body tightly.

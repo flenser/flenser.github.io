@@ -4,7 +4,7 @@ title: "Episode 58: Is it better to have a wealthy partner?"
 ---
 Episode 58: Is it better to have a wealthy partner?
 
-Weekend. A welcome party for the former web production division was being held, so after finishing work, I headed to the venue hotel with Mitsuya-san and Seno-san.
+Weekend. A welcome party for the former web production division was being held, so after finishing work, I headed to the venue hotel with Mitsuya-san and Seno-san.\
 It was only two stops by train from the head office, and not far from the nearest station, so the three of us walked together.
 
 　Manager Yamazato couldn't attend as she had to pick up her child from nursery, so I couldn't say I was entirely without a twinge of unease about the absence of someone to act as a buffer between Mitsuya-san and Seno-san.
@@ -37,7 +37,7 @@ Mitsuya-san's slanted eyes sharpened further, a strained smile playing on her li
 
 Not wealthy, eh? It's true. Having listened to various adult women, I've come to understand that once you pass your mid-twenties, women do tend to become more practical.
 
-　The kind of love you could pursue purely on feelings back in student days gradually becomes harder with each passing year.
+　The kind of love you could pursue purely on feelings back in student days gradually becomes harder with each passing year.\
 You start choosing partners based on their job, income, status.
 
 I suppose that’s not just true for Seno-san, but probably for any woman.
@@ -62,7 +62,7 @@ As expected, the cuisine at a high-class hotel is something else. After brief gr
 
 　Standing reception was perfect. Apparently, we could eat and drink as much as we liked today. The company was footing the bill, of course.
 
-I’d assumed that since it was a welcome party, I’d have to wander the tables with a bottle of beer in hand. But Seno-san informed me, "Since the president changed, the culture of female staff going round to pour drinks has disappeared. Feel free to move about as you please."
+I’d assumed that since it was a welcome party, I’d have to wander the tables with a bottle of beer in hand. But Seno-san informed me, "Since the president changed, the culture of female staff going round to pour drinks has disappeared. Feel free to move about as you please."\
 So, taking her up on that, I piled my plate high with food.
 
 "...Hotel food really is delicious, isn't it?"
@@ -77,7 +77,7 @@ Asked by Mitsuya-san, I shook my head vigorously from side to side. I hadn't kno
 
 "Well, I'd never dream of paying for dinner myself, though."
 
-Saying that, Mitsuya-san stuck out her tongue and laughed. Ah, so this is what they mean by a little devil type.
+Saying that, Mitsuya-san stuck out her tongue and laughed. Ah, so this is what they mean by a little devil type.\
 　She took a big bite of roast beef. Mmm, just as expected. It was incredibly delicious. The taste made it easy to understand why our company's restaurant business was doing so well.
 
 "...Seno-san, really, her attitude is completely different with men and women, isn't it?"
@@ -116,7 +116,7 @@ Yui-san had been going from table to table, greeting the staff, so I'd been thin
 
 "Ah, President! We've been waiting for you! Please come over to this table too."
 
-Suddenly changing her tone, Seno-san hooked her arm around Yui-san's and pulled her sharply towards her.
+Suddenly changing her tone, Seno-san hooked her arm around Yui-san's and pulled her sharply towards her.\
 Yui-san's arm sank into Seno-san's ample bosom.
 
 　At that moment, I didn't miss the fact that Yui-san glanced at Seno-san's chest for just an instant.
@@ -227,7 +227,7 @@ Her dark eyes looked at me with concern. I was so happy I couldn't help but smil
 
 "I'm... fine."
 
-She'd told me not to drink too much because tomorrow was our date.
+She'd told me not to drink too much because tomorrow was our date.\
 But at least I could stay with Yui-san until we got home.
 
 　I hugged her tightly, as if reclaiming the arm Seno-san had snatched away earlier, and closed my eyes again, feeling safe.
