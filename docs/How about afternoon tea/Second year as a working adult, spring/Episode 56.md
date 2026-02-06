@@ -14,7 +14,7 @@ Right after meeting Yui-san, I decided to go to her company. During the subseque
 
 That's why I ended up moving near the office. When I complained to Yuri about how tough packing was, she offered to help — and that's how Ritsu-san ended up coming too.
 
-　I heard later that, surprisingly, most members of the web production department had decided to join the new company. Mitsuya-san too, of course.
+　I heard later that, surprisingly, most members of the web production department had decided to join the new company. Mitsuya-san too, of course.\
 And no wonder – the salary offered during the interview was a full thirty thousand yen higher than the base pay at our current company.
 
 After the announcement, the initial commotion within the company gradually subsided. The handover of duties concluded, and the date for our transfer was set in quick succession.
@@ -67,12 +67,12 @@ You don't have to be so shocked... Is that weird? Actually, Yuri knew I'd been h
 
 "Right!? Next time she makes Kanata cry, even if she is Ritsu-san's best friend, I won't forgive her."
 
-Yuri slammed her iced tea glass down on the table and declared loudly. I’d thought myself lucky to have such a good friend, but she knew I still liked Yui-san, and from the way the conversation had gone, I was sure Ritsu must have picked up on it too.
+Yuri slammed her iced tea glass down on the table and declared loudly. I’d thought myself lucky to have such a good friend, but she knew I still liked Yui-san, and from the way the conversation had gone, I was sure Ritsu must have picked up on it too.\
 Embarrassed, I covered my flushed face with both hands.
 
 "Right then. If by any chance that ever happens, this time we'll beat the living daylights out of Yui together. Give her a proper thrashing. Seriously."
 
-After clasping hands firmly and sealing their ominous pact, Ritsu and Yuri reconciled. I was the one involved, yet somehow I felt left out.
+After clasping hands firmly and sealing their ominous pact, Ritsu and Yuri reconciled. I was the one involved, yet somehow I felt left out.\
 　Feeling unbearably awkward, I tried to change the subject. After moistening my mouth with iced tea, I told them in a weak voice.
 
 "Um... we should probably get packing soon..."
@@ -83,7 +83,7 @@ Hearing them both say that in unison, I felt deflated and slumped my shoulders.
 
 ＊＊＊
 
-Then, thanks to their help, the move went smoothly, and before I knew it, the memorable day of my first day at work arrived.
+Then, thanks to their help, the move went smoothly, and before I knew it, the memorable day of my first day at work arrived.\
 Just for today, I dressed in a suit I wasn't quite used to and made my way to the office. The weather was warm enough to hint at summer approaching. Bringing my parasol had been the right call.
 
 Ever since that day I sulked about not getting a message, Yui-san started messaging me every day.
@@ -98,12 +98,12 @@ No emojis, just her usual simple message, but that was fine. Because surely, I w
 
 From today, our relationship is president and employee. I'm sure we won't be able to chat casually around the office anymore. Even so, if you're there every day, even just in the corner of my vision, I'm sure my working life will be more enjoyable than it has been until now. I felt that way.
 
-"Good morning, Aosawa-chan."
+"Good morning, Aosawa-chan."\
 "Good morning, Mitsuya-san."
 
 The company building where I first visited Yui-san was easily twice the size of the one I'd been working in until now. It appeared to be owned by the Ichinose Group, with their offices occupying three entire floors of the building. Other group companies seemed to be housed on different floors of the same building.
 
-After receiving a brief explanation about the building, we waited in a conference room as spacious as a university lecture theatre.
+After receiving a brief explanation about the building, we waited in a conference room as spacious as a university lecture theatre.\
 　We, the nearly thirty former employees of the Web Production Division, had been informed beforehand that the production team members would be assigned to a newly established department, while sales and administrative staff would be placed in departments suited to their aptitudes.
 
 Today, after the induction ceremony, we would receive our official appointment letters. Following that, there would be an orientation, and our actual department assignments would be made at a later date.
@@ -118,7 +118,7 @@ Five minutes before the appointed time, the conference room door opened. When Yu
 
 "That person is the president? Wow, she's absolutely stunning..."
 
-　Mitsuya-san murmured in surprise. Of course she is, Yui-san is incredibly beautiful, I thought, feeling a surge of pride even though it wasn't about me.
+　Mitsuya-san murmured in surprise. Of course she is, Yui-san is incredibly beautiful, I thought, feeling a surge of pride even though it wasn't about me.\
 I was genuinely stunned the first time I met Yui-san too. I like her in casual clothes, but she looks absolutely stunning in a suit as well. Thinking this, I followed Yui-san with my eyes as she took the stage.
 
 I thought our eyes met just once, when Yui-san looked up. Yui-san smiled softly and took hold of the microphone.
@@ -129,7 +129,7 @@ I thought our eyes met just once, when Yui-san looked up. Yui-san smiled softly 
 
 Mitsuya-san sighed as she said this, gently rubbing her shoulders, stiff with tension and fatigue.
 
-　The induction ceremony, appointment letter handover, and orientation flew by in a flash.
+　The induction ceremony, appointment letter handover, and orientation flew by in a flash.\
 I hadn't had time to speak with Yui-san, but when she handed me my letter, she looked me straight in the eye and smiled. Just that alone made today worthwhile.
 
 "Still, it's good we're in the same department again. Management Control."

@@ -42,7 +42,7 @@ Because it's a dream. I can say anything freely. The Yui-san of that time would 
 
 Just as I wished, the Yui-san in my dream smiled happily and gently pressed her lips to mine.
 
-Please don't wake me, I prayed as I closed my eyes too.
+Please don't wake me, I prayed as I closed my eyes too.\
 I want to stay in this dream forever. If possible, forever. That was my wish—but.
 
 "...Kanata, wake up. Kanata."
@@ -83,8 +83,8 @@ Feeling awkward, I looked away, and Yui-san laughed again at my reaction.
 
 "...Well, it doesn't matter if you don't remember. Come on, have a bath. I've run the water for you."
 
-Yui-san seemed unusually refreshed, so she must have woken before me and already bathed.
-Despite drinking so much last night, I miraculously avoided a hangover and felt perfectly fine, which was a relief.
+Yui-san seemed unusually refreshed, so she must have woken before me and already bathed.\
+Despite drinking so much last night, I miraculously avoided a hangover and felt perfectly fine, which was a relief.\
 After all, I'd been looking forward to our date too.
 
 　Taking the offered dressing gown, I let her lead me by the hand towards the bathroom.
@@ -111,7 +111,7 @@ Could it be... This scene felt strangely familiar. Smiling faintly, I headed tow
 
 Drawn in by Yui-san's beaming smile and beckoning hand, I smiled back and made my way towards the sofa.
 
-It had been ages since she'd dried my hair like this.
+It had been ages since she'd dried my hair like this.\
 　Her familiar, unhurried movements, unchanged from those days, felt nostalgic. Being like this made it feel like we'd gone back in time, and a tingling sensation stirred deep within my chest.
 
 If only Yui still felt the same way... When next spring comes, might our relationship change in some way?

@@ -8,7 +8,7 @@ Episode 57 So... can I look forward to Saturday night too?
 
 The morning office. Hearing that greeting from the entrance, I gently lifted my gaze from the monitor. Yui-san appeared briskly, greeting employees with "Good morning" as she walked, holding a drink cup from the milk tea specialist shop near the station in her hand.
 
-My desk is on the route to the president's office.
+My desk is on the route to the president's office.\
 Every morning, I watch Yui-san's face as she passes by me and say, "Good morning."
 
 "Right, good morning."
@@ -23,7 +23,7 @@ She's in her late thirties, a working mother right in the thick of raising her c
 
 　Besides myself and Mitsuya-san, there is one other member of the Budget Management Section. She is Seno-san, seated diagonally in front of me, with bright brown hair loosely tied back.
 
-　She has full, plump lips and round eyes that are quite striking. She's the same age as Mitsuya-san and Yui-san, twenty-six this year.
+　She has full, plump lips and round eyes that are quite striking. She's the same age as Mitsuya-san and Yui-san, twenty-six this year.\
 Despite her somewhat childlike features, her figure is curvaceous in all the right places, giving her an alluring air. The impression she gives is... slightly calculating, or perhaps a bit too cunning.
 
 She seems incredibly popular with the male employees... but she didn't get on well with Mitsuya-san.
@@ -36,7 +36,7 @@ After three weeks, I realised this company is incredibly easy to work for. Takin
 
 　Non-smokers benefit too, of course. The break room is always available, and there's a cup-style vending machine where drinks cost just ten yen each. Since the system automatically deducts payments from your salary when you scan your ID card, there's no need to carry cash.
 
-Manager Yamazato explained that these changes were introduced after the president changed, to boost work efficiency.
+Manager Yamazato explained that these changes were introduced after the president changed, to boost work efficiency.\
 Apparently, the previous president was a rather intimidating figure, seemingly stuck in the Shōwa era. Performance kept deteriorating, and the office atmosphere was always tense.
 
 Initially, there was apparently mixed opinion about the appointment of the very young Yui-san as president, but now everyone unanimously says, "It's good the president changed."
@@ -87,7 +87,7 @@ I too discarded the water I'd warmed in the pot once, then asked as I added the 
 
 To be more precise, it tastes better brewed in a teapot. After pouring the water, I gently closed the pot's lid and pressed the timer.
 
-　Yui-san blinked in surprise, murmuring, "Oh, really?" Honestly. You could look up how to brew tea properly in no time.
+　Yui-san blinked in surprise, murmuring, "Oh, really?" Honestly. You could look up how to brew tea properly in no time.\
 But I felt a little pleased. That something I liked, you'd come to like too, because of my influence. If that was the case, I wanted you to enjoy it even more, if possible.
 
 Even tea sold in ordinary shops is delicious, but there are shops that stock even finer leaves.
@@ -112,14 +112,14 @@ Not after work on a weekday, but on a day off. That meant we could spend a long 
 
 "A, a date?"
 
-Yui-san is the sort of person who casually says things like that without meaning it, so I couldn't tell if she was serious or joking.
+Yui-san is the sort of person who casually says things like that without meaning it, so I couldn't tell if she was serious or joking.\
 Just as I was about to frantically deny any such intention, the timer beeped, pi-pi-pi, so I grabbed the kettle to cover my tracks.
 
 "Ah... Yui-san, you should take the tea bag out soon or it'll become bitter."
 
 "Oh, right. I forgot."
 
-I poured the tea into the cup. Yui-san also pinched the string of her tea bag and removed it from her mug. Just seeing the colour, I knew it would turn bitter.
+I poured the tea into the cup. Yui-san also pinched the string of her tea bag and removed it from her mug. Just seeing the colour, I knew it would turn bitter.\
 I thought I should teach her how to brew tea properly next time I go to buy tea leaves.
 
 "Kanata. At Friday's welcome party, try not to drink too much so it doesn't interfere with your date, alright?"
@@ -136,7 +136,7 @@ I caught the scent of a refreshing citrus perfume.
 
 "So... can I look forward to Saturday night too?"
 
-She whispered to me, I hastily scrambled back. Looking forward to what exactly? As for alcohol, I have a history.
+She whispered to me, I hastily scrambled back. Looking forward to what exactly? As for alcohol, I have a history.\
 Even that night I first lay with Yui-san — I haven’t forgotten that I was drunk and made the first move.
 
 Seeing my face flush bright red, Yui-san chuckled heartily. Only then did I realise she was teasing me, and I shoved her shoulder hard.
@@ -175,7 +175,7 @@ I nodded honestly. I'd never admit it, but during the time apart, I'd endured ni
 
 "...I told you I didn't want you to change it."
 
-I think it was around the time I was agonising over what to get Yui-san for her birthday. When Yui mentioned changing her perfume, I tried to stop her. I definitely said I didn't want her to change it back then.
+I think it was around the time I was agonising over what to get Yui-san for her birthday. When Yui mentioned changing her perfume, I tried to stop her. I definitely said I didn't want her to change it back then.\
 I realise it's incredibly selfish and unreasonable of me to expect her to stay the same while we're apart, especially after I was the one who distanced myself.
 
 Yui just smiled at me like that and gently stroked my cheek.

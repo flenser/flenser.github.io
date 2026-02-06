@@ -12,14 +12,14 @@ Startled, I turned my gaze towards the direction I hadn't noticed, hidden by Yui
 
 "I-I'm terribly sorry..."
 
-I apologised reflexively, struggling to regain my balance after nearly falling and leaning my weight onto Yui-san.
+I apologised reflexively, struggling to regain my balance after nearly falling and leaning my weight onto Yui-san.\
 I'd been in a state of utter confusion since earlier. Why was Yui-san at my company, and with the president? What was going on?
 
 "President Ichinose, are you alright? Our employee... I'm terribly sorry."
 
 "Eh... President...!?"
 
-What did he just say? President Ichinose...!? I couldn't help but cry out. Yui looked down at me and chuckled softly.
+What did he just say? President Ichinose...!? I couldn't help but cry out. Yui looked down at me and chuckled softly.\
 Just like back then. Those same dark eyes, that same lustrous long hair. But she seemed to have matured slightly since then, her beauty polished even further.
 
 "It's fine, don't worry about it. Are you alright, Kanata? No injuries?"
@@ -40,8 +40,8 @@ As she spoke, Yui's thumb swiftly swiped across the screen of my confiscated pho
 
 "Eh? Wait, hold on, Yui, what are you doing..."
 
-I remembered I'd been trying to send a message to Mitsuya-san earlier, leaving the screen unlocked.
-　After Yui-san did something on my phone, a ringtone immediately sounded from the breast pocket of her jacket, cutting off almost instantly.
+I remembered I'd been trying to send a message to Mitsuya-san earlier, leaving the screen unlocked.\
+　After Yui-san did something on my phone, a ringtone immediately sounded from the breast pocket of her jacket, cutting off almost instantly.\
 It dawned on me a moment later that she must have made a call from my phone.
 
 Right, my phone number — I'd changed it since then. As ever, Yui-san really is thorough in that sort of thing.
@@ -78,7 +78,7 @@ But now, having encountered her again like this, my fingers couldn’t stop sear
 
 The moment I saw that company name, a memory I'd been forgetting suddenly flashed back. That hotel where we watched the fireworks together that summer. It was definitely written there. At the entrance, it said "Ichinose Grand Hotel".
 
-The Ichinose Group originally comprised numerous companies. The current president of Ichinose Holdings, a pure holding company, is Yui-san's father.
+The Ichinose Group originally comprised numerous companies. The current president of Ichinose Holdings, a pure holding company, is Yui-san's father.\
 And so, Yui-san became president of one of the subsidiaries operating under that umbrella.
 
 But even so, why on earth was she meeting with our president...? I don't think it was for business negotiations. If it were, it would have been proper for us to send someone over. There's no reason Yui-san would need to make a special trip to our company.

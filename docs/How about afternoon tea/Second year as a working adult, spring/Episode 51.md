@@ -30,7 +30,7 @@ Yuri and I remained as close as ever after graduating university. No matter how 
 
 We'd vent to each other, offer comfort, and somehow got through that whirlwind first year of working life together.
 
-　The drinks after work are truly delicious. Yuri, who can hold her drink better than me, already has half her mug gone.
+　The drinks after work are truly delicious. Yuri, who can hold her drink better than me, already has half her mug gone.\
 After setting her mug down on the table, Yuri suddenly clapped her hands as if remembering something.
 
 "Come to think of it, I saw Ritsu the other day for the first time in ages. She's been transferred back here. Still seems busy as ever, was huffing and puffing."
@@ -57,12 +57,12 @@ At that, Yuri gave a mischievous grin.
 
 Since Yuri is close with Ritsu-san, she surely must know what Yui-san is doing now.
 
-　But since returning to Japan, we hadn't once spoken Yui's name aloud.
+　But since returning to Japan, we hadn't once spoken Yui's name aloud.\
 This autumn, Yui will turn twenty-six. I don't want to think about it, but she might already be married. I know Yuri's right – I should move on.
 
 Even so, I still spend my days clutching my worn-out orca soft toy as I sleep.
 
-　I downed a lemon sour in one gulp, hoping to drown out the unpleasant feelings. Come spring, the pain I thought I’d forgotten would occasionally resurface.
+　I downed a lemon sour in one gulp, hoping to drown out the unpleasant feelings. Come spring, the pain I thought I’d forgotten would occasionally resurface.\
 Whether she knew it or not, Yuri, sitting right in front of me, celebrated my birthday like this every year. I was truly saved by her kindness.
 
 ＊＊＊
@@ -101,12 +101,12 @@ Clam soup, huh? That must mean that set meal place we always go to. In that case
 
 My role in the Management Control Team mainly involves analysing various financial statements from Accounting and managing budgets.
 
-This period after the accounting close, when the data comes through, is the busiest.
+This period after the accounting close, when the data comes through, is the busiest.\
 Checking the shared data, I couldn't help but sigh. Oh dear, another deficit this month.
 
 　This company has multiple IT-related businesses, but the "Web Production Division" I belong to has been operating at a loss since before I joined.
 
-Selling, general and administrative expenses are tracking within budget each month, but the crucial sales figures are utterly hopeless. They routinely fall a full ten per cent below budget.
+Selling, general and administrative expenses are tracking within budget each month, but the crucial sales figures are utterly hopeless. They routinely fall a full ten per cent below budget.\
 Our job is budget management, so when the very foundation is crumbling, we're pretty much powerless.
 
 "Same old story this month, eh?"
@@ -115,7 +115,7 @@ Our job is budget management, so when the very foundation is crumbling, we're pr
 
 "Eh?"
 
-Hearing that out of the blue, I instinctively stopped typing and turned around.
+Hearing that out of the blue, I instinctively stopped typing and turned around.\
 A transfer? No way. The Web Production Division is quite compact compared to others, and within that, the Management Control Team consists of just three people: the manager, myself, and Mitsuya-san.
 
 The thing is, this division has been shrinking year by year. From the company's overall perspective, it's not a department with particularly heavy operational weight, so it tends to be where young staff are assigned, partly for training purposes.

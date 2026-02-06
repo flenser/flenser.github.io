@@ -116,7 +116,7 @@ Well, thinking about it now, I suppose it couldn't be helped. You can't exactly 
 
 "I see... I heard the interviews start next week. About salary conditions and such. They did say that if I wish to stay, they'll try to accommodate me as much as possible, if feasible..."
 
-Production department staff will be transferred to Yui-san's company without question. However, I heard that sales and administrative staff might remain depending on individual circumstances. Whether requests will be granted remains uncertain.
+Production department staff will be transferred to Yui-san's company without question. However, I heard that sales and administrative staff might remain depending on individual circumstances. Whether requests will be granted remains uncertain.\
 What Yui-san likely wants is the production team. Sales and administration are probably just extras.
 
 "...Kanata, what do you want to do?"
