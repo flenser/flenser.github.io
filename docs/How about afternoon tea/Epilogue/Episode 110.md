@@ -6,12 +6,12 @@ Episode 110: Yui, Look This Way
 
 My first experience of first class was a dazzling space that far exceeded my imagination.
 
-Unlike economy, you could stretch your legs, or even lie down.
-I was genuinely moved by this air journey that was almost too comfortable.
+Unlike economy, you could stretch your legs, or even lie down.\
+I was genuinely moved by this air journey that was almost too comfortable.\
 The only drawback, perhaps, was that the seats were so spacious it made the distance between me and Yui-san feel a little greater.
 
-　The aeroplane carrying us was heading for Colombo Airport in Sri Lanka, our stopover en route to our final destination.
-We could have flown via Singapore, but Sri Lanka is famous for its tea, so I'd always wanted to visit.
+　The aeroplane carrying us was heading for Colombo Airport in Sri Lanka, our stopover en route to our final destination.\
+We could have flown via Singapore, but Sri Lanka is famous for its tea, so I'd always wanted to visit.\
 I'd already decided to buy some Ceylon tea at the airport on the way back.
 
 　The nine-hour flight was comfortable. Having endured half-day journeys in economy class every time I returned to London, I thoroughly enjoyed the spaciousness of first class.
@@ -26,9 +26,9 @@ We planned to stay there overnight today – then take a seaplane the next day t
 
 It was night when we arrived, so it was a shame we couldn't see the sea from the plane window, but tomorrow we would surely see the vivid emerald green sea.
 
-As soon as we arrived at the airport, I was surprised by the heat.
-Coming from winter in Japan, the temperature exceeding thirty degrees was quite unbearable.
-　We quickly shed our jackets and were down to short sleeves, but we couldn't adjust to the temperature difference immediately and boarded the car heading for the hotel, wiping away the sweat pouring off us.
+As soon as we arrived at the airport, I was surprised by the heat.\
+Coming from winter in Japan, the temperature exceeding thirty degrees was quite unbearable.\
+　We quickly shed our jackets and were down to short sleeves, but we couldn't adjust to the temperature difference immediately and boarded the car heading for the hotel, wiping away the sweat pouring off us.\
 By the time we'd checked into the hotel and reached the air-conditioned room, we were both drenched in sweat.
 
 "Phew... It's not humid, but it's still hot, isn't it?"
@@ -43,7 +43,7 @@ Diving onto the bed drenched in sweat wasn't an option, so I sat down on the sof
 
 "Aren't you more tired, Yui-san? It's fine, I'll go later."
 
-I'm used to long journeys, but Yui-san isn't, so she must be exhausted.
+I'm used to long journeys, but Yui-san isn't, so she must be exhausted.\
 She always puts me first, but at times like this, I wanted to let her go first, so I suggested it.
 
 Then Yui-san seemed to ponder for a moment before clapping her hands as if struck by inspiration.
@@ -70,7 +70,7 @@ Early in the morning, we headed to the seaplane airport, enjoyed a light meal in
 
 Above the emerald green sea, several small seaplanes floated along the wooden pier.
 
-　Seaplanes can take off and land anywhere there is sea, even without a runway, making them a useful means of transport in countries surrounded by water.
+　Seaplanes can take off and land anywhere there is sea, even without a runway, making them a useful means of transport in countries surrounded by water.\
 The aircraft, with its propeller-equipped wings and gleaming white body adorned with red lines, had floats attached underneath, allowing it to float gracefully on the crystal-clear surface of the water.
 
 It was a tiny little plane, with a capacity of less than twenty people.
@@ -85,7 +85,7 @@ Perhaps unable to withstand the sunlight stinging her eyes, Yui-san slipped on t
 
 　The sight was so picturesque that, before putting on the sunglasses I'd bought for this very day for the first time in my life, I peered through the viewfinder of the camera hanging around my neck and snapped a shot of the seaplane and Yui-san.
 
-Once aboard the plane, the cockpit was right in front of us, being such a small aircraft.
+Once aboard the plane, the cockpit was right in front of us, being such a small aircraft.\
 I stared intently as the pilot, wearing teardrop-shaped black sunglasses, operated unfamiliar switches with practised ease.
 
 　When the engine roared to life, I pressed the small earplugs I'd been given firmly into my ears and gazed out of the window as if I were biting into it.
@@ -94,17 +94,17 @@ The propellers on both wings began to spin round and round.
 
 　The aircraft pulled away from the jetty and headed out to sea. Gaining speed rapidly, the seaplane glided across the emerald green water.
 
-Just as I felt the sensation of being pulled away from the surface, the plane lifted off in an instant.
+Just as I felt the sensation of being pulled away from the surface, the plane lifted off in an instant.\
 I looked down from the plane window at the townscape of Male and the sea. The aircraft headed for the resort island where we were staying, raising its nose as if heading for the sky.
 
-　I think we were only in the air for a few tens of minutes. Gliding smoothly across the water's surface, the plane touched down and taxied alongside a large raft-like structure floating in the sea.
-Right next to it, moored, was a small boat, presumably the means of transport for getting ashore on the island.
+　I think we were only in the air for a few tens of minutes. Gliding smoothly across the water's surface, the plane touched down and taxied alongside a large raft-like structure floating in the sea.\
+Right next to it, moored, was a small boat, presumably the means of transport for getting ashore on the island.\
 Visible to the naked eye, just there, was an island with water villas strung along the coast.
 
-　It seemed this was a sort of stopover point.
+　It seemed this was a sort of stopover point.\
 Not all passengers disembarked; the plane appeared to be heading for the next island with some passengers on board.
 
-Before boarding the small boat, we exchanged greetings with the male concierge assigned to us.
+Before boarding the small boat, we exchanged greetings with the male concierge assigned to us.\
 There were no staff who spoke Japanese, but as the official language across the entire island was English, it posed no problem.
 
 "Kanata, what did he just say?"
@@ -149,7 +149,7 @@ Reaching the sandy beach from the jetty, I was astonished by the fineness of the
 
 After enjoying welcome drinks and receiving a briefing in the lobby, we walked along the long, gently curving jetty towards the overwater villa where we'd be staying from today.
 
-　A soft sea breeze ruffled Yui-san's long black hair as she walked ahead of me. Her white shirt stood out beautifully against the blue sky, and I found myself savouring the thought: ah, how lovely.
+　A soft sea breeze ruffled Yui-san's long black hair as she walked ahead of me. Her white shirt stood out beautifully against the blue sky, and I found myself savouring the thought: ah, how lovely.\
 It was as if she'd stepped straight out of a painting.
 
 "Hey, Yui-san, turn this way."
@@ -172,24 +172,24 @@ I stopped and peered through the camera's viewfinder, pressing the shutter the i
 
 "That might be true, but still—"
 
-As we spoke, we arrived at the villa where we would be staying.
+As we spoke, we arrived at the villa where we would be staying.\
 Yui inserted the key and slowly pushed open the white wooden door.
 
-　What met our eyes was a room with an uninterrupted ocean view.
+　What met our eyes was a room with an uninterrupted ocean view.\
 The air-conditioned interior was comfortable. Beneath a ceiling fan mounted on the high ceiling stood a large bed. Two towel art swans, modelled after real birds, sat side by side on the bed, welcoming us.
 
-　Opening the glass doors facing the sea revealed a terrace with a private pool and two beach beds, plus a ladder leading directly from the room down to the water.
-What an utterly splendid room. Far more impressive than it had appeared in the brochure.
+　Opening the glass doors facing the sea revealed a terrace with a private pool and two beach beds, plus a ladder leading directly from the room down to the water.\
+What an utterly splendid room. Far more impressive than it had appeared in the brochure.\
 The bathroom also offered sweeping sea views, and the shower room floor was glass-tiled – peering down, we saw yellow fish gliding smoothly beneath our feet.
 
 "Hey, Yui, isn't this incredible?! We're literally above the sea. Staying in such a wonderful place for days feels like a dream."
 
-My excitement was unstoppable. Camera in hand, I was darting around the room exploring when suddenly, my hand was grabbed and I was pulled towards someone with all their might.
+My excitement was unstoppable. Camera in hand, I was darting around the room exploring when suddenly, my hand was grabbed and I was pulled towards someone with all their might.\
 Before I knew it, I was being hugged, then tangled up and pushed down onto the bed.
 
 "Whoa! You... you scared me!"
 
-　I hadn't expected to be pinned down so soon after arriving, so I looked up at Yui-san in surprise.
+　I hadn't expected to be pinned down so soon after arriving, so I looked up at Yui-san in surprise.\
 We hadn't even unpacked our suitcases yet. What on earth had come over her?
 
 "Wh-what's wrong?"
@@ -212,12 +212,12 @@ Saying that, Yui-san kissed my forehead soothingly... but was she really joking?
 
 "Sounds good, let's do that."
 
-Opening the suitcase, I first took out Shachi-kun, who'd been transported completely flattened like a rice cracker.
+Opening the suitcase, I first took out Shachi-kun, who'd been transported completely flattened like a rice cracker.\
 Opening the compression bag and sucking out the air, he returned to his original size.
 
 Shaping him with both hands, I gently placed him on the bed so Shachi-kun could see the sea too.
 
-　Shachi-kun had been my steadfast companion during the four years apart from Yui-san.
+　Shachi-kun had been my steadfast companion during the four years apart from Yui-san.\
 I felt truly grateful to have brought him all this way.
 
 "Kanata?"

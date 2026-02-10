@@ -20,17 +20,17 @@ Yui-san murmured softly, gazing up at the clear blue sky.
 
 "Yes, that sounds lovely. I'm looking forward to tonight too."
 
-　After thoroughly enjoying the sandy shore, we returned to the villa and stretched out on the poolside beach beds.
+　After thoroughly enjoying the sandy shore, we returned to the villa and stretched out on the poolside beach beds.\
 Gazing at the horizon stretching endlessly before us, we felt the soft breeze envelop our bodies.
 
 Glancing over, I saw Yui-san notice my gaze and return it with a smile.
 
 "What is it? You're staring."
 
-Ah, this feels so good.
+Ah, this feels so good.\
 　We can keep spending time like this from now on. The two of us, forever.
 
-Yui-san shows me sights I could never see alone.
+Yui-san shows me sights I could never see alone.\
 I'm sure we could go anywhere in this world. Together.
 
 "...Nothing, really. I just thought how happy I am. Thinking about how we can go all sorts of places together from now on."
@@ -51,7 +51,7 @@ I turned away abruptly, as if to hide my flushed face. Then Yui-san laughed, too
 
 We'd splashed out on expensive sunscreen, figuring the sun would be stronger than in Japan. We decided to help each other apply it to the hard-to-reach spots.
 
-As my palm slid over Yui-san's beautiful white back, I started feeling strangely unsettled.
+As my palm slid over Yui-san's beautiful white back, I started feeling strangely unsettled.\
 　I traced the slightly protruding shoulder blades and followed the curve of her spine. I was always the one being hugged by Yui-san, so I'd never really looked at her back like this before.
 
 Wisely resisting the urge to press my lips against her fine, white skin, I deliberately reached around to her side to cover it up. Yui-san laughed, saying it tickled.
@@ -74,7 +74,7 @@ Yui-san had chosen a navy blue swimsuit, which suited her perfectly — her long
 
 My gaze was drawn to her toned, white abdomen. Perhaps because Yui occasionally went to the gym to work out, her body was always supple and beautiful.
 
-Sitting on the edge of the pool, gazing at the emerald green sea and the large clouds floating in the sky, I moved my feet as if stirring the water, and the coolness felt wonderful.
+Sitting on the edge of the pool, gazing at the emerald green sea and the large clouds floating in the sky, I moved my feet as if stirring the water, and the coolness felt wonderful.\
 Yui sat down beside me and dipped her toes into the pool in the same way.
 
 "...When I go back to Japan, I think I'll go to the gym with you, Yui-san."
@@ -97,7 +97,7 @@ Peering at my face, Yui grinned. I had a bad feeling about this.
 
 "When you're feeling good, you tense your stomach, don't you? So I reckon that exercise is plenty."
 
-I shoved Yui's shoulder hard, sending her crashing into the pool.
+I shoved Yui's shoulder hard, sending her crashing into the pool.\
 Splash! Water sprayed everywhere.
 
 "You're such a pervert, Yui!"
@@ -108,13 +108,13 @@ Before sunset, we headed to the pier where a small sightseeing boat for the suns
 
 The sightseeing boat cut through the wind, moving across the sea.
 
-　Using the ladder, I climbed up to the deck with the best view, gripped the railing, and looked straight ahead.
+　Using the ladder, I climbed up to the deck with the best view, gripped the railing, and looked straight ahead.\
 Feeling the sea breeze directly on my cheeks, it felt as though I were flying through the sky.
 
-The light of the sinking sun made the boundary between the clouds and the sky glow orange.
+The light of the sinking sun made the boundary between the clouds and the sky glow orange.\
 I looked beside me. Seeing her squinting, dazzled, I thought she was more beautiful than anyone else in the world.
 
-　This tenderness felt akin to heartache.
+　This tenderness felt akin to heartache.\
 Just seeing Yui-san's smile made my chest tighten painfully.
 
 As if remembering something, I took the camera hanging from my neck and peered through the viewfinder.
@@ -133,7 +133,7 @@ A pod of five or six dolphins appeared in the sunset-tinged sea. Their supple do
 
 "What's that?"
 
-I smiled at Yui, who tilted her head.
+I smiled at Yui, who tilted her head.\
 Right, Yui only watches films, doesn't she? I reflected that my comment was a bit niche.
 
 "...Let's watch one together sometime. You should be able to stream them in Japan too."
@@ -174,7 +174,7 @@ Just standing here side by side, shoulders touching, my heart feels warm as if b
 
 That was everything. Falling in love with you, experiencing so much, the answer I found lies here.
 
-　Love possesses the strength to overcome any hardship.
+　Love possesses the strength to overcome any hardship.\
 As long as we love each other wholeheartedly and sincerely, nothing will ever be lacking.
 
 In a world that unconsciously imposes rigid notions of correctness, we've run this far, envisioning the certain form of happiness we desire.
@@ -185,7 +185,7 @@ As I said this, she squeezed my left hand tightly.
 
 "...Hey, Kanata. In that case, would you grant me just one wish?"
 
-It was rare for the selfless Yui to ask me for anything.
+It was rare for the selfless Yui to ask me for anything.\
 Overjoyed, I lifted my face, met her eyes, and smiled.
 
 "A wish? Of course. Tell me anything. I'll make it happen for you."
@@ -204,7 +204,7 @@ Facing me directly, Yui-san smiled happily.
 
 "Quickly. Don't open them until I say it's alright."
 
-She gently covered my eyes with one hand, and I closed them as she urged me.
+She gently covered my eyes with one hand, and I closed them as she urged me.\
 In the darkness, I felt Yui-san take my left hand. I felt a soft, gentle touch on my ring finger, and then her lips pressed against mine.
 
 　I laughed, saying it tickled, and next, I felt a hard sensation on my ring finger.
@@ -225,7 +225,7 @@ Hearing my name, I lifted my face. Eyes like a calm night sea—gazing at me ear
 
 Riding the soothing sound of waves lapping and receding, those words reached straight into my heart.
 
-Hundreds of times before, she had given me the words "I like you".
+Hundreds of times before, she had given me the words "I like you".\
 But "I love you" this was the first time she had said it.
 
 My heartbeat quickened. A stinging sensation in the back of my eyes made my vision blur instantly, and tears simply streamed down my cheeks.
@@ -246,11 +246,11 @@ Between us lay countless obstacles to overcome. It was never an easy path, nor w
 
 Yet we simply loved each other as our hearts cried out, clinging desperately to one another.
 
-　Recalling those days, emotions swirled like a muddy torrent — a fervent longing welled up that words could never convey.
+　Recalling those days, emotions swirled like a muddy torrent — a fervent longing welled up that words could never convey.\
 Reaching out, I held her body tightly. She embraced me back so fiercely it took my breath away, and I desperately wiped away the tears spilling over.
 
-I wanted to tell her with a smile. Just as she had done for me.
-I loosened my arms and gazed at her beloved face.
+I wanted to tell her with a smile. Just as she had done for me.\
+I loosened my arms and gazed at her beloved face.\
 　Her dark eyes, like a calm night sea, gazed straight back at me.
 
 "I love you too, Yui-san. I swear I will love only you for the rest of my life."
