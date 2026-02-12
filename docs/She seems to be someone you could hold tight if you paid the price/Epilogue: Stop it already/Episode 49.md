@@ -1,4 +1,7 @@
-Episode 49
+---
+parent: "Epilogue: Stop it already"
+title: Episode 49
+---
 
 Beautiful and adorable.\
 She, no longer transparent, overflowed with countless colours.\
