@@ -17,7 +17,9 @@ This is a university flatmate story about a straight junior being seduced by a b
 ![novel cover](/assets/images/how-about-afternoon-tea.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [桃田ロウ]
+Author: [桃田ロウ]\
+If you want to support Momota-san directly you can do that through her [Fanbox] account.
 
 [kakuyomu]: https://kakuyomu.jp/works/16818023214131449614
 [桃田ロウ]: https://kakuyomu.jp/users/momotarou123
+[Fanbox]: https://www.fanbox.cc/creators/supporting/@momotarou123ka
