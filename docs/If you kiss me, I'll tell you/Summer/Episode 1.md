@@ -8,11 +8,11 @@ Someone once said life is a series of choices.
 
 Drunken words spoken at a drinking party.
 
-A memory from when I was just starting out in the working world.
-I think it was a male colleague who’d just decided to get married.
+A memory from when I was just starting out in the working world.\
+I think it was a male colleague who’d just decided to get married.\
 His face bright red, he was shouting loudly, as if trying to blow away his doubts.
 
-　Back then, I didn't give much thought to what my superiors or seniors said; it went in one ear and out the other.
+　Back then, I didn't give much thought to what my superiors or seniors said; it went in one ear and out the other.\
 But for some reason, those words alone stuck deep in my chest, lingering there, refusing to fade.
 
 Now I understand. In life, there are moments when you're suddenly forced to make a crucial choice.
@@ -33,19 +33,19 @@ Unbeknownst to me, I had already stepped into a labyrinth with no exit.
 
 "Oh my. Playing sports even at university? You really lived it up in your youth. I've never been interested in sports, so I don't really get that sort of thing."
 
-She said this suddenly as I sat on the edge of the bed putting on my underwear.
+She said this suddenly as I sat on the edge of the bed putting on my underwear.\
 　It was a July night, one of many consecutive tropical nights.
 
 I glanced over at her, still lying on her back on the bed, yawning nonchalantly, her lustrous nakedness exposed without any attempt to cover herself.
 
 My gaze caught the pure white, full breasts I'd just grabbed and squeezed earlier, and I looked away, feeling awkward.
 
-　What do you mean, not interested?
+　What do you mean, not interested?\
 She asked me herself, and now I'm annoyed by her flippant reply.
 
 You touched my back and asked, "Did you play any sport?" So I simply answered honestly, recalling the day I quit athletics, which I'd dedicated myself to from middle school through my second year of university.
 
-Still feeling unsettled, I grabbed the cigarette packet left on the bedside table.
+Still feeling unsettled, I grabbed the cigarette packet left on the bedside table.\
 　I lit up, drew in the slightly bitter smoke, filling my lungs, then exhaled with a deep puff.
 
 How many nights like this have there been now?
@@ -82,7 +82,7 @@ Her ample bosom pressed against the sheets, shifting shape, leaving me at a loss
 
 "Figure it out yourself."
 
-Well, even if you say so...
+Well, even if you say so...\
 For a moment, I did wonder if I should recall past experiences and mimic the behaviour of previous boyfriends...
 
 Is the correct answer to pull her close, make a pillow with my arm, and cuddle until she falls asleep?
@@ -97,7 +97,7 @@ With that, she curved her full lips into a bewitchingly seductive smile.
 
 At first, she was just a colleague.
 
-And frankly, she was absolutely not my type.
+And frankly, she was absolutely not my type.\
 　Our work approaches, personalities, everything, it was almost comically opposite. Seno-san really had an unpredictable character.
 
 Working together, I admit I grew accustomed to our relationship where we could casually say whatever came to mind, and my discomfort gradually faded.
@@ -110,7 +110,7 @@ Even so, my perception of her never crossed the line of 'colleague'.
 
 Up until now, everyone I'd ever liked had been male, and I'd never even considered wanting to date a woman. That hasn't changed.
 
-So why did we become like this? Repeating that question to myself doesn't make the answer any easier to find.
+So why did we become like this? Repeating that question to myself doesn't make the answer any easier to find.\
 I've kept searching for that answer. Even now.
 
 Whether aware of my feelings or not, Seno-san grabbed my arm and pulled me.
@@ -123,11 +123,11 @@ When hedonism is pursued to its extreme, can people truly become this faithful t
 
 My neck was drawn towards her, her well-defined face drawing near.
 
-　Her round eyes and delicate features gave her a childlike face that made her look far younger than her age, yet her figure was curvaceous where it mattered. This contrast only heightened her allure.
+　Her round eyes and delicate features gave her a childlike face that made her look far younger than her age, yet her figure was curvaceous where it mattered. This contrast only heightened her allure.\
 Realising she was about to press those lips, the same lips that had once declared to me she wanted to marry rich and find a life partner—against mine, I instinctively turned my face away. She laughed, amused.
 
-"Kaori, you're strange, aren't you? You can have sex, but you still have reservations about kissing."
-Despite being rejected, she said it as if it didn't bother her much.
+"Kaori, you're strange, aren't you? You can have sex, but you still have reservations about kissing."\
+Despite being rejected, she said it as if it didn't bother her much.\
 Realising she was doing this knowing I disliked it, I frowned openly.
 
 "...Kissing is something people who like each other do, isn't it?"
