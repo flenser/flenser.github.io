@@ -14,7 +14,7 @@ What we were handed was a thick booklet. Its cover proclaimed in bold Gothic typ
 
 "Our company has annual training until the fifth year after joining. Though you joined mid-career, Mitsuya-san, it seems you'll be with the fourth-year lot, like Seno-san."
 
-Manager Yamazato said with a smile.
+Manager Yamazato said with a smile.\
 Glancing at the curriculum handed over, I saw the training venue was the multipurpose hall of a hotel operated by our company, the closest to headquarters.
 
 "This venue is conveniently close, so you won't need to stay overnight—you can commute from home."
@@ -47,22 +47,22 @@ Manager Yamazato scolded us with that carefree remark, but to be honest, I felt 
 
 If this had been a new graduate induction programme, I might have made an effort to get along with my roommate.
 
-　But we were both of a certain age now, and this wasn't our first meeting.
+　But we were both of a certain age now, and this wasn't our first meeting.\
 We'd been working together for some time.
 
-With each passing year, I keenly felt how harder it became to open up to others.
+With each passing year, I keenly felt how harder it became to open up to others.\
 It hadn't been so bad when I first started working. But after turning twenty-five, I'd lost any inclination to make new friends. Unless someone was exceptionally compatible, that is.
 
 　I doubt either of us feels like forcing a connection now, but to spend a night sharing a room, we know far too little about each other.
 
-Sharing a room for one night...
+Sharing a room for one night...\
 We'd never last the night. How much better it would have been with a complete stranger.
 
 　It was on the first day of the training that I heard it was ostensibly called an "annual training session," but actually served the purpose of fostering interaction among participants.
 
 Of course, proper employees like Seno-san were the majority, but it seemed about twenty percent were mid-career hires like me, transferred from other companies.
 
-The training included group work and simple discussions.
+The training included group work and simple discussions.\
 　Listening to the others, I realised everyone except me worked on the front line. While I could imagine the duties of those handling accommodation services, I couldn't grasp even half of what the restaurant or banquet staff were talking about.
 
 It was only natural, really. The nature of our work was completely different. I hadn't even grasped the company's ethos yet, so it was inevitable we wouldn't connect.
@@ -91,11 +91,11 @@ To hide these thoughts, I averted my gaze and tried changing the subject.
 
 Looking at the roster, I'd realised that among the 'fourth-year cohort', only Seno-san and I were assigned to headquarters.
 
-　Given that, it made sense she wouldn't click with her peers.
-Two people whose work was practically unimaginable to each other would never understand one another's complaints.
+　Given that, it made sense she wouldn't click with her peers.\
+Two people whose work was practically unimaginable to each other would never understand one another's complaints.\
 Besides, Seno-san didn't seem the type to enjoy socialising much.
 
-Contrary to her soft appearance and gentle manner of speaking, she was fiercely strong-willed inside, sharp and intense.
+Contrary to her soft appearance and gentle manner of speaking, she was fiercely strong-willed inside, sharp and intense.\
 　As someone who both admits and is acknowledged by others to be strong-willed, we often clashed like opposing magnets.
 
 When I opened the fridge to put away the tea I'd bought, I noticed several cans of beer inside.
@@ -124,7 +124,7 @@ Watching a late-night dating talk show, we exchanged pointless arguments until t
 
 She was relaxing with her pure white legs, visible beneath her loungewear, stretched out on the bed. She looked at my face with interest and smiled.
 
-　Her toes were painted with glossy red pedicure polish. True to her status as a rising star, this woman was well-groomed from head to toe.
+　Her toes were painted with glossy red pedicure polish. True to her status as a rising star, this woman was well-groomed from head to toe.\
 I sat on the edge of the bed, glancing down at my own toes after kicking off my slippers.
 
 　Having no occasion to display my toes in public, my nails were naturally bare, unadorned by any colour.
@@ -135,14 +135,14 @@ I glared at her face, flushed from alcohol. Unfazed by my stare, Seno-san popped
 
 "Oh, come off it... What good would being popular with women do?"
 
-Just because I'm not popular with men doesn't mean I particularly want to be popular with women.
+Just because I'm not popular with men doesn't mean I particularly want to be popular with women.\
 As I picked at the cheese puffs in exasperation, Seno-san narrowed his eyes.
 
 "Don't be so prejudiced. You should try it."
 
 "Eh?"
 
-Not understanding what she was saying, I found myself staring intently into her eyes.
+Not understanding what she was saying, I found myself staring intently into her eyes.\
 Then, suddenly, Seno-san sat up, repositioning herself to sit facing me on the edge of the bed, and reached her hand towards my face.
 
 　Her white fingertips gently brushed the corner of my eye. Instantly, my heart felt like it was caught in a sandstorm, and I reflexively jerked back.
@@ -151,7 +151,7 @@ Then, suddenly, Seno-san sat up, repositioning herself to sit facing me on the e
 
 She said it with a laugh, teasingly, and I was so startled I probably grimaced violently.
 
-　We weren't exactly at a comfortable, casual distance where such contact would be expected.
+　We weren't exactly at a comfortable, casual distance where such contact would be expected.\
 Yet here she was, suddenly and without permission, invading my personal space. I was deeply unsettled.
 
 "...You're drunk, aren't you? That's a bit too nasty for a joke."
@@ -166,7 +166,7 @@ Her eyes, glazed with drink, fixed on me.
 
 I frowned, asking half-believingly. It was just my own image, but this type of person just didn't strike me as someone who could go for the same sex.
 
-　Seno-san smiled defiantly and touched my shoulder.
+　Seno-san smiled defiantly and touched my shoulder.\
 The moment I felt the heat of her palm through the thin fabric, she leaned her weight on me and I fell backwards onto the bed.
 
 Her face, cast in shadow by the ceiling light, looked up at me with an amused smile. An indescribable shiver ran down my spine.
@@ -179,7 +179,7 @@ Her face, cast in shadow by the ceiling light, looked up at me with an amused sm
 
 Her cackling laugh made me feel exposed, as if she'd seen straight through me.
 
-This girl is seriously drunk...
+This girl is seriously drunk...\
 Her neck was flushed red; she probably couldn't hold her liquor well. Still... it wasn't an unpleasant kind of drunkenness.
 
 "It's alright, Mitsuya-san doesn't have to do anything. I'll take care of everything."
@@ -190,11 +190,11 @@ It happened so suddenly I hadn't even registered what was happening when I swall
 
 　What gives you the right? Instantly, blood rushed to my head.
 
-I've always thought it, but I can't stand your insolent attitude.
+I've always thought it, but I can't stand your insolent attitude.\
 Without hiding the irritation churning inside me, I grabbed her shoulder hard and pulled with all my strength.
 
-It was easier than I'd imagined to flip her slender body over.
-　Her long, light brown hair scattered across the white sheets.
+It was easier than I'd imagined to flip her slender body over.\
+　Her long, light brown hair scattered across the white sheets.\
 Looking down at her wide-eyed, startled face felt satisfying.
 
 "...Don't be ridiculous. My pride won't allow me to be held by you. If it comes to that, I'll do it to you."
@@ -207,10 +207,10 @@ Speaking with amusement, her fingertips traced my neckline invitingly. You drunk
 
 "...Don't say I didn't warn you if you regret it."
 
-Truthfully, I hadn't pushed her down intending to seriously take her.
+Truthfully, I hadn't pushed her down intending to seriously take her.\
 I thought that if I pretended to be serious, this woman would laugh it off as a joke too.
 
-　Perhaps we were both equally impaired by alcohol.
+　Perhaps we were both equally impaired by alcohol.\
 I admit I was half-desperate. At that moment, I felt frighteningly bold.
 
 Sleeping with a female colleague? It seemed utterly insane.
@@ -241,7 +241,7 @@ As my fingertips sank into the soft, yielding flesh, I lost all sense of what I 
 
 I'd never imagined it. That the day would come when I'd sleep with a woman.
 
-Of course, bodies are built the same.
+Of course, bodies are built the same.\
 I knew instinctively where and how to touch her, without needing to be told.
 
 —Even though it was me who said, 'Don't come crying to me later.'
