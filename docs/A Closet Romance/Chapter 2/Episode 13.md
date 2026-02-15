@@ -1,6 +1,6 @@
 ---
 parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: 'Episode 13: You've Got Quite the Attitude Now, Haven't You?'
+title: "Episode 13: You've Got Quite the Attitude Now, Haven't You?"
 nav_order: 70
 ---
 Episode 13: You've Got Quite the Attitude Now, Haven't You?

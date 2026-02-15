@@ -1,6 +1,6 @@
 ---
 parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: 'Episode 14: Hey Nana, do you reckon we'll see the fireworks together again next year?'
+title: "Episode 14: Hey Nana, do you reckon we'll see the fireworks together again next year?"
 nav_order: 80
 ---
 Episode 14: Hey Nana, do you reckon we'll see the fireworks together again next year?

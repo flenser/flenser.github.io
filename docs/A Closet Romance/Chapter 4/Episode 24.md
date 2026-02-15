@@ -1,6 +1,6 @@
 ---
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: 'Episode 24: I Won't Give It to Anyone'
+title: "Episode 24: I Won't Give It to Anyone"
 ---
 Episode 24: I Won't Give It to Anyone
 
