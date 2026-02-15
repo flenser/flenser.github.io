@@ -1,9 +1,8 @@
 ---
 parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: Episode 10
+title: 'Episode 10: You Thoughtless Thief'
 nav_order: 40
 ---
-
 Episode 10: You Thoughtless Thief
 
 With summer holidays imminent, the final exam results were posted in the corridor. When I saw 'Asami Nana's' name at the very top, my gaze immediately slid down.

@@ -1,8 +1,7 @@
 ---
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
-title: Episode 2
+title: 'Episode 2: Well, I Am a Top Student, After All'
 ---
-
 Episode 2: Well, I Am a Top Student, After All
 
 After school, the rain that had started in the afternoon dampened my spirits for playing before heading home. By the time I reached the station nearest my house, the sky was shrouded in even thicker clouds, turning gloomy, and the rain had intensified.

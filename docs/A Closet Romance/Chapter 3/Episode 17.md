@@ -1,9 +1,8 @@
 ---
 parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: Episode 17
+title: 'Episode 17... Nana'
 nav_order: 30
 ---
-
 Episode 17... Nana
 
 "Mitsuki, I'm opening it, alright?"

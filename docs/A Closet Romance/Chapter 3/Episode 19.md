@@ -1,9 +1,8 @@
 ---
 parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: Episode 19
+title: 'Episode 19: To Nana'
 nav_order: 50
 ---
-
 Episode 19: To Nana
 
 From that night onward, we hadn't exchanged a single word — before I knew it, a whole month had passed.

@@ -1,9 +1,8 @@
 ---
 parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: Episode 16
+title: 'Episode 16: It's Not That Simple, Is It?'
 nav_order: 20
 ---
-
 Episode 16: It's Not That Simple, Is It?
 
 As I was putting on my trainers in the hallway, Mum called out, "Nana!" and I turned around.

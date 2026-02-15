@@ -1,8 +1,7 @@
 ---
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
-title: Episode 6
+title: 'Episode 6: It's Not Bad, Mitsuki's Brilliant'
 ---
-
 Episode 6: It's Not Bad, Mitsuki's Brilliant
 
 "Hey, Mitsuki. Where should I put my things?"

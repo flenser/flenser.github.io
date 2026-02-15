@@ -1,17 +1,16 @@
 ---
 parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: Episode 20
+title: 'Episode 20: I'll make sure Nana says she absolutely doesn't want to leave Mitsuki's side'
 nav_order: 60
 ---
-
 Episode 20: I'll make sure Nana says she absolutely doesn't want to leave Mitsuki's side
 
-The bell rings. As I walk down the empty corridor holding Mitsuki's hand, she calls my name softly from behind.\
+The bell rings. As I walk down the empty corridor holding Mitsuki's hand, she calls my name softly from behind.
 
 "...Nana"
 
 Just hearing my name spoken like that makes happiness well up inside me.\
-　Even after all that agonising, this is how I react when faced with her. How simple-minded of me...\
+　Even after all that agonising, this is how I react when faced with her. How simple-minded of me...
 
 Turning around with a happy smile would feel rather silly, so I kept facing forward and replied quietly, "What?"\
 Mitsuki is sharp. She must be observing how I react.\
@@ -73,7 +72,7 @@ Large tears rolled down, staining her skirt, so I hurriedly stretched out my swe
 
 When Mitsuki cries like this, my chest tightens and I feel like crying myself.
 
-Mitsuki stared at me with tear-filled eyes, then held out her little finger.
+Mitsuki stared at me with tear-filled eyes, then held out her little finger.\
 "...Finger promise."
 
 I did as she asked, linking my little finger with hers.

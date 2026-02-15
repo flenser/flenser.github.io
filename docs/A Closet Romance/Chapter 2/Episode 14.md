@@ -1,9 +1,8 @@
 ---
 parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: Episode 14
+title: 'Episode 14: Hey Nana, do you reckon we'll see the fireworks together again next year?'
 nav_order: 80
 ---
-
 Episode 14: Hey Nana, do you reckon we'll see the fireworks together again next year?
 
 Sitting on the edge of a stone flowerbed, I stuffed my cheeks with yakitori while gazing up at the pitch-black night sky.

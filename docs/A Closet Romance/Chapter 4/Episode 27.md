@@ -1,6 +1,6 @@
 ---
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: Episode 27
+title: 'Episode 27: No Teasing Me for Fun!'
 ---
 Episode 27: No Teasing Me for Fun!
 

@@ -1,8 +1,7 @@
 ---
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
-title: Episode 3
+title: 'Episode 3: Did You Think It Was My Child?'
 ---
-
 Episode 3: Did You Think It Was My Child?
 
 Kase Mitsuki's flat was about a fifteen-minute walk from mine, on the ground floor of a two-storey apartment building.\

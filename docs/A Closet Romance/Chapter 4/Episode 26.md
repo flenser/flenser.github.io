@@ -1,6 +1,6 @@
 ---
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: Episode 26
+title: 'Episode 26: I Like You Too, I Love You, Mitsuki'
 ---
 Episode 26: I Like You Too, I Love You, Mitsuki
 

@@ -1,8 +1,7 @@
 ---
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
-title: Episode 1
+title: 'Episode 1: I'm Studying Because I Want to Be Fashionable'
 ---
-
 Episode 1: I'm Studying Because I Want to Be Fashionable
 
 The day Kase Mitsuki finally fell from the top spot, my name shone at the very top of the ranking chart posted in the corridor for the first time.
