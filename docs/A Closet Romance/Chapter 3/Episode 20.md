@@ -1,6 +1,6 @@
 ---
 parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: 'Episode 20: I'll make sure Nana says she absolutely doesn't want to leave Mitsuki's side'
+title: "Episode 20: I'll make sure Nana says she absolutely doesn't want to leave Mitsuki's side"
 nav_order: 60
 ---
 Episode 20: I'll make sure Nana says she absolutely doesn't want to leave Mitsuki's side

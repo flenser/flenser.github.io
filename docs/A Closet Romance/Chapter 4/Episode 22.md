@@ -1,6 +1,6 @@
 ---
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: 'Episode 22: It's Not Like I'm Having Some Massive Sexual Arousal Explosion or Anything'
+title: "Episode 22: It's Not Like I'm Having Some Massive Sexual Arousal Explosion or Anything"
 ---
 Episode 22: It's Not Like I'm Having Some Massive Sexual Arousal Explosion or Anything
 
