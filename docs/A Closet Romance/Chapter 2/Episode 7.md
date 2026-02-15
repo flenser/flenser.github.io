@@ -1,9 +1,8 @@
 ---
 parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: Episode 7
+title: 'Episode 7: I Think I Might Be Falling for You'
 nav_order: 10
 ---
-
 Episode 7: I Think I Might Be Falling for You
 
 July arrived, and the sunlight burned our skin as if stabbing us.

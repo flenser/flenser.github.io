@@ -1,9 +1,8 @@
 ---
 parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: Episode 11
+title: 'Episode 11: Hmm, I'll head over there now'
 nav_order: 50
 ---
-
 Episode 11: Hmm, I'll head over there now
 
 Ever since summer holidays began, days passed without me going to Mitsuki's house.

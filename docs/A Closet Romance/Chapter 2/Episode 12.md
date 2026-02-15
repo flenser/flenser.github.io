@@ -1,9 +1,8 @@
 ---
 parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: Episode 12
+title: 'Episode 12: 5th August'
 nav_order: 60
 ---
-
 Episode 12: 5th August
 
 "Sorry, Nana. Thank you for coming all this way."

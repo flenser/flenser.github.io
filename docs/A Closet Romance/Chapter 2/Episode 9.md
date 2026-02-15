@@ -1,9 +1,8 @@
 ---
 parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: Episode 9
+title: 'Episode 9: Wondering Whether to Go to University'
 nav_order: 30
 ---
-
 Episode 9: Wondering Whether to Go to University
 
 "Sorry, I completely overslept..."

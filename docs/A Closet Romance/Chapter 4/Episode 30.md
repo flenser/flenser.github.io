@@ -1,6 +1,6 @@
 ---
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: Episode 30: After We Did It Once, Did I Become Completely Irrelevant to You...?
+title: 'Episode 30: After We Did It Once, Did I Become Completely Irrelevant to You...?'
 ---
 Episode 30: After We Did It Once, Did I Become Completely Irrelevant to You...?
 

@@ -1,7 +1,8 @@
 ---
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: Episode 21
+title: 'Episode 21: I never realised I, Mitsuki, had such a nasty streak'
 ---
+Episode 21: I never realised I, Mitsuki, had such a nasty streak
 
 When I was a child, I feel like it snowed more in winter.
 

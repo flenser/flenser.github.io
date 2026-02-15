@@ -1,6 +1,6 @@
 ---
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: Episode 29
+title: 'Episode 29: Is Sex Really That Pleasurable?'
 ---
 Episode 29: Is Sex Really That Pleasurable?
 

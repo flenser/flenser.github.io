@@ -1,8 +1,7 @@
 ---
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
-title: Episode 5
+title: 'Episode 5: When You're Not Alone, You Should Just Ask for Help'
 ---
-
 Episode 5: When You're Not Alone, You Should Just Ask for Help
 
 The next day, when I arrived at school, Mitsuki was already sitting in her classroom chair, eyes closed, fast asleep.

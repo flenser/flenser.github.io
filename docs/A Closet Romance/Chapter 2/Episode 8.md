@@ -1,9 +1,8 @@
 ---
 parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: Episode 8
+title: 'Episode 8: I Can't Go Back to a Daily Life Without Nana'
 nav_order: 20
 ---
-
 Episode 8: I Can't Go Back to a Daily Life Without Nana
 
 After that, the distance between Mitsuki and me closed even more rapidly.\

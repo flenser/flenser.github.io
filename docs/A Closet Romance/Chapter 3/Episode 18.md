@@ -1,9 +1,8 @@
 ---
 parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: Episode 18
+title: 'Episode 18: Say You Love Me'
 nav_order: 40
 ---
-
 Episode 18: Say You Love Me
 
 The phrase 'the blood drained from my face' is truly apt.

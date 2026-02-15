@@ -1,8 +1,7 @@
 ---
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
-title: Episode 4
+title: 'Episode 4: Call Me Nana'
 ---
-
 Episode 4: Call Me Nana
 
 Then, Kase Mitsuki awoke after just over an hour, and by the time it had grown completely dark outside, the rain had stopped entirely.
