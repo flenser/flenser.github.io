@@ -1,6 +1,6 @@
 ---
 parent: Love Grows in the Classroom After School
-title: "Chapter 1: The Plain and Serious Japanese Teacher"
+title: "Chapter 2: First Love and the Holy Night"
 has_children: true
-nav_order: 10
+nav_order: 20
 ---
