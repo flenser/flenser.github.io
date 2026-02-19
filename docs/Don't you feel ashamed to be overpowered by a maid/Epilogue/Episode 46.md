@@ -1,5 +1,5 @@
 ---
-parent: Epilogue
+parent: "Epilogue: Bound Together"
 title: Episode 46
 ---
 
