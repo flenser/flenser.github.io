@@ -18,13 +18,13 @@ Even though she'd taken me so thoroughly just now, I simply didn't have the stre
 
 "...Well, I suppose I have no choice."
 
-The pressure slid away with a slurp, and finally, the tension left my body.
-　Clutching Seno-san's neck tightly, our sweaty skin pressed together perfectly, feeling wonderfully comfortable.
+The pressure slid away with a slurp, and finally, the tension left my body.\
+　Clutching Seno-san's neck tightly, our sweaty skin pressed together perfectly, feeling wonderfully comfortable.\
 But whether it was the heating or the alcohol, my throat was parched to death.
 
 "...So, what about your... feelings..."
 
-I still hadn't asked the important question.
+I still hadn't asked the important question.\
 When I said it in a raspy voice, Seno-san laughed and buried her face in the nape of my neck.
 
 "I was thinking..."
@@ -41,7 +41,7 @@ Pointing out that she didn't even have a passport made Seno-san laugh again.
 
 "...Hey Kaori, I like you."
 
-A simple, light declaration of love. But it was enough for me.
+A simple, light declaration of love. But it was enough for me.\
 Even though we'd been so close, we'd taken such a long detour. It was all my fault... All the strength drained from my body.
 
 "What about you, Kaori? Aren't you going to say you like me?"
@@ -82,7 +82,7 @@ The semi-double bed was a bit snug for two. Still, after lying on a hard floor, 
 
 "Ahh... a bed really is the best."
 
-My utterly exhausted body felt as though it might sink into the mattress at any moment.
+My utterly exhausted body felt as though it might sink into the mattress at any moment.\
 Even Seno-san, who usually sleeps naked without even underwear, had today properly dressed in her loungewear and lay down beside me.
 
 Just as I closed my eyes, ready to drift off, I remembered something important.
@@ -103,7 +103,7 @@ Just as I closed my eyes, ready to drift off, I remembered something important.
 
 "I'm joking. I'm not going. Let's figure out how to cancel together."
 
-Then why did you accept Niiyama-kun's invitation in the first place? Was it to spite me? I thought, but decided not to point it out.
+Then why did you accept Niiyama-kun's invitation in the first place? Was it to spite me? I thought, but decided not to point it out.\
 Never mind. If she's here beside me now, I'll overlook the embers of the past. Reigniting extinguished topics one by one doesn't strike me as a wise choice.
 
 "More importantly than me, Kaori was... well, she was hugging Kurosaki-san on the rooftop... what was that about?"
@@ -116,7 +116,7 @@ My gaze darted around. Nothing happened with Kurosaki-kun. It just reminded me I
 
 "I was just being friendly, like he was a junior at uni, but I guess we had different ideas. I need to properly turn him down again."
 
-As I chose my words carefully, Seno-san let out a small sigh.
+As I chose my words carefully, Seno-san let out a small sigh.\
 In the dim light, her eyes just watched me quietly.
 
 "...Kaori, are you really sure this is alright?"
@@ -125,8 +125,8 @@ In the dim light, her eyes just watched me quietly.
 
 "Won't you regret spending your precious late twenties on me? The longer we're together, the harder it'll be to turn back."
 
-Turn back.
-Even without her saying it directly, I understood exactly what she meant.
+Turn back.\
+Even without her saying it directly, I understood exactly what she meant.\
 I'd thought about it myself, countless times. The future of a relationship between two women.
 
 If it were a rational choice, I'd have made it ages ago. It's not like I never considered dating Kurosaki-kun.
@@ -141,8 +141,8 @@ If it were a rational choice, I'd have made it ages ago. It's not like I never c
 
 "...Attending my sister's wedding made me realise something again. I'm not the type who actively wants to get married or have children. So I won't say those things. But if you're anxious, I promise you this. There are plenty of ways to promise we'll stay together forever, aren't there? A partnership, or whatever."
 
-I thought I'd said it with considerable resolve.
-I wondered if she might laugh it off as premature, but I wanted to make sure she understood.
+I thought I'd said it with considerable resolve.\
+I wondered if she might laugh it off as premature, but I wanted to make sure she understood.\
 Seno-san smiled softly and shook her head slightly.
 
 "No. You don't need to promise forever. Just stay by my side until you get sick of it. That's enough."

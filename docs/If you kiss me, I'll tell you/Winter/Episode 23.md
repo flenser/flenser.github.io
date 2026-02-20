@@ -4,7 +4,7 @@ title: "Episode 23: Present for You"
 ---
 Episode 23: Present for You
 
-Why is it that the night before an event always leaves me feeling so unsettled?
+Why is it that the night before an event always leaves me feeling so unsettled?\
 Nights when I can't sleep, my mind racing even with my eyes closed, feel much like the night before a tournament.
 
 Lying on the futon spread out in the tatami room of my childhood home, I stared blankly at the quaint, old-fashioned bulb and the ceiling beams.
@@ -19,8 +19,8 @@ I let out a sigh in the silent room.
 
 I kept replaying those words over and over in my mind.
 
-Why on earth did I say something like that?
-This sealed the fate of our relationship.
+Why on earth did I say something like that?\
+This sealed the fate of our relationship.\
 The wound inflicted by her rejection ran deeper than I could have imagined. But that doesn't justify hurting her.
 
 　I should have known from the start. That if I did nothing, this relationship would end someday.
@@ -35,38 +35,38 @@ Is it really going to end this abruptly...?
 
 I feel sad even though no tears come, and my chest aches as if stabbed deep inside, though no blood is spilled.
 
-I know this pain.
+I know this pain.\
 This is unmistakably the pain of heartbreak.
 
 ＊＊＊
 
-　A morning clear and refreshingly bright. The house was unusually bustling; both Mum and Dad were fidgeting, unable to settle.
-Having slept poorly the night before, I headed to the washroom, stifling yawns to wake myself up a little, and splashed cold water on my face.
+　A morning clear and refreshingly bright. The house was unusually bustling; both Mum and Dad were fidgeting, unable to settle.\
+Having slept poorly the night before, I headed to the washroom, stifling yawns to wake myself up a little, and splashed cold water on my face.\
 My sister and parents had already left the house, saying they had preparations for the ceremony. Left alone, I lit a cigarette beneath the kitchen extractor fan.
 
-　Staring blankly at the purple smoke being sucked into the extractor, I listened to the news playing on the television.
+　Staring blankly at the purple smoke being sucked into the extractor, I listened to the news playing on the television.\
 It hurts. Deep in my chest.
 
 Too much is happening all at once. I'm completely overwhelmed.
 
-My sister's wedding.
-The sub-manager thing.
-Christmas looming in a few days.
-Kurosaki-kun.
-Niiyama-kun.
+My sister's wedding.\
+The sub-manager thing.\
+Christmas looming in a few days.\
+Kurosaki-kun.\
+Niiyama-kun.\
 Seno-san.
 
-　Everything was tangled together like vines, wrapping around my entire body.
+　Everything was tangled together like vines, wrapping around my entire body.\
 I wanted to untangle them one by one, but I didn't even know where to start.
 
-I pressed the cigarette into the ashtray and sighed deeply, as if squeezing the last of the smoke from my lungs.
-　I sit before the dressing table.
+I pressed the cigarette into the ashtray and sighed deeply, as if squeezing the last of the smoke from my lungs.\
+　I sit before the dressing table.\
 These slanted eyes were my complex. Yet Seno-san always seemed to enjoy stroking the corners of my eyes. She said she liked them.
 
 More than once or twice, she'd stop me from leaving bare-faced in the morning, insisting cheerfully that I put on makeup.
 
-　She seemed to find it fun because our facial features were different. I never understood what girls thought.
-I only wore makeup because it was necessary as a working adult; I never found any enjoyment in it.
+　She seemed to find it fun because our facial features were different. I never understood what girls thought.\
+I only wore makeup because it was necessary as a working adult; I never found any enjoyment in it.\
 Unlike me, who used cosmetics without any particular preference, Seno-san spared no expense on beauty.
 
 That's why she was beautiful. From the top of her head to her fingertips, she was meticulously groomed, like some high-class cat.
@@ -79,13 +79,13 @@ That's why she was beautiful. From the top of her head to her fingertips, she wa
 
 "...'Disturbed heart'"
 
-I muttered softly.
-My eyes met my own reflection in the mirror.
+I muttered softly.\
+My eyes met my own reflection in the mirror.\
 My hand had faltered, the eyeliner smudged and strayed from its path. The exhausted face staring back at me was mine.
 
 　＊＊＊
 
-A wedding day is one overflowing with happiness.
+A wedding day is one overflowing with happiness.\
 A day when everyone present wishes the couple well.
 
 The choir's voices echoing through the light-filled chapel. The bride and groom gazing tenderly at each other, pledging eternal love.
@@ -96,17 +96,17 @@ The pinnacle of happiness. The highlight of life. A moment etched into everyone'
 
 While blessing my sister's marriage and sincerely wishing her future brimmed with happiness, I felt the blade piercing my chest had finally reached my heart.
 
-My sister's radiant figure overlapped with Seno-san's.
+My sister's radiant figure overlapped with Seno-san's.\
 A pure white wedding dress might be something every woman yearns for, but unfortunately, I couldn't fathom that feeling.
 
 　Had she yearned for it too? For this sort of 'ordinary happiness'.
 
-After the group photos in the garden, Yū didn't toss the bouquet. She walked straight towards me.
+After the group photos in the garden, Yū didn't toss the bouquet. She walked straight towards me.\
 Ignoring my surprise, she held out the bouquet with a beaming smile.
 
 "I want you to be happy too, big sis. Marry someone wonderful."
 
-Taking the bouquet handed to me with that dazzling smile, tears welled up unbidden.
+Taking the bouquet handed to me with that dazzling smile, tears welled up unbidden.\
 Flashbulbs popped and shutter clicks echoed repeatedly.
 
 My tears, coated in the veneer of beautiful sisterly love, their true meaning unnoticed by anyone, overflowed with sorrow alone, spilling onto the ground and disappearing as it absorbed them.
@@ -115,27 +115,27 @@ My tears, coated in the veneer of beautiful sisterly love, their true meaning un
 
 A hairpin pressed painfully against my temple, so I yanked it out from my temple. I suspected several more pins remained hidden in my half-up hairstyle, but I didn't care. I popped the tab on a beer.
 
-　A jumble of emotions fought within me, leaving my thoughts utterly muddled.
+　A jumble of emotions fought within me, leaving my thoughts utterly muddled.\
 The alcohol made the suppressed feelings completely uncontrollable. I cried repeatedly on the way to Tokyo Station, stopping only to start again.
 
-Seno-san and Niiyama-kun wouldn't leave my mind.
+Seno-san and Niiyama-kun wouldn't leave my mind.\
 Spending Christmas together? That's not what ordinary colleagues do.
 
 No matter how hard I tried to push it out, unpleasant imaginings kept washing over me like waves.
 
 　As I poured alcohol down my throat trying to numb the pain, a simmering rage began to rise instead. It was pure defiance.
 
-She'll choose the rich bloke in the end anyway.
+She'll choose the rich bloke in the end anyway.\
 Bisexual or whatever, but doesn't Seno-san even want to be with a woman anymore?
 
 Because she can't marry me, can she? That's all there is to it.
 
-　Crunch. I crushed the can in my fist.
+　Crunch. I crushed the can in my fist.\
 An excuse, I know, but at that moment, I was more drunk than I’d ever been before, and frighteningly bold.
 
 ＊＊＊
 
-I don’t remember how I got here.
+I don’t remember how I got here.\
 When I came to, I was at Seno-san’s house. She opened the door, her face frozen in surprise.
 
 "What's this all of a sudden? What's wrong?"
@@ -160,19 +160,19 @@ Seno-san, who helped me sit on the sofa by supporting my shoulders, sighed deepl
 
 "Wait"
 
-I wrap my arms tightly around Seno-san's waist as she heads for the kitchen.
+I wrap my arms tightly around Seno-san's waist as she heads for the kitchen.\
 No way am I letting her escape. I rub my face firmly against her stomach.
 
 "Stop it. You'll get foundation on my loungewear!"
 
-I look up at Seno-san, who's trying to pry my arms off angrily.
+I look up at Seno-san, who's trying to pry my arms off angrily.\
 　She’d already bathed, her face bare, and I caught the scent of the body cream she always applied after her bath.
 
 "You know what? I really like your bare face. You’re beautiful even without make-up. I think it’s truly amazing."
 
 "Huh?"
 
-I’d complimented her, so why was she angry?
+I’d complimented her, so why was she angry?\
 Whatever I said to Seno-san right now seemed only to add fuel to the fire. Was she still angry? Well, of course she was.
 
 "Let go."
@@ -183,7 +183,7 @@ Whatever I said to Seno-san right now seemed only to add fuel to the fire. Was s
 
 "No. I don't want to let go."
 
-Seno-san tried to pry my arms away. But I clasped my hands tightly together to stop her.
+Seno-san tried to pry my arms away. But I clasped my hands tightly together to stop her.\
 Realising she couldn't overpower me, she seemed to give up, the tension draining from her body.
 
 "Hey, what about the water? Are you alright?"
@@ -194,7 +194,7 @@ Realising she couldn't overpower me, she seemed to give up, the tension draining
 
 She tapped my forehead gently. It hurt.
 
-My mind kept running wild with unwanted thoughts.
+My mind kept running wild with unwanted thoughts.\
 I couldn't stop picturing her in Niiyama-kun's arms, even when I tried not to.
 
 It was hopeless now. Too late for everything. It hurt so much. Why wasn't I enough for her?
@@ -203,7 +203,7 @@ It was hopeless now. Too late for everything. It hurt so much. Why wasn't I enou
 
 Her gentle touch at the corner of my eye, that softly whispered voice, felt like my heart was being crushed.
 
-Game over. I've lost completely.
+Game over. I've lost completely.\
 Fine, I get it. I'll step aside now.
 
 The shape of happiness you envisioned was clear from the start. I knew from the start there was no room for me to fit in.
@@ -216,7 +216,7 @@ It's only natural if you hate me. But this is the only thing I can think of doin
 
 You were the one who first tried to touch me, so you brought this on yourself. I won't let you complain.
 
-　Before I met you, I was pure white.
+　Before I met you, I was pure white.\
 You taught me these ugly, dark feelings, no one else.
 
 I had Seno-san pinned down on the pure white rug.

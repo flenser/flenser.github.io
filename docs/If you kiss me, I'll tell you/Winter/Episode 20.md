@@ -14,7 +14,7 @@ I longed for the warmth that should have been beside me.
 
 　We weren't the type to sleep clinging to each other, but a semi-double bed was undeniably cramped for two grown women, and we always touched somewhere.
 
-Perhaps because we slept with the heating off, stroking the space beside me felt like cold sheets, as if I lay upon thin ice.
+Perhaps because we slept with the heating off, stroking the space beside me felt like cold sheets, as if I lay upon thin ice.\
 Sleeping alone is lonely. But... it's not just anyone.
 
 　Until now, Seno-san had always taken my hand. She was always the one to make the first move, and I’d grown complacent, taking it for granted.
@@ -23,8 +23,8 @@ Despite fearing it might end someday, I stood there doing nothing, just waiting.
 
 Once she let go, I no longer knew what to rely on to move forward.
 
-I was usually good at giving up. Like with the guy I liked in university.
-　"He has a girlfriend."
+I was usually good at giving up. Like with the guy I liked in university.\
+　"He has a girlfriend."\
 That was reason enough for me to give up so easily. I could have waited. But I didn't.
 
 Because I didn't want to suffer, I buried my feelings, pretended, only dated people I could be with easily, and experienced nothing but fake relationships.
@@ -53,13 +53,13 @@ Though I almost flinched at her usual cool gaze, I poured out my feelings earnes
 
 Seno-san's eyes widened, speechless. She stared at me as if I were some unbelievable sight.
 
-　For me, it was the confession of a lifetime.
-Despite swallowing my shame to tell her, she furrowed her brow and looked displeased.
+　For me, it was the confession of a lifetime.\
+Despite swallowing my shame to tell her, she furrowed her brow and looked displeased.\
 "...Do you like my body that much?"
 
 "Eh?"
 
-Like her body?
+Like her body?\
 I didn't understand why she suddenly asked that, but I nodded anyway.
 
 　I’d mustered my courage to convey that I simply wanted us to return to how we were before, and if possible, move beyond that – that this was my first step towards repairing our relationship. I hadn’t expected such a dissatisfied expression.
@@ -70,9 +70,9 @@ I didn't understand why she suddenly asked that, but I nodded anyway.
 
 So she was angry after all...
 
-　Seno pressed her forehead and sighed deeply, looking utterly exasperated.
-Her eyes fixed on me, dripping with dissatisfaction, and a cold sweat ran down my back – maybe I’d said the wrong thing.
-But then, what should I have said?
+　Seno pressed her forehead and sighed deeply, looking utterly exasperated.\
+Her eyes fixed on me, dripping with dissatisfaction, and a cold sweat ran down my back – maybe I’d said the wrong thing.\
+But then, what should I have said?\
 I didn’t know the right answer, but it was painfully clear that the way I’d phrased it just now had been terrible.
 
 "Sorry, I guess..."
@@ -87,7 +87,7 @@ I didn’t know the right answer, but it was painfully clear that the way I’d 
 
 "No… I'm not backing out."
 
-That's true, but, it still felt unsettling.
+That's true, but, it still felt unsettling.\
 As I stood there, confused by the unexpected response, Seno-san looked at me.
 
 "...I think I might have misunderstood you."
@@ -100,7 +100,7 @@ Seno-san lowered her gaze, looking vaguely hurt, and I found myself slightly con
 
 It had been an age since I'd visited her home. The moment we arrived, I scooped her up and shoved her into the bedroom as if it were the most natural thing in the world.
 
-　Senō-san rolled up her knit top and tossed it aside. As her black underwear came into view, my heartbeat gradually quickened.
+　Senō-san rolled up her knit top and tossed it aside. As her black underwear came into view, my heartbeat gradually quickened.\
 Pulling her close, I pressed my nose to the nape of her neck. Ah, this. This scent. Somehow it stirs desire within me.
 
 Grasping her slender shoulders and pressing her onto the bed, I leaned over her. Seno-san looked up at me and murmured softly.
@@ -113,7 +113,7 @@ Grasping her slender shoulders and pressing her onto the bed, I leaned over her.
 
 Why?
 
-It's because there's something about you that stirs my desire, I thought, but I hesitated to voice it.
+It's because there's something about you that stirs my desire, I thought, but I hesitated to voice it.\
 After a moment's thought, I opened my mouth.
 
 "...Because I want to make you cry."
@@ -124,7 +124,7 @@ Seno-san's eyes widened slightly, as if surprised.
 
 "It's not quite like that..."
 
-It's not like I inherently have that kind of kink.
+It's not like I inherently have that kind of kink.\
 When I denied it, Seno-san laughed oddly and held out both her wrists in front of me.
 
 "Go ahead and tie me up. Do whatever you like with me, Kaori."
@@ -143,37 +143,37 @@ A fuck buddy, then. I thought I understood, but it hit me hard.
 
 "Yeah, yeah, whatever. Just get on with it."
 
-Her bluntness stung.
+Her bluntness stung.\
 Ignoring the sharp, burning ache in my chest, I pressed my lips to her neck.
 
 　—So everyone wants to hold you, huh.
 
-I understand why.
+I understand why.\
 It’s because the moment your usually strong words falter, the gap between that and how you cry so adorably and cling to me like this is irresistible.
 
-Her neck, flushed crimson. I grasped her chin, which had been turned away, forcing her to face me. Our eyes met, hers brimming with tears.
+Her neck, flushed crimson. I grasped her chin, which had been turned away, forcing her to face me. Our eyes met, hers brimming with tears.\
 The overwhelming urge surging through me in this instant defies description.
 
 　I find myself imagining things. All sorts of things. Her past relationships... all sorts.
 
 "Kaori."
 
-Called by name between ragged breaths, the hand at my nape pulled me tightly against her.
-Meeting Seno-san changed me.
+Called by name between ragged breaths, the hand at my nape pulled me tightly against her.\
+Meeting Seno-san changed me.\
 What I’d thought was love before was too beautiful, too transparent.
 
 　Like black paint falling onto what should have been a clear, transparent surface.
 
 It spreads out like ripples.
 
-I didn't know.
-That love could be such an ugly emotion.
+I didn't know.\
+That love could be such an ugly emotion.\
 I don't want to give you to anyone. I want you for myself. The black flame scorching my heart only grows stronger.
 
-As I bite into the exposed collarbone, the palm around my back clenches my clothes.
+As I bite into the exposed collarbone, the palm around my back clenches my clothes.\
 　She held me tight, tighter still, as if to suppress my trembling body.
 
-My arms fell limply onto the sheets.
+My arms fell limply onto the sheets.\
 Burying my face in her chest, where she was breathing heavily, feeling her heart beating faster and faster, I closed my eyes.
 
 What should I do?
@@ -240,7 +240,7 @@ A boyfriend... A boyfriend, huh...
 
 Am I not good enough?
 
-I know.
+I know.\
 A romance with a woman who "wants to get married someday" is futile. Because the end is already in sight.
 
 　No money. Not a man. What do I have now?
@@ -255,7 +255,7 @@ Our relationship has simply returned to how it was before.
 
 　—No, is it really?
 
-I thought that sleeping in the same bed again like this would surely fill my heart.
+I thought that sleeping in the same bed again like this would surely fill my heart.\
 But... why? Even though she's this close, the hollow in my heart remains utterly unfilled.
 
 Something is different.

@@ -10,7 +10,7 @@ First thing in the morning, I was called over by Niiyama-kun who said he needed 
 
 "...I don't know. I've never asked about likes or dislikes."
 
-With Christmas approaching and him clearly in high spirits, he'd apparently decided this was his moment to act.
+With Christmas approaching and him clearly in high spirits, he'd apparently decided this was his moment to act.\
 Just like with Aosawa-chan before, Niiyama-kun possesses that tenacity to keep asking even after repeated rejections.
 
 "Well then, any recommendations for places women might like?"
@@ -23,20 +23,20 @@ Just like with Aosawa-chan before, Niiyama-kun possesses that tenacity to keep a
 
 "Sorry, but I'm no good at that sort of thing."
 
-I'm the woman who took a woman of that calibre to a ramen shop, you know.
+I'm the woman who took a woman of that calibre to a ramen shop, you know.\
 She let out a huge sigh. Though I must say she seemed to enjoy it.
 
 "Well then, if I just book a hotel dinner, would she come?"
 
 "I don't know. Sorry I can't be of more help."
 
-If I listened any longer, I'd definitely start frowning. I turned my back on Niiyama-kun and hurried back to my desk.
+If I listened any longer, I'd definitely start frowning. I turned my back on Niiyama-kun and hurried back to my desk.\
 Seno-san would probably turn him down anyway... Still, witnessing her being courted like this, right up close, didn't feel good.
 
-　Why does everyone get so restless trying to find a partner as Christmas approaches?
+　Why does everyone get so restless trying to find a partner as Christmas approaches?\
 I understand the feeling – winter's cold, and spending couples' events alone feels rather dreary.
 
-But isn't that putting the cart before the horse?
+But isn't that putting the cart before the horse?\
 Shouldn't falling in love come before finding a partner?
 
 Why do adults try to find a partner before they've even fallen in love?
@@ -65,7 +65,7 @@ Lately, he'd been cutting back on his cigarette breaks, and we'd both been too b
 
 "It’s busier than I imagined. I’m shocked. Is it always this crazy before Christmas? Do all couples dine at top-tier hotel restaurants? The world’s full of rich people, isn’t it?"
 
-　I'd never experienced such a glamorous date. Even with the men I'd dated before, dinner was at best a slightly nicer restaurant, and staying over meant either each other's place or a local love hotel...
+　I'd never experienced such a glamorous date. Even with the men I'd dated before, dinner was at best a slightly nicer restaurant, and staying over meant either each other's place or a local love hotel...\
 I stopped myself from thinking that far. Enough. Remembering this doesn't change anything.
 
 As I lit a cigarette, Kurosaki-kun bent down slightly to look at my face. Still so tall.
@@ -80,21 +80,21 @@ As I lit a cigarette, Kurosaki-kun bent down slightly to look at my face. Still 
 
 I'll probably be alone again this year. I'm used to it by now.
 
-Kurosaki-kun exhaled a puff of cigarette smoke, then pressed the cigarette firmly into the ashtray.
+Kurosaki-kun exhaled a puff of cigarette smoke, then pressed the cigarette firmly into the ashtray.\
 He cleared his throat once, then turned towards me for some reason.
 
 "Mitsuya-san. In that case, is it alright if I put myself forward?"
 
 "Eh?"
 
-Put himself forward? For what? An election?
+Put himself forward? For what? An election?\
 I froze for a moment. Staring at Kurosaki-kun's face, I saw it was slightly tense.
 
 "I know a top-class hotel restaurant is a bit much, but Christmas... After work, would you go on a date with me?"
 
 "Eh... You're joking, right?"
 
-I was taken aback by the sudden request.
+I was taken aback by the sudden request.\
 We'd gone out for drinks a few times before, but he'd never once given me that kind of vibe.
 
 "I'm not joking."
@@ -115,13 +115,13 @@ I'd grown too accustomed to embracing other women, completely forgetting the fee
 
 Somehow, being held in a man's arms made me feel incredibly small and helpless.
 
-　I found myself envying it.
-With these thick arms and broad chest, I wouldn't have had to agonise so much.
-Even if I wasn't wealthy, working hard might have given me a chance to catch her attention.
+　I found myself envying it.\
+With these thick arms and broad chest, I wouldn't have had to agonise so much.\
+Even if I wasn't wealthy, working hard might have given me a chance to catch her attention.\
 Even if I couldn't take her to a top-class restaurant. If I were a man, perhaps.
 
-But... that's just an excuse.
-　After all, she can love women too.
+But... that's just an excuse.\
+　After all, she can love women too.\
 To her, I'm fine for a physical relationship, but not enough to be a lover.
 
 My hope is a candle flame in the wind. Like a feeble, flickering candle flame, it seems it could be easily extinguished with a light breath.
@@ -140,7 +140,7 @@ I clenched my fist and landed a punch on his chest. His solid chest didn't budge
 
 "...Sorry, but I've no interest in office romance. It's a right pain when you break up. You should definitely steer clear."
 
-Taking one last drag, I stubbed out the cigarette, its ash about to fall, in the ashtray.
+Taking one last drag, I stubbed out the cigarette, its ash about to fall, in the ashtray.\
 I couldn't stay here any longer. Before things got any deeper.
 
 "I'll head back now."
@@ -153,7 +153,7 @@ I couldn't stay here any longer. Before things got any deeper.
 
 His earnest gaze was almost blinding.
 
-　I'm not the kind of person Kurosaki-kun thinks I am, though.
+　I'm not the kind of person Kurosaki-kun thinks I am, though.\
 I said I had no interest in office romances, yet here I am sleeping with a colleague.
 
 I gave no reply, merely waving flutteringly at Kurosaki-kun before turning away.
@@ -164,7 +164,7 @@ Sighing deeply, I opened the door leading indoors. Somehow, it felt depressing.
 
 "Blimey! You scared me!!!"
 
-Startled by the sudden call, I recoiled reflexively.
+Startled by the sudden call, I recoiled reflexively.\
 Turning towards the voice, I locked eyes with Seno-san, who was leaning against the wall, arms crossed.
 
 "...I called you."
@@ -191,24 +191,24 @@ Phew. I'd been secretly panicking that she'd seen me.
 
 The way she acted completely unconcerned made my heart ache. She'd said before she'd hate it if I had someone else...
 
-Unrequited love is painful.
-It's nothing but heart-wrenching moments. It's just agony, nothing enjoyable.
+Unrequited love is painful.\
+It's nothing but heart-wrenching moments. It's just agony, nothing enjoyable.\
 　I want to run towards someone who says they like me. I'm a coward who's always lived that way.
 
 This feeling for her must be real, yet the self-defence mechanisms honed over twenty-six years are sounding alarm bells with excessive force.
 
-Trying harder is pointless. Because Seno-san never had any intention of dating me in the first place.
-Just a fuck buddy. No role beyond that is expected.
+Trying harder is pointless. Because Seno-san never had any intention of dating me in the first place.\
+Just a fuck buddy. No role beyond that is expected.\
 　Seno-san said it's easier to just date men, didn't he?
 
-Back off before you get hurt any more. No matter how much you struggle, it's pointless. We can't be anything more than physical.
+Back off before you get hurt any more. No matter how much you struggle, it's pointless. We can't be anything more than physical.\
 Why not just date Kurosaki-kun? It'd be easier than chasing someone who won't look your way. You might even grow to like him if you gave it a go.
 
 What... this other part of me keeps whining like this.
 
 　Oh, for heaven's sake, just slap me, anyone, and give me a kick up the backside.
 
-My resolve is wavering.
+My resolve is wavering.\
 When this heartbreak becomes final, will I be able to endure this pain?
 
 I grabbed Seno-san's hand as she walked down the corridor. Her slender wrist. She stopped, turned, and her eyes met mine.
@@ -223,7 +223,7 @@ I grabbed Seno-san's hand as she walked down the corridor. Her slender wrist. Sh
 
 "No, that's not it... it's just..."
 
-I thought maybe you couldn't possibly understand how I feel.
+I thought maybe you couldn't possibly understand how I feel.\
 The agony of being ignored by the one you love... you couldn't possibly...
 
 "...I do. Unrequited love."
