@@ -65,7 +65,7 @@ The rinsed-off foam flowed down the drain. Realising she was speaking without an
 
 "Seno-san... how did you notice?"
 
-"Well, you see, that necklace the president had been wearing since she arrived? Aizawa-san suddenly started wearing it too... And that necklace with the same motif as those earrings? The president wears that one as well."
+"Well, you see, that necklace the president had been wearing since she arrived? Aosawa-san suddenly started wearing it too... And that necklace with the same motif as those earrings? The president wears that one as well."
 
 Ah... So, people who notice, do notice. I slumped, shoulders dropping. As I did, the timer rang, and I hurriedly poured tea into the cup.
 

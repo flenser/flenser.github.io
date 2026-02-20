@@ -146,7 +146,7 @@ Even though I know there's no point in keeping things vague and dragging it out.
 
 "Oh... Hey, what kind of guy do you like, Kaori?"
 
-Senō-san chuckled amusedly and tugged lightly at my arm.
+Seno-san chuckled amusedly and tugged lightly at my arm.
 
 "No way, I don't want to say. You'd just make fun of me, wouldn't you?"
 

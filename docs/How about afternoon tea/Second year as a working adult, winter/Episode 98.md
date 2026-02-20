@@ -200,7 +200,7 @@ No real harm done, so it's fine, I suppose.\
 
 "Well, I thought Seno-san was better suited for it. But Seno-san, despite appearances, is quite stubborn. She just wouldn't say yes. We need to decide quickly; Manager Yamazato must be worried."
 
-　I was dumbfounded. I never expected Mitsuya-san to say something like "Ms. Seno is the better fit".\
+　I was dumbfounded. I never expected Mitsuya-san to say something like "Seno-san is the better fit".\
 These two were supposed to be like cats and dogs.
 
 "I see. Knowing Manager Yamazato, I'm sure she'll understand..."
