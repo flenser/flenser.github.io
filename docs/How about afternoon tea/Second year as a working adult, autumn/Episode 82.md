@@ -59,7 +59,7 @@ I've never felt the urge to smoke myself, but I do feel sorry for smokers, alway
 
 I asked, taking a sip of the iced tea I'd ordered after the meal. Mitsuya-san looked a bit hesitant.
 
-"Well, no, nothing really happened. I just wanted to ask something. Aizawa-chan's boyfriend... he's rich, right?"
+"Well, no, nothing really happened. I just wanted to ask something. Aosawa-chan's boyfriend... he's rich, right?"
 
 "Eh?"
 
