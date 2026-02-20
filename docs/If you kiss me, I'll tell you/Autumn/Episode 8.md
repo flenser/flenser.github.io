@@ -54,7 +54,7 @@ Seno-san said this while taking a sip from his beer mug.
 
 "Ever since her last company, Aosawa-chan's been constantly pursued by Niiyama-kun."
 
-Niizama-kun is a male employee in the production department. He's a year older than me, but we often bumped into each other in the smoking area and became friends.
+Niiyama-kun is a male employee in the production department. He's a year older than me, but we often bumped into each other in the smoking area and became friends.
 
 He's slim and tall, and while he's certainly not unpopular, he's the type who aims too high and ends up with unrequited love.
 
