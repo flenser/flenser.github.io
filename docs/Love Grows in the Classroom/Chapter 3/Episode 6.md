@@ -1,6 +1,7 @@
 ---
 parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
 title: "Episode Six: Cheating? ―July 2032—"
+nav_order: 6
 ---
 Episode Six: Cheating? ―July 2032―
 

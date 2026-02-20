@@ -1,6 +1,7 @@
 ---
 parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
 title: "Episode Eight: The Thick, Firm Line ―July 2032—"
+nav_order: 8
 ---
 Episode Eight: The Thick, Firm Line ―July 2032―
 

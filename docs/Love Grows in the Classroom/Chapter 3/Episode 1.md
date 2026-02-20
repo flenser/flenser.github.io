@@ -1,6 +1,7 @@
 ---
 parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
 title: "Episode One: How I Came to Like My Teacher ―July 2032—"
+nav_order: 1
 ---
 Episode One: How I Came to Like My Teacher ―July 2032―
 

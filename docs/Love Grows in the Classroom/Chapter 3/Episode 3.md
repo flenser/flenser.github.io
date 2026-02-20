@@ -1,6 +1,7 @@
 ---
 parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
 title: "Episode Three: Not Too Pretty? ―July 2032—"
+nav_order: 3
 ---
 Episode Three: Not Too Pretty? ―July 2032―
 

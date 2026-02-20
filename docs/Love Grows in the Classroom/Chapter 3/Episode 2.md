@@ -1,6 +1,7 @@
 ---
 parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
 title: "Episode Two: Love Talk with the Teacher ―July 2032—"
+nav_order: 2
 ---
 Episode Two: Love Talk with the Teacher ―July 2032―
 
