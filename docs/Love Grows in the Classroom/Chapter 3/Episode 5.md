@@ -1,6 +1,7 @@
 ---
 parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
 title: "Episode Five: Irritation ―July 2032—"
+nav_order: 5
 ---
 Episode Five: Irritation ―July 2032―
 

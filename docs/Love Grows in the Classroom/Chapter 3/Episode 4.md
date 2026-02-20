@@ -1,6 +1,7 @@
 ---
 parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
 title: "Episode Four: I Have No Idea ―July 2032—"
+nav_order: 4
 ---
 Episode Four: I Have No Idea — July 2032 —
 

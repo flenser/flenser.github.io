@@ -1,6 +1,7 @@
 ---
 parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
 title: "Episode Seven: Jealousy ―July 2032—"
+nav_order: 7
 ---
 Episode Seven: Jealousy ―July 2032―
 
