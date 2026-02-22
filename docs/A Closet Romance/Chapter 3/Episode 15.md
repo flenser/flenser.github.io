@@ -53,9 +53,9 @@ I prefer the neat and cute type, like Mitsuki. Just kidding.
 Maki sighs, holding a hand mirror as she applies mascara to her lashes.\
 Her wide-open eyelids look as if her eyeballs might spill out any moment.
 
-「…The classroom’s been such a drag lately, it’s unbearable. You can study anytime, can’t you? What’s the point of not making the most of your last year of high school?」
+"…The classroom’s been such a drag lately, it’s unbearable. You can study anytime, can’t you? What’s the point of not making the most of your last year of high school?"
 
-「Maki, you never study no matter how much time you have, yet you’re the one saying this. Hey, are you alright? Will you graduate? Shall I help you study?」
+"Maki, you never study no matter how much time you have, yet you’re the one saying this. Hey, are you alright? Will you graduate? Shall I help you study?"
 
 "No thanks. If I'm going to get tutored, I'd rather ask Kase-san than Nana."
 

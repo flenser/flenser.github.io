@@ -26,7 +26,7 @@ It wasn't that she had neglected her training; in fact, recently —she should h
 There was no doubt the opponent was formidable.\
 Even so, defeat should never have been permitted for Alisha.
 
-「……」
+"……"
 
 There was one thing that came to mind, however —the incident with Lotte.\
 Ever since Lotte had rejected her, Alisha had tried her best not to think about her.\

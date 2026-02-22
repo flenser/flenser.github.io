@@ -146,7 +146,7 @@ Holding Amamiya Tōru's hand firmly, ensuring I wouldn't let go, we left the apa
 The time was just past six.\
 　I simply messaged Mum on LINE that I was bringing a friend over. Without a word, Amamiya Tōru followed me home, looking puzzled by the current situation.
 
-「「………」」
+""………""
 
 We were both silent.\
 To get home, we had to take the train, and to take the train, we had to go to the station.\

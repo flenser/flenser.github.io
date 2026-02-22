@@ -3,7 +3,7 @@ parent: "Chapter Three: I'm Scared"
 title: Episode 36
 ---
 
-「「………」」
+""………""
 
 We remained embraced, motionless for a while.\
 Still fully clothed.\

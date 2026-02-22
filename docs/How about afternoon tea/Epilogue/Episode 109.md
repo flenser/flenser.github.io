@@ -170,17 +170,17 @@ We're staying at an all-inclusive resort the whole time, and there probably won'
 
 Yui-san smiled happily, looking straight into my eyes. I felt the grip on my hand tighten.
 
-「……Kanata」
+"……Kanata"
 
-「What is it?」
+"What is it?"
 
 Yui-san brought her lips close to my ear. Wondering what it could be, I leaned in to listen.
 
-「I love you」
+"I love you"
 
 She whispered softly, and I blushed in surprise.
 
-「Oh, what are you saying in a place like this…!」
+"Oh, what are you saying in a place like this…!"
 
 Seeing my flustered reaction, Yui-san laughed teasingly.
 

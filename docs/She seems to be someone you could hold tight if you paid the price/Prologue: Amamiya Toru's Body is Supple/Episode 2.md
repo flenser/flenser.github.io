@@ -160,12 +160,12 @@ Right now, all my awareness was consumed by the sensation travelling through my 
 
 The destination my hand reached, guided by Amamiya Tōru, was Amamiya Tōru's chest.
 
-「………」
+"………"
 
 No words came out.\
 Though vulgar, the sound of me swallowing hard was all that reached my ears.
 
-「Hmm? Just this isn't quite enough of a reaction, is it? Guess girls aren't as straightforward as boys after all—」
+"Hmm? Just this isn't quite enough of a reaction, is it? Guess girls aren't as straightforward as boys after all—"
 
 Though I couldn't tell her that.\
 I'd made Amamiya Tōru do all sorts of things in my mind, and let her do them.\

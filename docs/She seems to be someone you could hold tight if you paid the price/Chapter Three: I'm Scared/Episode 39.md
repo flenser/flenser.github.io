@@ -3,7 +3,7 @@ parent: "Chapter Three: I'm Scared"
 title: Episode 39
 ---
 
-「………」
+"………"
 
 Amamiya Tōru fell silent.\
 I licked her wounds, one by one.\

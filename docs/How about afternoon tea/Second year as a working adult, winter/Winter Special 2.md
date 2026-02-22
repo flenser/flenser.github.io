@@ -130,7 +130,7 @@ Then, following that tall figure, I started walking.
 My legs went weak. I didn't want to see them. Why? I should have to see them. I should have to accept reality. Taking Yui along scared me. That's what I thought.\
 Noticing I'd stopped, the person paused, turned back, and let their gaze drift as if pondering.
 
-「…Yuki-nii, what’s wrong?」
+"…Yuki-nii, what’s wrong?"
 
 A childish voice suddenly reached my ears, and I looked down. I gazed into eyes flickering with unease. —Yui, I’m sorry.\
 I should have offered words to reassure her, but my throat tightened, and no sound came out. I became aware my knees were trembling slightly.

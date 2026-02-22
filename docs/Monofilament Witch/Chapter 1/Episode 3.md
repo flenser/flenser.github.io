@@ -93,7 +93,7 @@ The magical cyberware dress covering her body blocked every impact with its circ
 　That is why the girls can walk through the blast.\
 Adults clad in mere suits possess no magic.
 
-「……」
+"……"
 
 Strawberry Pink gazed at the source of the blast.\
 Her lips did not tremble.\

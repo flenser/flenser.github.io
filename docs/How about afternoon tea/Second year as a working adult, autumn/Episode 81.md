@@ -82,7 +82,7 @@ What should I do? How did I always handle this before? I tried desperately to re
 Slowly, I pulled the shirt up to her chest, revealing her pure white skin and navy underwear. I'd seen it just now in the hot spring, yet somehow it felt incredibly alluring, making my heart leap.\
 Without thinking, I hurriedly pulled the shirt back down.
 
-「……Yui-san, I suppose you'll have to take it off yourself」
+"……Yui-san, I suppose you'll have to take it off yourself"
 
 Suddenly overcome by anxiety that I might not be able to undress her properly, I couldn't bear it any longer. As I spoke, she lay sprawled on the bed, gazing up at me, and gave a faint smile.
 
@@ -253,11 +253,11 @@ I wonder if she understood now...
 
 Peering over, I saw Yui-san's eyes widen slightly in surprise, then she smiled happily.
 
-「……Hmm, well done」
+"……Hmm, well done"
 
 The finger withdrawn from my mouth gently traced the line from my neck down to the hollow of my breast, then lower still, beyond my stomach. Slowly tracing my body. That alone sent shivers running down my spine.
 
-「Since you begged properly, you'll get a reward」
+"Since you begged properly, you'll get a reward"
 
 I nodded quietly. "Lift your hips a little," she said gently, and I obediently did as told.\
 Yet, there was no sign of her pushing me down. Wondering why, I looked up at her. Yui-san must have noticed my expression, for she gave a soft laugh.

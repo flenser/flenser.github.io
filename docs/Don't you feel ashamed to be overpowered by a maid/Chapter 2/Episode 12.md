@@ -73,13 +73,13 @@ Because she didn't think it would solve the root problem, and Alisha was someone
 If she had brought Lotte back as a maid for this purpose, she had already failed to meet her expectations.\
 But if the meaning of 'pushing her down' included 'something indecent' —well, that was still something Lotte simply couldn't do.
 
-「……Right, I suppose there's no helping it then」
+"……Right, I suppose there's no helping it then"
 
 Having resigned herself, Alisha rose from the bed.\
 Lotte breathed a sigh of relief.
 
-「Ah, um, what about changing clothes…?」\
-「It's fine. More importantly, I've decided to ask another maid instead」
+"Ah, um, what about changing clothes…?"\
+"It's fine. More importantly, I've decided to ask another maid instead"
 
 Alisha replied thus to Lotte's question.
 

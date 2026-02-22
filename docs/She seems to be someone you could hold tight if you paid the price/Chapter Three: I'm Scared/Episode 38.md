@@ -3,8 +3,8 @@ parent: "Chapter Three: I'm Scared"
 title: Episode 38
 ---
 
-「………」\
-「………」
+"………"\
+"………"
 
 Interrupting Amamiya Tōru's soliloquy.\
 I now waited silently once more for her to finish washing everything.\
