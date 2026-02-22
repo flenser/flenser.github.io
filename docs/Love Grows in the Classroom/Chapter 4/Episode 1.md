@@ -9,8 +9,8 @@ A week had passed since the supplementary lessons with Kakei-san ended and summe
 
 My morning routine starts with checking my phone, but for the past month, it's been a real drag because my mood plummets first thing.
 
-'Good morning, Meisa'
-‘I need to talk. Can we meet today?’
+'Good morning, Meisa'\
+‘I need to talk. Can we meet today?’\
 ‘Can’t we just try again?’
 
 Seeing yet another message from Wataru, probably the hundredth begging for us to get back together, inevitably made my brow furrow.
