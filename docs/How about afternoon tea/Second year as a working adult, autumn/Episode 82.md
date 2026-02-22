@@ -102,7 +102,7 @@ Mitsuya-san must be in love with someone right now.
 
 "Nothing, really. I don't think having money or not affects how much I want to be with someone."
 
-Not just lip service, but genuinely. When I stated it plainly, Ms Mitsuya smiled and stubbed out her now very short cigarette in the ashtray.
+Not just lip service, but genuinely. When I stated it plainly, Mitsuya-san smiled and stubbed out her now very short cigarette in the ashtray.
 
 "Yeah, well, I suppose you would say that, Aosawa..."
 
