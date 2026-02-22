@@ -118,8 +118,8 @@ I hope she hasn't forgotten.\
 I want her to still like me too.\
 I wanted her to be allowed to keep that feeling.
 
-「………」\
-「………」
+"………"\
+"………"
 
 A long silence.
 
@@ -130,7 +130,7 @@ And then,
 she spread her arms wide.\
 That gesture of hers, one I'd seen so many times.
 
-「Hmm」
+"Hmm"
 
 That was all she uttered.\
 For the two of us, that was enough.

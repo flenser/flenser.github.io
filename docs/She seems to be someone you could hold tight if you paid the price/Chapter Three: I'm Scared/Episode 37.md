@@ -6,8 +6,8 @@ title: Episode 37
 I waited, soaking in the filled bath, for Amamiya Tōru to finish washing her hair and body.\
 Before getting in, I’d made excuses about it being cramped or something, but even so, our bathroom was large enough for two people to soak together with reasonable space.
 
-「………」\
-「………」
+"………"\
+"………"
 
 I had already finished washing myself.\
 Even while I waited in the bath, we remained silent like this.\

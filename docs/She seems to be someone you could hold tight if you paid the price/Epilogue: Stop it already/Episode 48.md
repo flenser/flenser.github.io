@@ -100,7 +100,7 @@ The only words that came out were "Why?" That was all.
 
 Lying face down on the bed, Amamiya Tōru propped herself up on one elbow, lifting only her face to look up at me with a sidelong glance.
 
-「………」
+"………"
 
 I remained silent.\
 Did Amamiya Tōru have some thought of her own?\

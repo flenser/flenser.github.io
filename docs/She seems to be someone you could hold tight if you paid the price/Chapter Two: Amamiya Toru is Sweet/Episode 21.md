@@ -74,8 +74,8 @@ Just to test it, the umpteenth time her lips devoured mine, I tried extending my
 My tongue licked her lips.\
 Instantly, Amamiya Tōru jerked away from me, creating distance.
 
-「………」\
-「………」
+"………"\
+"………"
 
 ………, …awkward.
 

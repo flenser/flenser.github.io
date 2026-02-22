@@ -79,7 +79,7 @@ Or perhaps, had she not witnessed that act at the brothel that day, had she not 
 After all, she had never once questioned that way of life.\
 But —now that she knew, there was no going back.
 
-「……」
+"……"
 
 She touched her own chest, then slid her hand down towards her lower abdomen —this too was knowledge gained from books, yet doing it herself required courage.\
 If she asked Lotte —might she agree to even more extreme acts?\

@@ -144,12 +144,12 @@ I knew the owner of that voice all too well, and I couldn't help but turn my hea
 
 Mitsuki lifted her face from her desk, rubbing her eyes sleepily.
 
-「……Eh? Do you fancy girls, Kase-san?」
+"……Eh? Do you fancy girls, Kase-san?"
 
 Maki asked, looking taken aback.\
 Mitsuki stared straight at Maki.
 
-「No, it's not exactly like that. But I don't think it's strange. It's not something others should be telling me what to do about.」
+"No, it's not exactly like that. But I don't think it's strange. It's not something others should be telling me what to do about."
 
 A complex mix of feelings welled up inside her – something like happiness, something like sadness.
 

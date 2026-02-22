@@ -87,6 +87,6 @@ Seeing Alisha, pinned down, unable to rise even as she struggled – shedding te
 But this was what Alisha had wanted.\
 Lotte hadn't done anything wrong – that's what she thought, but suddenly, Lotte snapped back to her senses.
 
-「――」
+"――"
 
 And so, Lotte immediately leapt off Alisha.

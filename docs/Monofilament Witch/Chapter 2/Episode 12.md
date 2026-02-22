@@ -12,7 +12,7 @@ A crimson trail of blood/skin connecting upper and lower halves. Entangled entra
 The pink phosphorescent magic that caused the overload grows faint.\
 The transformation magic departs the girl's body.
 
-「……」
+"……"
 
 The silver shadow wiped the blood from its blade.\
 To prevent the edge from dulling.\
@@ -137,7 +137,7 @@ Strawberry Pink's lips murmured the name. [Raven Silver]. Raven's silver.\
 It was almost exactly the same format as a magical girl's codename.
 
 『【Sapphire Blue】 desired that one.』\
-「――」\
+"――"\
 『Retreat, 【Raven Silver】. Reinforcements are approaching... If you're going to throw a tantrum, I'll step down as your guide mascot, you know?』
 
 The silver shadow turned away upon receiving the transmission.\

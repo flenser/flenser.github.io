@@ -198,7 +198,7 @@ It made me realise just how useless I truly was. I couldn't even properly look a
 
 The last bit made me burst out laughing. It felt like the slight tension in my heart had eased a little.
 
-「Fufu, spring onions? Do you really think that'll work?」
+"Fufu, spring onions? Do you really think that'll work?"
 
 『What's that supposed to mean? My old granny back in the sticks said so, so it must be true. Just try it and see, even if you think I'm pulling your leg.』
 

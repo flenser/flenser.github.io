@@ -56,15 +56,15 @@ I reached out and grabbed the can, slamming the fridge door shut so hard it ratt
 
 An unusually sombre voice reached me, and I looked up. Yui-san, opening the living room door, noticed me and shifted her gaze awkwardly.
 
-「…You’re late, Yui-san. Did you go to that child’s house or something?」
+"…You’re late, Yui-san. Did you go to that child’s house or something?"
 
-「Of course not. My phone screen cracked, so I just went to buy a new one. That’s why it took so long. It’s all because Kanata did that thing.」
+"Of course not. My phone screen cracked, so I just went to buy a new one. That’s why it took so long. It’s all because Kanata did that thing."
 
 Yui-san took off her coat and hung it on the rack.
 
-「…Is it my fault?」
+"…Is it my fault?"
 
-「Wouldn’t you be shocked? Normally, if someone did that to you.」
+"Wouldn’t you be shocked? Normally, if someone did that to you."
 
 "But you always kiss me, don't you?"
 
