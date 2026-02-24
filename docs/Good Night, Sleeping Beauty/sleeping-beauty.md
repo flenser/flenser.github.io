@@ -21,7 +21,9 @@ This is a yuri story where a socially awkward adult who's easily persuaded and a
 ![Good Night, Sleeping Beauty](/assets/images/sleeping-beauty.png)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [深水紅茶（リプトン）]
+Author: [深水紅茶（リプトン）]\
+If you like the story, please support the author by buying their [book].
 
+[book]: https://kakuyomu.jp/publication/entry/9784040762067
 [kakuyomu]: https://kakuyomu.jp/works/16818093089913215356
 [深水紅茶（リプトン）]: https://kakuyomu.jp/users/liptonsousaku
