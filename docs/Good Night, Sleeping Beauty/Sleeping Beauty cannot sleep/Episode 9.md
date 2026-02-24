@@ -121,7 +121,7 @@ The tear, freshly spilled, felt neither warm nor cold.
 
 "...I'm sorry. I have to go home today."
 
-Ibari's shoulders jerked, trembling as if whipped.\
+Ibara's shoulders jerked, trembling as if whipped.\
 A dark shadow fell swiftly across her downcast, innocent face.\
 　It hurt as if it were my own. My chest creaked, my heart shrunk.\
 I didn't like it.\

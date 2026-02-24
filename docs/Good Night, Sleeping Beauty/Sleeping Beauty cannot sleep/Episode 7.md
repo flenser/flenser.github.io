@@ -5,7 +5,7 @@ nav_order: 7
 ---
 Episode Seven
 
-"Amai-senpai, did something happen yesterday?"
+"Amami-senpai, did something happen yesterday?"
 
 I was addressed like that just as I'd finished checking my morning emails.\
 Looking up from the screen, I saw a woman with long hair standing there, the sort who might attend a university around Aoyama.\

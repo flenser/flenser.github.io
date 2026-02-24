@@ -136,20 +136,20 @@ This girl has a lot of demands.
 
 "Haaai, I'm Ibara! What about you, big sister?"
 
-"Ah, Amagai. Amagai Shigure."
+"Ah, Amami. Amami Shigure."
 
-"How do you write 'Amagai'?"
+"How do you write 'Amami'?"
 
-"Rain and sea, Amagai."
+"Rain and sea, Amami."
 
 "Wow, you're totally a rain girl."
 
 　The words stabbed like a knife.\
 This high schooler, picking up on things people are self-conscious about...
 
-"So, Ibara. What did that mean just now?"
+"So, Ibara. What did you mean before?"
 
-"Just now?"
+"Before?"
 
 "Well... um. Like, wanting me to sleep with you, or go to a hotel..."
 
@@ -172,7 +172,7 @@ Oh, really. But that makes it even more confusing.
 
 "Because you're my destined one."
 
-"Like you said earlier, what on earth does that mean?"
+"Like I said earlier, what on earth does that mean?"
 
 Ibara pointed to her right eye. More precisely, to the dark circle beneath it.
 
@@ -196,7 +196,7 @@ The moment she said it, she realised how terribly stupid the question was.\
 Of course it wasn't okay.\
 Sleep is essential for humans to lead healthy, civilised lives.
 
-"Of course. I'm ill. Insomnia, they call it."
+"Of course not. I'm ill. Insomnia, they call it."
 
 "Hospital?"
 
