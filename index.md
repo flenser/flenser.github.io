@@ -10,6 +10,7 @@ Stories translated so far
 
 - [A Closet Romance](/docs/A Closet Romance/closet-romance.html)
 - [Don't you feel ashamed to be overpowered by a maid](/docs/Don't you feel ashamed to be overpowered by a maid/overpowered-by-maid.html)
+- [Good Night, Sleeping Beauty](/docs/Good Night, Sleeping Beauty/sleeping-beauty.html)
 - [How about afternoon tea](/docs/How about afternoon tea/how-about-afternoon-tea.html)
 - [If you kiss me, I'll tell you](/docs/If you kiss me, I'll tell you/if-you-kiss-me.html)
 - [Love Grows in the Classroom After School](/docs/Love Grows in the Classroom/love-grows-in-classroom.html)
