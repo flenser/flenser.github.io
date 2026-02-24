@@ -8,8 +8,8 @@ has_children: true
 
 ## Description
 
-Amami Shigure, a third-year rookie designer.
-One night, a fluffy-haired high school girl with unusually dark circles under her eyes appears before her.
+Amami Shigure, a third-year rookie designer.\
+One night, a fluffy-haired high school girl with unusually dark circles under her eyes appears before her.\
 To the bewildered Shigure, she says:
 
 "Big sis. I'll pay you, so sleep with me."
