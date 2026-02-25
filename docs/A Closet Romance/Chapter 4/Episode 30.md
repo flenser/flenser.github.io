@@ -27,7 +27,7 @@ I was so utterly resolved to 'go to university in Tokyo' – yet now that resolv
 
 It's ridiculous, isn't it? Why does a single night of sex make me feel like I've become special to Mitsuki?
 
-　Mizuki said nothing would change, but that wasn't true.\
+　Mitsuki said nothing would change, but that wasn't true.\
 I'd never been this carefree, this prone to optimistic delusions before.\
 The deep claw marks Mitsuki left inside me had undeniably twisted something within me. That much was certain.
 
