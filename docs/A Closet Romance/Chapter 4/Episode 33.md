@@ -75,7 +75,7 @@ Mitsuki is strong, isn't she? But then, it's Mitsuki... Somehow, I thought she'd
 
 Why? I couldn't help but give a wry smile.
 
-"You wouldn't understand, Mitsuki... Because right now, you don't possess anything but that's important to you. That's why you're not afraid. You're strong enough to discard everything unnecessary. You couldn't possibly comprehend this fear of mine."
+"You wouldn't understand, Mitsuki... Because right now, you don't possess anything but what's important to you. That's why you're not afraid. You're strong enough to discard everything unnecessary. You couldn't possibly comprehend this fear of mine."
 
 The line between what's important and what isn't is clear for her, and that's precisely why Mitsuki can be strong.\
 I can't draw that line. I can't cut ties with friends who might not even accept me, nor can I ignore the curious stares of strangers.\
