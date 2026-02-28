@@ -1,9 +1,9 @@
 ---
 parent: "Chapter 8: The Story Only I Can Write"
-title: "Interlude ⑤ Ryōka, Seventeen — February 2033 —"
+title: "Digression ⑤ Ryōka, Seventeen — February 2033 —"
 nav_order: 15
 ---
-Interlude ⑤ Ryōka, Seventeen — February 2033 —
+Digression ⑤ Ryōka, Seventeen — February 2033 —
 
 February 14th. After school, Ryōka was on a date with Sōma at a family restaurant.
 

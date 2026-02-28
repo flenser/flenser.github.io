@@ -1,6 +1,6 @@
 ---
 parent: "Chapter 8: The Story Only I Can Write"
-title: "Episode Digression ⑥ Ryōka, Eighteen Years Old ― December 2033 —"
+title: "Digression ⑥ Ryōka, Eighteen Years Old ― December 2033 —"
 nav_order: 16
 ---
 Digression ⑥ Ryōka, Eighteen Years Old ―December 2033―
