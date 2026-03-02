@@ -5,10 +5,10 @@ nav_order: 4
 ---
 Episode Thirty-Four
 
-The hot shower pouring over my head felt like coming back to life.
-The pleasant heat melted away my fatigue.
-Glancing at the bathroom shelf, I saw body soap, shampoo, and sponges lined up.
-I wonder if it's alright to use these.
+The hot shower pouring over my head felt like coming back to life.\
+The pleasant heat melted away my fatigue.\
+Glancing at the bathroom shelf, I saw body soap, shampoo, and sponges lined up.\
+I wonder if it's alright to use these.\
 While I hesitated over whether to ask, the bathroom door opened.
 
 "Ibara, would it be alright if I borrowed these things around here—"
@@ -19,7 +19,7 @@ I turned around absentmindedly, and my words trailed off.
 
 "...Ah, right..."
 
-Come to think of it, I recall feeling the same way the first time I did nude drawing.
+Come to think of it, I recall feeling the same way the first time I did nude drawing.\
 That humans possess such a terribly complex, yet beautiful form.
 
 "What?"
@@ -36,19 +36,19 @@ That humans possess such a terribly complex, yet beautiful form.
 
 "No way."
 
-Saying that, Ibara was casually watching me.
-It was strange. A gaze shouldn't have any mass, yet I could feel it distinctly. A tingling sensation, like fine hairs being tickled.
-Was it because I was naked? I could even perceive exactly where Ibara was looking.
-Ah, just now, she looked at my nipples. Pervert.
-From there, her gaze descended along the curve of my shoulder, down my upper arm, tickling my side, to my navel. Then, hesitantly, it kept going down, lower and lower.
-Honestly, that's... embarrassing. How much is too much to look, you little adolescent girl.
-　I turned my back on Ibara.
-Honestly, if she kept staring like that, my heart wouldn't take it.
+Saying that, Ibara was casually watching me.\
+It was strange. A gaze shouldn't have any mass, yet I could feel it distinctly. A tingling sensation, like fine hairs being tickled.\
+Was it because I was naked? I could even perceive exactly where Ibara was looking.\
+Ah, just now, she looked at my nipples. Pervert.\
+From there, her gaze descended along the curve of my shoulder, down my upper arm, tickling my side, to my navel. Then, hesitantly, it kept going down, lower and lower.\
+Honestly, that's... embarrassing. How much is too much to look, you little adolescent girl.\
+　I turned my back on Ibara.\
+Honestly, if she kept staring like that, my heart wouldn't take it.\
 Was there any topic that might distract her? There was. Just one.
 
 "About Runa, you see..."
 
-As expected, Ibara flinched at that.
+As expected, Ibara flinched at that.\
 I pressed the nozzle of the body soap and worked it into a lather with the sponge.
 
 "True, she was the model for the painting in the closet. And yes, we did live together. But it really wasn't that sort of thing with her."
@@ -105,8 +105,8 @@ Ibara replied.
 
 "That's what's frustrating."
 
-Eeeeh.
-But that's just something you can't help, isn't it?
+Eeeeh.\
+But that's just something you can't help, isn't it?\
 Seven years ago, when I met Runa on the art university campus, Ibara was still in primary school.
 
 "You slept with that person too, didn't you?"
@@ -147,13 +147,13 @@ The soft texture, along with a generous amount of lather, stroked my back. The p
 
 "...We did."
 
-　We'd been playfully washing each other.
+　We'd been playfully washing each other.\
 What feelings had Runa been hiding back then?
 
 "So, what about hugging?"
 
-Something distinctly different from the sponge touched my back.
-A warm, soft sensation, like solidified water, clung to my back.
+Something distinctly different from the sponge touched my back.\
+A warm, soft sensation, like solidified water, clung to my back.\
 This...
 
 "I-Ibara⁉︎"
@@ -164,15 +164,15 @@ This...
 
 "You did."
 
-Ibara wrapped her arms around my waist and pulled me close. Firmly, as if asserting something.
-Bubbles dripped down my skin, plop, plop.
+Ibara wrapped her arms around my waist and pulled me close. Firmly, as if asserting something.\
+Bubbles dripped down my skin, plop, plop.\
 In a voice so thin it seemed it might vanish any moment, Ibara whispered.
 
 "...Then, what about kissing?"
 
 "No, we didn't."
 
-Hot breath touched my neck.
+Hot breath touched my neck.\
 Ibara's fingertips, resting on my stomach, parted, then entwined again.
 
 "I want to. Let me do the things that person hasn't done yet."
@@ -187,7 +187,7 @@ Ibara's fingertips, resting on my stomach, parted, then entwined again.
 
 "H-huh!"
 
-Ouch!
+Ouch!\
 No way. Did this kid just bite my neck?
 
 "It hurts! Ibara, why did you do that...?"
@@ -198,15 +198,15 @@ No way. Did this kid just bite my neck?
 
 "I do care about you."
 
-Ibara gently pulled away from my back.
+Ibara gently pulled away from my back.\
 Taking the shower nozzle, she rinsed the foam away with warm water.
 
 "Let's get in the bath. You'll get cold again."
 
 †
 
-We sat facing each other in the bath.
-Seen straight on, it really was a beautiful body. Pale, smooth skin, floating there.
+We sat facing each other in the bath.\
+Seen straight on, it really was a beautiful body. Pale, smooth skin, floating there.\
 Not that I'm saying anything specific.
 
 "...It's warm, isn't it?"
@@ -225,7 +225,7 @@ Not that I'm saying anything specific.
 
 "...Yeah."
 
-Oh, right, Ibara exhaled.
+Oh, right, Ibara exhaled.\
 He leaned towards me, parting the water's surface.
 
 "Is there anything I can do?"
@@ -236,7 +236,7 @@ He leaned towards me, parting the water's surface.
 
 "Didn't I mention? I'm a product packaging designer. Right now I'm working on a new package for a confectionery called 'Rêve'."
 
-Ah, could this be a breach of confidentiality?
+Ah, could this be a breach of confidentiality?\
 Ah well.
 
 "'Rêve'? As in that chocolate 'Rêve'?"
@@ -253,8 +253,8 @@ Ah well.
 
 "Even adults like princesses, don't they? I had quite a few older fans. Both men and women."
 
-Ah.
-Something clicked into place in my head.
+Ah.\
+Something clicked into place in my head.\
 　A crucial piece that had been missing from my design all along.
 
 "—It's the princess."
@@ -263,14 +263,14 @@ Something clicked into place in my head.
 
 "That's right. 'Rêve' is princess chocolate, so you can't just erase that."
 
-Images flooded my mind.
-During the concept review stage, the illustration of the princess, the very symbol of the current 'Rêve', was completely scrapped.
-　Too childish.
-The policy was set to appeal to women in their twenties and thirties.
-But perhaps that was where we went wrong.
-Adults love cute, beautiful princesses too.
-There's no need to discard something beloved.
-What's needed is change.
+Images flooded my mind.\
+During the concept review stage, the illustration of the princess, the very symbol of the current 'Rêve', was completely scrapped.\
+　Too childish.\
+The policy was set to appeal to women in their twenties and thirties.\
+But perhaps that was where we went wrong.\
+Adults love cute, beautiful princesses too.\
+There's no need to discard something beloved.\
+What's needed is change.\
 Shift from the current fancy route to a smarter, more contemporary design.
 
 "—I—"
@@ -281,7 +281,7 @@ Shift from the current fancy route to a smarter, more contemporary design.
 
 "Hyah!"
 
-Surrendering to the surging adrenaline, I threw myself into Ibara's arms.
+Surrendering to the surging adrenaline, I threw myself into Ibara's arms.\
 I hugged her tight as she thrashed about, splashing water everywhere.
 
 "H-hold on, Shigure-san! You're touching me! You're touching me everywhere!"
