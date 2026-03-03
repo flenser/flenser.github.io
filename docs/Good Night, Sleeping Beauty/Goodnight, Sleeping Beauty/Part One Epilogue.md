@@ -1,7 +1,7 @@
 ---
 parent: "Goodnight, Sleeping Beauty"
 title: "Part One: Epilogue"
-nav_order: 1
+nav_order: 7
 ---
 Part One: Epilogue
 
