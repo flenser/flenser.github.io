@@ -1,5 +1,5 @@
 ---
-parent: "Goodnight, Sleeping Beauty"
+parent: "Interlude Holy Night"
 title: "Princess Ibara and the Holy Night. Part 2"
 nav_order: 2
 ---
