@@ -43,7 +43,7 @@ Just as Haru shouted that, a university-aged chap nervously approached, stammeri
 
 "Apologies."
 
-Haru and Hibari-san bowed together. The waiter, who hadn't done anything wrong, muttered "excuse me" and left the table.
+Haru and Hibari-san bowed together. The waiter, who hadn't done anything wrong, muttered "excuse me" and left the table.\
 With the tension finally easing, Haru let out a long sigh.
 
 "Well, it all comes down to how things go, doesn't it? Whether we make a clean break or just let it slide."
@@ -52,10 +52,10 @@ With the tension finally easing, Haru let out a long sigh.
 
 "Bullshit."
 
-Haru snapped. But it was true.
-This was solely my problem.
-Sooner or later, I'd have to face it. Where our relationship was headed.
-And my own feelings too.
+Haru snapped. But it was true.\
+This was solely my problem.\
+Sooner or later, I'd have to face it. Where our relationship was headed.\
+And my own feelings too.\
 "By the way," Hibari-san leaned forward.
 
 "I still haven't seen the face of this rumoured schoolgirl, you know."
@@ -68,7 +68,7 @@ Well, that was bound to happen. Given the flow of this conversation, it was inev
 
 "I know, I know."
 
-I handed Hibari-san my phone, displaying the photo of Ibara.
+I handed Hibari-san my phone, displaying the photo of Ibara.\
 "Whoa!" Hibari-san's excitement level shot up a notch.
 
 "Eh, wow. She really is cute. She's got the kind of face Ame-chan would like, doesn't she?"
@@ -79,14 +79,14 @@ Oh dear, that's the reaction I expected.
 
 "...Hmm?"
 
-Suddenly, Hibari-san frowned.
+Suddenly, Hibari-san frowned.\
 She scrutinised my iPhone, squinting and staring intently.
 
 "Hmm? I feel like I've seen this face somewhere before. I'm sure it's an idol's—"
 
 "It's probably just a coincidence!"
 
-I hastily retrieved my phone.
+I hastily retrieved my phone.\
 Dangerous. Right, Hibari-san was the sort who regularly checked out idols and such. After all, this person absolutely adores cute girls.
 
 "Well, they say there are three people in the world who look alike!"
@@ -109,9 +109,9 @@ Well, she was the real deal, of course.
 
 "Shut up, Haru-chan. Look, like this one."
 
-With that, Hibari-san showed me an illustration of two girls pressed tightly together, their hands overlapping.
-It was skilful. Though more manga-style, it captured their features perfectly.
-That's why I recognised it instantly. One of the girls was Ibara-chan.
+With that, Hibari-san showed me an illustration of two girls pressed tightly together, their hands overlapping.\
+It was skilful. Though more manga-style, it captured their features perfectly.\
+That's why I recognised it instantly. One of the girls was Ibara-chan.\
 　And the other one was—
 
 "This one's Ibara-chan, who's graduated, and this one's the centre,—"
@@ -122,29 +122,29 @@ That's why I recognised it instantly. One of the girls was Ibara-chan.
 
 "Ah."
 
-Oops.
+Oops.\
 I'd seen her before on 'Charles' SNS, so I just blurted it out.
 
 "Well, it was just by chance."
 
 "Well, she is the centre with the most exposure. That's right. Haibara Yōme-chan. The one themed after Cinderella."
 
-All the idols in 'Charles' are themed after Charles Perrault's fairy tales.
-Cinderella's Haibara Yōme is a classic idol with short black hair.
+All the idols in 'Charles' are themed after Charles Perrault's fairy tales.\
+Cinderella's Haibara Yōme is a classic idol with short black hair.\
 Though, in the illustration, her hair was longer. Her facial features looked the same, though.
 
 "Well, the photo I saw had short hair—"
 
 "That might have been quite a while ago. She seems to be growing it out; it's about this length now."
 
-Ah, I see. That explains it.
+Ah, I see. That explains it.\
 I must have scrolled back quite far on her SNS back then, so the short hair impression stuck in my mind.
 
 "There's this one too, and this one as well."
 
-Each time Hibari-san's finger slid across the screen, a new illustration appeared.
-And every single one depicted both Ibara and Hime together.
-　Most were just them posing together, but some had rather suggestive compositions.
+Each time Hibari-san's finger slid across the screen, a new illustration appeared.\
+And every single one depicted both Ibara and Hime together.\
+　Most were just them posing together, but some had rather suggestive compositions.\
 Hugging from the front, exchanging meaningful glances, and even kissing cheeks.
 
 "Um, Hibari-san. Isn't this a bit... odd? This is fan art of a graduate, right?"
@@ -171,12 +171,12 @@ Considering that, not a single illustration of Ibara alone appeared.
 
 "Kumoko, you'll get killed by the fans."
 
-Haru's retort went right over my head.
-Huh, really?
-Come to think of it, they did say they were close. Never heard it was that serious though.......
-............
- Huh, Himeiba. First time hearing that.
-Not that it matters.
+Haru's retort went right over my head.\
+Huh, really?\
+Come to think of it, they did say they were close. Never heard it was that serious though.......\
+............\
+ Huh, Himeiba. First time hearing that.\
+Not that it matters.\
 The sound of it isn't great though.
 
 Huh.
