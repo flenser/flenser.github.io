@@ -7,13 +7,13 @@ Episode Thirty-One
 
 "I'll be waiting next weekend."
 
-Leaving those words behind, Runa went home.
-Leaving my head spinning in confusion.
-She likes me. Runa likes me.
-Wait. Wait, wait, wait for me.
-　So that means even when we were practically living together, when we took a bath together on that snowy day, when I was irritable after failing my job hunt, when I was drunk, half-naked, and clinging to her like crazy... she felt that way about me?
-She was looking at me like that?
-What the hell is that?
+Leaving those words behind, Runa went home.\
+Leaving my head spinning in confusion.\
+She likes me. Runa likes me.\
+Wait. Wait, wait, wait for me.\
+　So that means even when we were practically living together, when we took a bath together on that snowy day, when I was irritable after failing my job hunt, when I was drunk, half-naked, and clinging to her like crazy... she felt that way about me?\
+She was looking at me like that?\
+What the hell is that?\
 What the hell is that?!
 
 "What the hell is that, eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
@@ -22,8 +22,8 @@ What the hell is that?!
 
 I can't take it anymore. I don't want to think about anything.
 
-In the end, that night, Ibara didn't come back to my place.
-Sunday dawned, which was Sereno's regular day off, so naturally I couldn't meet her either. As expected, the message I sent to the chat room was read and ignored.
+In the end, that night, Ibara didn't come back to my place.\
+Sunday dawned, which was Sereno's regular day off, so naturally I couldn't meet her either. As expected, the message I sent to the chat room was read and ignored.\
 My head was a complete mess, yet still, the night ended and another week began.
 
 　†
@@ -32,9 +32,9 @@ Further turmoil began with a single sentence delivered at work.
 
 "Amami-san, just a moment."
 
-Monday morning.
-The moment I arrived at the office, I was summoned by Shindo-san.
-After three years working in the same place, you develop a certain intuition. A premonition, a bad feeling.
+Monday morning.\
+The moment I arrived at the office, I was summoned by Shindo-san.\
+After three years working in the same place, you develop a certain intuition. A premonition, a bad feeling.\
 In the end, it proved accurate.
 
 "—Emergency hospitalisation? Yamauchi-san?"
@@ -77,13 +77,13 @@ It clicked.
 
 "Amami-san, can you handle it?"
 
-Shindo-san lowered his voice slightly.
-I understood exactly what he meant.
-The 'Rêve' project had Yamauchi-san as the lead and me as the sub.
-Normally, this would be a project I'd have to take over.
-But this project is tricky.
-　The manufacturer's representative was getting quite impatient. They wanted a proposal that could get upper management approval quickly.
-Shindo-san's question essentially meant, "Should we withdraw and hand it over to another veteran?"
+Shindo-san lowered his voice slightly.\
+I understood exactly what he meant.\
+The 'Rêve' project had Yamauchi-san as the lead and me as the sub.\
+Normally, this would be a project I'd have to take over.\
+But this project is tricky.\
+　The manufacturer's representative was getting quite impatient. They wanted a proposal that could get upper management approval quickly.\
+Shindo-san's question essentially meant, "Should we withdraw and hand it over to another veteran?"\
 After a moment, I replied.
 
 "...I'd like to try doing what I can."
@@ -98,8 +98,8 @@ Shindo nodded.
 
 "I've heard the situation from Yamauchi-san too. This week is the decisive one. If the rough draft isn't approved by Friday, I'm afraid we'll run out of time. Is that acceptable?"
 
-One week.
-Given the circumstances so far, it was pushing it. But realistically, that was probably the limit.
+One week.\
+Given the circumstances so far, it was pushing it. But realistically, that was probably the limit.\
 If it failed, I'd just have to accept it was down to my own lack of ability.
 
 "Understood. That's fine."
@@ -108,23 +108,23 @@ If it failed, I'd just have to accept it was down to my own lack of ability.
 
 "Yes."
 
-There were two reasons I said I'd do it.
-Part of it was stubbornness – I wanted to see it through to the end myself.
-But more than that, I wanted to immerse myself in work right now.
+There were two reasons I said I'd do it.\
+Part of it was stubbornness – I wanted to see it through to the end myself.\
+But more than that, I wanted to immerse myself in work right now.\
 I wanted to put off thinking about Ibara and Runa.
 
 　†
 
-That's when the real struggle began.
-Obviously, I couldn't propose every single idea I sketched out. The number of proposals we submitted directly impacted costs, so the company couldn't afford to present subpar work.
-I'd create what I thought was "the one", only for it to be rejected after Shindo-san reviewed it. Or he'd specify areas needing revision.
+That's when the real struggle began.\
+Obviously, I couldn't propose every single idea I sketched out. The number of proposals we submitted directly impacted costs, so the company couldn't afford to present subpar work.\
+I'd create what I thought was "the one", only for it to be rejected after Shindo-san reviewed it. Or he'd specify areas needing revision.\
 　Making those changes would throw off the overall balance, leading to "something feels off" and having to start reworking it from scratch, a never-ending cycle of such work.
 
-The first day, Monday, ended with me merely wandering through the fog.
-It wasn't until Tuesday that the broad outline was finally decided, allowing us to tackle specific colour schemes, designs, and the product name logo.
-Wednesday was scrap-and-build, just churning out ideas.
-And then, Thursday.
-　We narrowed it down to two proposals. We incorporated the client's feedback as fully as possible.
+The first day, Monday, ended with me merely wandering through the fog.\
+It wasn't until Tuesday that the broad outline was finally decided, allowing us to tackle specific colour schemes, designs, and the product name logo.\
+Wednesday was scrap-and-build, just churning out ideas.\
+And then, Thursday.\
+　We narrowed it down to two proposals. We incorporated the client's feedback as fully as possible.\
 With two rough sketches between us, Shindo-san and I faced each other.
 
 "—What do you think?"
@@ -133,12 +133,12 @@ With two rough sketches between us, Shindo-san and I faced each other.
 
 "Yeah, I suppose so."
 
-Shindo-san stroked his chin.
-You could see the frustration written on his face.
-　It met the standards. As a company, it was at a level where we could charge for the proposal.
-But, it felt slightly lacking. As a design, it lacked eye-catching appeal.
-It had the sizzle appropriate for a chocolate product. The box had a sense of luxury, and the lettering for the product name was stylish.
-But the impression was faint.
+Shindo-san stroked his chin.\
+You could see the frustration written on his face.\
+　It met the standards. As a company, it was at a level where we could charge for the proposal.\
+But, it felt slightly lacking. As a design, it lacked eye-catching appeal.\
+It had the sizzle appropriate for a chocolate product. The box had a sense of luxury, and the lettering for the product name was stylish.\
+But the impression was faint.\
 To put it bluntly, it was ordinary.
 
 "I'm sorry, I'll need to refine it a bit more."
@@ -159,8 +159,8 @@ Shindo-san closed his eyes once, then slowly opened them.
 
 "Thank you."
 
-"I'm sorry," I apologised to Shindo-san.
-Honestly, I hadn't expected him to go this far with me.
+"I'm sorry," I apologised to Shindo-san.\
+Honestly, I hadn't expected him to go this far with me.\
 He could have written me off much sooner, and that would probably have been the right thing to do, management-wise.
 
 "Honestly, I think this is sufficient."
@@ -185,8 +185,8 @@ Shindo-san nodded and handed me a rough sketch.
 
 "Right then, do your best. Sorry, but I'm off now. It's my daughter's birthday."
 
-Waving his hand lightly, Shindo-san returned to his desk.
-Was that... a compliment?
-I looked down at the rough sketch in my hands.
-One small detail. Something missing from my design.
+Waving his hand lightly, Shindo-san returned to his desk.\
+Was that... a compliment?\
+I looked down at the rough sketch in my hands.\
+One small detail. Something missing from my design.\
 I wouldn't sleep tonight until I found it and gave it form. That's what I thought.
