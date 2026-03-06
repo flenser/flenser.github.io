@@ -102,7 +102,7 @@ At the end of the scrawled signature, written in neat, careful hand just there, 
 　Even her casual gestures were astonishingly cute.\
 Then it occurred to me, and I placed my index finger against my chin.
 
-"You were in charge of the new packaging design for 'Rêve', weren't you, Ms Amami?"
+"You were in charge of the new packaging design for 'Rêve', weren't you, Amami-san?"
 
 "Eh? Ah, yes. Though to be honest, most of it was my senior's work. I only did the princess illustration, really."
 
@@ -147,7 +147,7 @@ Someone unfamiliar, wearing Haibara Yōme's face, said mockingly.
 
 "Looks like you're about twenty-five, eh? That means you're already in your late twenties, Amami-san."
 
-"H-Haru-san?"
+"Y-Yōme-san?"
 
 "So, what was late-twenties Amami-san aiming for when she approached Ibara? I'd love to know."
 

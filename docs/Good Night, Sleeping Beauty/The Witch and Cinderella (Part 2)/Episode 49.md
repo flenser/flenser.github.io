@@ -175,7 +175,7 @@ Bang! The meeting room door swung open with force.
 
 Was it just my imagination?
 
-"I'm Haibara Haru from 'Charles'! Pleased to meet you all today!"
+"I'm Haibara Yōme from 'Charles'! Pleased to meet you all today!"
 
 Still panting, she gave a quick bow. When Haibara-san lifted her face, just for an instant—\
 I felt our eyes meet.
