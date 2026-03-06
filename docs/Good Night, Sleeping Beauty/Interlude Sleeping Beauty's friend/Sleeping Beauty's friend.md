@@ -1,9 +1,9 @@
 ---
-parent: "The Witch and Cinderella (Part One)"
-title: Ibara hime and her friend
+parent: "Interlude Sleeping Beauty's friend"
+title: "Sleeping Beauty's friend"
 nav_order: 1
 ---
-Ibara hime and her friend
+Sleeping Beauty's friend
 
 I touched it.\
 I finally touched it.\

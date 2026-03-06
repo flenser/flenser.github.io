@@ -1,6 +1,6 @@
 ---
 parent: "Good Night, Sleeping Beauty"
-title: "Interlude Princess Ibara and her Friend"
+title: "Interlude Sleeping Beauty's friend"
 has_children: true
 nav_order: 110
 ---
