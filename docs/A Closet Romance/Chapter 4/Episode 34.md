@@ -102,7 +102,7 @@ The voice drew nearer, closing in right behind me, when a hot palm seized my arm
 
 "N-Nana... you run fast... phew..."
 
-　Mizuki said, panting heavily. Even in this situation, I desperately didn't want Mitsuki to see me looking so pathetic, so I frantically wiped my tears with my sleeve, but they wouldn't stop.
+　Mitsuki said, panting heavily. Even in this situation, I desperately didn't want Mitsuki to see me looking so pathetic, so I frantically wiped my tears with my sleeve, but they wouldn't stop.
 
 "Nana, what's wrong? Why are you crying...? Did something happen...?"
 
