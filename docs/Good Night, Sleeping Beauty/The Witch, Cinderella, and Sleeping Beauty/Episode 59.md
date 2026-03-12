@@ -24,11 +24,11 @@ Hime-chan, drawn in blue pen on white paper, had her eyes downcast and a gloomy 
 "Next, the front. This remains as previously shown."
 
 The screen switched.\
-　The front view is a close-up of Yōme-chan shampooing her hair.
+　The front view is a close-up of Hiname-chan shampooing her hair.
 
 "Finally, the right side. This is Haibara-san on stage."
 
-The third slide depicts Yōme-chan singing, microphone in hand.
+The third slide depicts Hiname-chan singing, microphone in hand.
 
 "Haibara-san's motif is Cinderella. Initially, I considered incorporating the glass slipper or the pumpkin coach, but it just didn't feel right."
 
@@ -81,9 +81,9 @@ That was the story I poured into the three illustrations.
 I spoke into the terminal's camera.\
 　Manager Motomura nodded.
 
-"That's precisely why I thought it would be effective. Even someone like that, Haibara Yōme, sometimes cries or gets down. Perhaps deep down, she lacks confidence in herself."
+"That's precisely why I thought it would be effective. Even someone like that, Haibara Hiname, sometimes cries or gets down. Perhaps deep down, she lacks confidence in herself."
 
-Did anyone notice I glanced at Yōme-chan?
+Did anyone notice I glanced at Hiname-chan?
 
 "...There might be times when a little emotional support, a bit of magic, is needed. That kind of vulnerability resonates with consumers."
 
@@ -124,18 +124,18 @@ So I ended up letting it slip.
 
 "Yes. A senior colleague at work told me that's normal, and then I suddenly thought. If I feel that way, perhaps you do too, Haibara-san?"
 
-On the other side of the screen, I could see Yōme-chan give a small nod.\
+On the other side of the screen, I could see Hiname-chan give a small nod.\
 I already knew she was a girl who, deep down, lacked confidence in herself.
 
 "Haibara-san, you're an idol and incredibly successful. But you're still human, after all. Surely there are times when you feel down, tired, or lose confidence? But that's absolutely not a flaw. Rather—"
 
-　The unvarnished Yōme-chan I met in the café was plain and unassuming, but she was more than that.\
+　The unvarnished Hiname-chan I met in the café was plain and unassuming, but she was more than that.\
 Then there was another.\
 The face of a sleepless girl, with dark circles beneath her eyes, flashed into my mind.
 
 "...If she has any weaknesses, I thought even those would be part of Haibara-san's charm."
 
-Both her lack of confidence and the strength she shows in hiding it to stand on stage are part of Yōme-chan's charm.\
+Both her lack of confidence and the strength she shows in hiding it to stand on stage are part of Hiname-chan's charm.\
 　We simply aren't made to be drawn solely by brilliance.
 
 "But I imagine the agency has its own considerations. If it could damage Haibara-san's image—"
@@ -171,11 +171,11 @@ With just the two of us, my tone became more casual.
 
 I wonder.\
 After reading the minutes, I might feel like dying.\
-Through the screen, Yōme-chan smiled beautifully.
+Through the screen, Hiname-chan smiled beautifully.
 
 'I think I'll try my best, even if I still lack confidence.'
 
-"...Yōme-chan."
+"...Hiname-chan."
 
 ‘I thought that if someone could like the weak me, then maybe I wouldn’t have to be afraid of failing anymore.’
 

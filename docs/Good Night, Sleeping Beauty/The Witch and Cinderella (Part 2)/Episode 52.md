@@ -151,9 +151,9 @@ But that's beside the point.
 
 "Character creation, sort of..."
 
-The idol-like Haibara Yōme I saw in the meeting room.\
-The scheming, malicious Haibara Yōme I saw in the supply room.\
-And now, the rational, earnest-looking Haibara Yōme before me.\
+The idol-like Haibara Hiname I saw in the meeting room.\
+The scheming, malicious Haibara Hiname I saw in the supply room.\
+And now, the rational, earnest-looking Haibara Hiname before me.\
 All of them seem like completely different people.\
 If all of that is just acting, then that means—
 
@@ -177,7 +177,7 @@ Upon hearing this, Haibara-san shrank even further, her shoulders hunched.
 
 That might be true.\
 But even so, I don't feel tricked.\
-Perhaps it's something I can say precisely because I'm not a fan of "Idol Haibara Yōme", but an outsider.
+Perhaps it's something I can say precisely because I'm not a fan of "Idol Haibara Hiname", but an outsider.
 
 "This is what I'm like normally. The glasses aren't a disguise either, they're real prescription ones. I've had terrible astigmatism since I was young."
 

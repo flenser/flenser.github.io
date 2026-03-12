@@ -243,7 +243,7 @@ Ibara murmured, rubbing her forehead against mine.
 
 I properly turned her down!
 
-"And then... Yōme, for example?"
+"And then... Hiname, for example?"
 
 "Hime-chan?"
 
@@ -262,7 +262,7 @@ She gave me a cute glare, looking up at me with probing eyes.
 It really is a misunderstanding. Probably.\
 I do think Hime-chan is cute, but to me, Ibara seems more appealing.
 
-"I'll apologise as many times as it takes for lying. But I thought it was better for you to hear today's talk directly from Yōme-chan."
+"I'll apologise as many times as it takes for lying. But I thought it was better for you to hear today's talk directly from Hiname-chan."
 
 "For my sake?"
 

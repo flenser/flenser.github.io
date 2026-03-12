@@ -19,7 +19,7 @@ The confectionery section was already closing up shop for the day.\
 Well, that meant I'd have to rush to get everything ready tomorrow. If I finished on time, it should be manageable.\
 Hime-chan and I left the shopping centre together and headed for the station.
 
-"Actually, I was surprised. Do you live around here, Yōme-chan?"
+"Actually, I was surprised. Do you live around here, Hiname-chan?"
 
 "Ah, yes. I can't say exactly where, but I live with my parents in a nearby apartment building."
 
@@ -36,7 +36,7 @@ Hime-chan, who possesses everything in this world, was in the same off-duty mode
 Her knit hat, thick-rimmed glasses, hoodie, and jeans combo perfectly concealed her overflowing idol aura.\
 Still, her natural beauty shines through, and if you looked properly, she was undeniably cute.\
 　That aside.\
-I noticed the paper bag Yōme-chan was carrying, white with black trim.\
+I noticed the paper bag Hiname-chan was carrying, white with black trim.\
 Inside was expensive chocolate costing over three thousand yen.\
 And just one box.\
 Hmm.\
@@ -44,7 +44,7 @@ Hmm.\
 Wait, isn't this the kind of thing you're not supposed to witness?\
 Aren't idols forbidden from romance?
 
-"Um, Yōme-chan—"
+"Um, Hiname-chan—"
 
 I lowered my voice.
 
@@ -141,7 +141,7 @@ Feeling rather sorry about that, she murmurs softly.
 
 "I'm jealous. So jealous. I'm so envious. I want to be spoiled rotten by a beautiful, kind older sister too, and have her stroke my head and say 'there, there'."
 
-Somehow, the atmosphere surrounding Yōme-chan had changed.\
+Somehow, the atmosphere surrounding Hiname-chan had changed.\
 She pointedly pouted her lips, then peered up at me seductively from beneath her askew glasses.
 
 "Well, what do you say, Amami-san? Could you heal me too... without telling Ibara?"
