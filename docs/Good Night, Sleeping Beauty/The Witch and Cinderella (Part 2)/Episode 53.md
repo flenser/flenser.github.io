@@ -41,11 +41,11 @@ Eh?
 
 "R-really? Why? You're friends, aren't you?"
 
-"...It's to protect the brand image of 'Haibara Yōme'."
+"...It's to protect the brand image of 'Haibara Hiname'."
 
 I still didn't understand.\
 My face must have shown my confusion.\
-Yōme-chan continued.
+Hiname-chan continued.
 
 "Did you know Ibara's graduation was sudden?"
 

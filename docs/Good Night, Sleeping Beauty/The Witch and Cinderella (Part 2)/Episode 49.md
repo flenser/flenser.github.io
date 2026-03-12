@@ -49,7 +49,7 @@ Today especially, being late is not an option. I wanted to leave with plenty of 
 
 "Ah, shampoo bottle design."
 
-I couldn't mention it was a project involving Haibara Yōme, so I kept it vague.
+I couldn't mention it was a project involving Haibara Hiname, so I kept it vague.
 
 "Hmm. Shampoo."
 
@@ -119,11 +119,11 @@ The new packaging for the chocolate confectionery "Rêve", which I had designed,
 　The social media reaction was largely positive, and the information spread quite widely. The client even went out of their way to send a thank-you message.\
 I heard that recommendation was the trigger for this assignment.
 
-"Yeah, that's right. But apparently, it was Haibara Yōme who recommended Amami-san."
+"Yeah, that's right. But apparently, it was Haibara Hiname who recommended Amami-san."
 
 "Eh? Is that true?"
 
-"Well, I don't know. Either way, the manufacturer made the final decision. But apparently, Haibara Yōme told the manufacturer's representative, 'I think this kind of packaging would be lovely.'"
+"Well, I don't know. Either way, the manufacturer made the final decision. But apparently, Haibara Hiname told the manufacturer's representative, 'I think this kind of packaging would be lovely.'"
 
 "...If that's the case, I really ought to thank her..."
 
@@ -175,7 +175,7 @@ Bang! The meeting room door swung open with force.
 
 Was it just my imagination?
 
-"I'm Haibara Yōme from 'Charles'! Pleased to meet you all today!"
+"I'm Haibara Hiname from 'Charles'! Pleased to meet you all today!"
 
 Still panting, she gave a quick bow. When Haibara-san lifted her face, just for an instant—\
 I felt our eyes meet.

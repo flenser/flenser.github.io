@@ -11,7 +11,7 @@ Episode Fifty
 
 "Cendrillon is absolutely brilliant! I was thinking of doing some stealth marketing, regardless of being an ambassador. I've even been recommending it to stylists and members."
 
-The centre of 'Charles', Haibara Yōme.\
+The centre of 'Charles', Haibara Hiname.\
 If one were to verbalise her first impression, it would be something like "an absolutely lovely girl" or "the ideal high school girl as imagined by adults".\
 Her speech is clear and articulate, she's honest and earnest. Yet she shows no sign of being intimidated and even cracks light-hearted jokes.\
 　But her timing for interjections is perfect, and her polite speech never falters.\
@@ -143,11 +143,11 @@ This girl, who?\
 The girl who'd been beaming a dazzling smile just moments ago, and the girl now glaring at me with a low voice, didn't connect.\
 Haibara-san (?) stepped forward abruptly.\
 　I stepped back as if pushed.\
-Someone unfamiliar, wearing Haibara Yōme's face, said mockingly.
+Someone unfamiliar, wearing Haibara Hiname's face, said mockingly.
 
 "Looks like you're about twenty-five, eh? That means you're already in your late twenties, Amami-san."
 
-"Y-Yōme-san?"
+"Y-Hiname-san?"
 
 "So, what was late-twenties Amami-san aiming for when she approached Ibara? I'd love to know."
 

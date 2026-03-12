@@ -9,7 +9,7 @@ Christmas had passed, and the year's end drew near.\
 When it comes to the end of the year for adults, it's obviously that thing.\
 The year-end party.\
 The other day, Haru, a friend from art college, summoned me: "I'm having a drink with Kumoko, so you should come too."\
-　Having bailed on the reunion and ended up completely plastered after a one-on-one drink, needing looking after, I had no right to refuse.\
+　Someone who skipped a reunion, got completely wrecked at a one-on-one drink, and had to be taken care of has no right to refuse.\
 Or rather, I was actually quite surprised she invited me at all.\
 It sounded like it would be genuinely fun, so I agreed immediately.\
 I can't hold my drink particularly well, but I do enjoy drinking with friends. And good food too.
@@ -17,15 +17,15 @@ I can't hold my drink particularly well, but I do enjoy drinking with friends. A
 　I wrapped up work reasonably early, hopped on a train heading uptown, and headed to an izakaya in a certain bustling district.\
 Tonight's spot was Chinese. The name included "Authentic Sichuan", so it was bound to be spicy.\
 Come to think of it, Hibari-san liked spicy food. Neither Haru nor I disliked it.\
-"Kumoko" was a nickname Haru had arbitrarily given her; her real name was Hibari Kumokumo.\
-　Me (Amami Shigure), Haru (Hyūga Haru), and her together form the Weather Trio – a group name Haru arbitrarily came up with. Opinions on the name are divided, but I'm rather in favour of it.\
+"Kumoko" was a nickname Haru had arbitrarily given her; her real name was Minami Kumori Hibari.\
+　The three of us — me (Amami Shigure), Haru (Hinata Haru), and Hibari — together make the Weather Trio, another name Haru decided on by herself. Opinions on the name are divided, but I'm rather in favour of it.\
 Still, it feels like ages since the three of us drank together. Probably since last New Year's Eve, if anything.\
 Now that Haru, with her organisational skills, has moved to Tokyo, we'll likely have more chances.\
 Three minutes' walk from the station to the shop.\
 　In the semi-private booth we were led to, Haru and Hibari were already seated.\
 They were nibbling on a platter of honeycomb tripe and preserved mustard greens at a round table with a turntable.
 
-"Oi, here comes the sex offender."
+"Ah, here comes the sex offender."
 
 "Hold on a minute."
 
@@ -47,13 +47,13 @@ The long-haired woman sitting with them gave a soft "Fufu".
 
 "But you are living together, aren't you? I heard it from Haru-chan."
 
-The woman giggling softly was the last member of the Weather Trio at the University of Marine Sciences, Minami Kumokumo Hibari-san.\
-　She'd taken a gap year and was older, so they naturally addressed her with '-san', but the depth and length of their relationship was almost identical to Haru's.\
+The woman giggling softly was the last member of the Weather Trio at the University of Marine Sciences, Minami Kumori Hibari-san.\
+　She'd taken a gap year and was older, so we naturally addressed her with '-san', but the depth and length of our relationship was almost identical to Haru's.\
 Black hair, fair skin. She looked pure and fragile, with an air of a young lady who spent her days off enjoying afternoon tea at a three-star hotel or walking her dog (a toy poodle). But inside, she was completely different.
 
 "And she's still a high school girl, too."
 
-"Hey. Ame-chan, here we go."
+"Yay. Ame-chan, nice going."
 
 After downing a visibly strong drink on the rocks, Hibari-san remarked wistfully.
 
@@ -69,8 +69,8 @@ After downing a visibly strong drink on the rocks, Hibari-san remarked wistfully
 
 Without changing her expression, Hibari-san ordered another round.\
 Hibari-san is generally this sort of person.\
-A playgirl, perhaps? Or someone overflowing with affection? Or someone who keeps love, romance, and sex strictly separate?\
-　According to Haru, "The 'kumo' in Kumo-ko doesn't mean 'cloud' in the sky, it means 'spider' as in 'spider woman'."\
+A free spirit, perhaps? Or someone overflowing with affection? Or someone who keeps love, romance, and sex strictly separate?\
+　According to Haru, "the kumo in Kumoko isn't the kumo of clouds in the sky — it's the kumo of a Jorōgumo (spider woman yokai)."\
 She'll date anyone she fancies, male or female, go straight to a hotel, and break up just as quickly, but she's completely unfazed. She likes sex but isn't dependent on romance. That's the vibe.
 
 　Honestly, it's a sensibility I can't quite grasp, but she's interesting to talk to and considerate, and I adore her as a friend.\
@@ -122,7 +122,7 @@ Haru let out a boozy sigh. "Haaah." What an old man.
 
 "Yeah, I know. I'm a woman too."
 
-What the hell just happened?
+What's with this all of a sudden?
 
 "Then break up with her. It's bloody pitiful, isn't it? A schoolgirl. It's like leaving her hanging."
 
@@ -134,9 +134,9 @@ What the hell just happened?
 
 "Nah, I get it."
 
-She hasn't said anything yet.
+I hadn't said anything yet.
 
-"Well, affection comes in all shapes and sizes, doesn't it? Sometimes romantic feelings don't come with sexual desire. And then there are people like that spider girl over there who can be with someone purely for sex, without any romantic feelings."
+"Well, affection comes in all shapes and sizes, doesn't it? Sometimes romantic feelings don't come with sexual desire. And then there are people like Kumoko over there who can be with someone purely for sex, without any romantic feelings."
 
 "Eh? Me? Even if it's just a one-night stand, I'm seriously into it! At least until morning."
 

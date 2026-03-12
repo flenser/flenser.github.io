@@ -21,7 +21,7 @@ Marketing... does that mean they're promoting something?
 
 "Sorry, I'm not really up to speed with the idol scene."
 
-"Hmm, well, basically. There are people who get excited when Yōme and I act affectionate towards each other."
+"Hmm, well, basically. There are people who get excited when Hiname and I act affectionate towards each other."
 
 "Really?"
 

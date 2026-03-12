@@ -21,11 +21,11 @@ Hibari-san said this to me, who had fallen silent, with a matter-of-fact air.
 
 Leaving me behind, the two of them just kept escalating things on their own.
 
-"Actually, you're getting sidetracked. The point is that poor schoolgirl's being kept hanging. I'm saying you should take responsibility for making her fall for you and give her a clear yes or no."
+"Actually, you're getting sidetracked. The point is that poor schoolgirl's being left hanging. I'm saying you should take responsibility for making her fall for you and give her a clear yes or no."
 
-"That's why I'm saying putting it on hold is one answer. Love takes different forms for different people, right? Do you really know what that girl wants, Haru? It's fine to keep her hanging. Getting laid after being kept in suspense for three weeks feels amazing."
+"That's why I'm saying putting it on hold is one answer. Love takes different forms for different people, right? Do you really know what that girl wants, Haru? It's fine to leave her hanging. Getting laid after being kept in suspense for three weeks feels amazing."
 
-"I'm not talking about play, dammit! I'm not saying you should actually get involved with a minor! Keeping someone hanging is about their mental state! It's pitiful to leave them in limbo!"
+"I'm not talking about play, dammit! I'm not saying you should actually get involved with a minor! Leaving someone hanging is about their mental state! It's pitiful to leave them in limbo!"
 
 "Forcing a conclusion is just going to make both of you miserable. If you feel sorry for the schoolgirl being all worked up because she's sleeping with Ame-chan, why not just help her relieve her sexual tension? Give her a little assistance or something."
 
@@ -46,7 +46,7 @@ Just as Haru shouted that, a university-aged chap nervously approached, stammeri
 Haru and Hibari-san bowed together. The waiter, who hadn't done anything wrong, muttered "excuse me" and left the table.\
 With the tension finally easing, Haru let out a long sigh.
 
-"Well, it all comes down to how things go, doesn't it? Whether we make a clean break or just let it slide."
+"Well, it all comes down to how things go, doesn't it? Whether to make a clean break or just let it slide."
 
 "Exactly. That's what I meant."
 
@@ -116,7 +116,7 @@ That's why I recognised it instantly. One of the girls was Ibara-chan.\
 
 "This one's Ibara-chan, who's graduated, and this one's the centre,—"
 
-"Haibara Yōme."
+"Haibara Hiname."
 
 "Oh, you know her?"
 
@@ -127,10 +127,10 @@ I'd seen her before on 'Charles' SNS, so I just blurted it out.
 
 "Well, it was just by chance."
 
-"Well, she is the centre with the most exposure. That's right. Haibara Yōme-chan. The one themed after Cinderella."
+"Well, she is the centre with the most exposure. That's right. Haibara Hiname-chan. The one themed after Cinderella."
 
 All the idols in 'Charles' are themed after Charles Perrault's fairy tales.\
-Cinderella's Haibara Yōme is a classic idol with short black hair.\
+Cinderella's Haibara Hiname is a classic idol with short black hair.\
 Though, in the illustration, her hair was longer. Her facial features looked the same, though.
 
 "Well, the photo I saw had short hair—"
@@ -151,9 +151,9 @@ Hugging from the front, exchanging meaningful glances, and even kissing cheeks.
 
 Considering that, not a single illustration of Ibara alone appeared.
 
-"Ah, sorry about that. The people I follow are basically all ship-推し (shipping-focused) fans."
+"Ah, sorry about that. The people I follow are basically all shippers (shipping-focused) fans."
 
-"Ship-推し?"
+"Shippers?"
 
 "Yeah. For 'Charles', the most popular pairing is still Himeiba."
 

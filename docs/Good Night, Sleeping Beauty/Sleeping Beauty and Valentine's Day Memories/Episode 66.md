@@ -138,4 +138,4 @@ In that instant, I wanted to praise myself for not gasping, "Eh?"
 
 "Eh? Ah. Amami-san?"
 
-Because standing there was none other than the leader of the currently popular idol group, 'Charles', Haibara Yōme.
+Because standing there was none other than the leader of the currently popular idol group, 'Charles', Haibara Hiname.

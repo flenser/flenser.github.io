@@ -28,8 +28,8 @@ When Ibara returned a moment later, her eyes were shining brightly.
 
 Hmm.\
 If asked whether this was a date or not, it definitely wasn't.\
-This was a lie to get Yōme-chan to meet Ibara.\
-I know it's not the most honourable way. But after hearing Yōme-chan's story...
+This was a lie to get Hiname-chan to meet Ibara.\
+I know it's not the most honourable way. But after hearing Hiname-chan's story...
 
 "A d-date... maybe?"
 
@@ -139,7 +139,7 @@ What exactly am I going to be made to do? Scary.
 
 "...So. What was it you wanted to talk about directly that was worth going to such lengths?"
 
-Ibara glared at Yōme-chan as if challenging her.\
+Ibara glared at Hiname-chan as if challenging her.\
 　Hime-chan, on the other hand, took a deep breath before returning Ibara's gaze.
 
 "Motomura-san and the president are planning auditions for new members of 'Charles'."

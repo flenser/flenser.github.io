@@ -5,16 +5,16 @@ nav_order: 3
 ---
 Part Two: Epilogue
 
-Some time later, it was announced that Haibara Yōme would be appointed as the ambassador for 'Cendrillon'.\
+Some time later, it was announced that Haibara Hiname would be appointed as the ambassador for 'Cendrillon'.\
 At the same time, a television commercial began airing.\
-Though it's a term not often heard these days, for Yōme-chan personally, this apparently marked her so-called terrestrial television debut.
+Though it's a term not often heard these days, for Hiname-chan personally, this apparently marked her so-called terrestrial television debut.
 
 ── Even dry, ash-covered hair transforms into Cinderella's beautiful locks with a single drop of magic.
 
-　The familiar narration flowed in Yōme-chan's voice.\
+　The familiar narration flowed in Hiname-chan's voice.\
 In the final two seconds of the fifteen-second spot, the words 'Limited Edition Collaboration Bottle Now On Sale!' appeared alongside the bottle in question on screen.\
 So I've made my terrestrial broadcast debut too... or so I'd like to think.\
-The Yōme-chan on screen was filled with such captivating confidence, breathtakingly beautiful.
+The Hiname-chan on screen was filled with such captivating confidence, breathtakingly beautiful.
 
 "Right then, shall we be off?"
 
@@ -223,18 +223,18 @@ She whirred around.
 
 Ibara stood up, leaving no room for argument.
 
-"Yōme."
+"Hiname."
 
-Yōme-chan removed her mask and stepped forward.
+Hiname-chan removed her mask and stepped forward.
 
 "Ibara, listen—"
 
 "Well done on the live. It was brilliant."
 
-The light from the display reflected in Yōme-chan's eyes.\
+The light from the display reflected in Hiname-chan's eyes.\
 Which of them had sniffed quietly?
 
-"So now you understand, don't you? That Haibara Yōme is the best centre."
+"So now you understand, don't you? That Haibara Hiname is the best centre."
 
 Ibara continued in an unnaturally gentle voice.
 

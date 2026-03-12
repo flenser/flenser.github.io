@@ -9,7 +9,7 @@ Princess Ibara and the Holy Night. Part 3
 
 "...Ah, yes..."
 
-Shibuya-san said this while squeezing my hand and reading the text on the tube.\
+Shigure-san said this while squeezing my hand and reading the text on the tube.\
 That's right. I chose it because I thought it smelled nice, but honestly, that's the last thing on my mind right now.
 
 "Since we're here, I'll give you a massage. Apparently, gently rubbing the sides of your nails stimulates the parasympathetic nervous system and helps you relax."
@@ -126,7 +126,7 @@ As if concerned for my inadequacy, Shigure-san spoke gently.
 
 Nod, nod.\
 As I nodded with my face buried, Shigure-san's voice said, "I see. That's good."\
-How long had I been like that?\
+I wonder how long I stayed like that.\
 　After the surge of emotion melted away softly, I finally lifted my face.\
 Since it was such a lovely present, I wanted to try it on now.\
 I unfolded the hanten in my arms and slipped my hands into the large sleeves.

@@ -5,20 +5,20 @@ nav_order: 3
 ---
 Episode Forty-Six
 
-"What sort of girl is Haibara Yōme?"
+"What sort of girl is Haibara Hiname?"
 
 That night.\
 Having emerged from the bath, I asked Ibara, who was already fully prepared for bed.
 
-"Yōme?"
+"Hiname?"
 
 "Yes. What sort of girl did she seem to you?"
 
-"Hmm. As I've said before, she's the ambitious, stoic type. I think 'Cinderella' is a motif that suits Yōme perfectly."
+"Hmm. As I've said before, she's the ambitious, stoic type. I think 'Cinderella' is a motif that suits Hiname perfectly."
 
 "What does that mean? That she gets bullied by her stepmother or something?"
 
-No, no, Yōme laughed.
+No, no, Hiname laughed.
 
 "Just a normal dual-income household. She's a neat freak who loves cleaning, mentally tough and resilient in adversity, gets on well with her siblings but is the youngest... Personally, though, the biggest thing is probably that thing."
 

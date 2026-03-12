@@ -7,18 +7,18 @@ Episode Forty-Five
 
 Right then.\
 Having declared it to Momono-chan, I simply must throw myself into this with even greater determination than usual.\
-So, first things first: gathering information on Haibara Yōme.\
+So, first things first: gathering information on Haibara Hiname.\
 The manufacturer has sent over desired imagery and reference materials, but that alone won't suffice.\
 In projects like this, it's all too easy for the creators to be seen as amateurs.\
 In that sense, having the hardcore Momono-chan handle the design might actually have been a perfectly viable option.\
 　Well, though an excess of love isn't exactly ideal either.\
-Fortunately, gathering information on Haibara Yōme proved straightforward.\
+Fortunately, gathering information on Haibara Hiname proved straightforward.\
 Or rather, there was scarcely any need to gather it at all.
 
 "For starters, here's the DVD of her solo concert & talk show, the merchandise catalogue, the full list of live costumes, and photos of all past official goods and collaboration items! If any merchandise catches your eye, just say the word! I'll fetch it immediately!"
 
 Couldn't have asked for more.\
-　Thanks to Momono-chan's devotion (proselytising?), I became increasingly knowledgeable about Haibara Yōme.\
+　Thanks to Momono-chan's devotion (proselytising?), I became increasingly knowledgeable about Haibara Hiname.\
 She's seventeen, the same age as Ibara. Birthday: 10th October. Blood type: A... That sort of profile is fine.\
 My overall impression was that she's an idol who embodies what an idol should be.\
 A pure, delicate appearance and approachability. Yet she can hold her own in talk segments, and her stage performances are razor-sharp.\
@@ -142,7 +142,7 @@ What do I want with Ibara?
 
 As expected, both initial rough sketches I submitted were sent back for revisions.\
 They were just rough ideas, not even proper rough sketches, so no fees applied yet. Honestly, it felt like, "Yeah, right."\
-Maybe I should just stick in a photo of Haibara Yōme? No good.\
+Maybe I should just stick in a photo of Haibara Hiname? No good.\
 As I was scratching my head over what to do, Shindo-san called out, "Excuse me?"
 
 "What is it?"
@@ -155,7 +155,7 @@ He lowered his voice as he continued.
 
 "The other party... surely not?"
 
-"Yes, from 'Charles' manager. Apparently, Haibara Yōme wants to meet the designer for this project."
+"Yes, from 'Charles' manager. Apparently, Haibara Hiname wants to meet the designer for this project."
 
 Shindo-san looked at me, as if gauging my reaction.
 
