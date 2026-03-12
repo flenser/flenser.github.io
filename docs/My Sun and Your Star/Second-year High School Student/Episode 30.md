@@ -1,9 +1,9 @@
 ---
 parent: "Second-year High School Student"
-title: "Episode 30: Bonus Practice"
+title: "Episode 30: Bonus - Practice"
 nav_order: 30
 ---
-Episode 30: Bonus Practice
+Episode 30: Bonus - Practice
 
 Ever since Mai mentioned the kiss mark, I'd spent the entire day thinking about kiss marks.\
 I felt sickened by my own thoughts, wondering if this was just a phase where I fancied doing things like that.
