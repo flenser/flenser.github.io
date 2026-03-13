@@ -7,13 +7,13 @@ Episode Twenty-One
 
 "Ame"
 
-"...H-Hare..."
+"...H-Haru..."
 
 Our eyes met, and we murmured each other's names.\
-Hinata Hare.\
+Hinata Haru.\
 We were classmates in the oil painting course at the same seaside art university, friends.\
 I hadn't seen her for a while. My heart swelled with nostalgia. To bump into an old friend in a place like this.\
-Did she feel the same? Hare came rushing towards me.\
+Did she feel the same? Haru came rushing towards me.\
 　This might even lead to a hug. I stood up, taking a step forward to avoid spilling my mug.\
 Haru's hand reached out.\
 Towards my collar.\
@@ -94,7 +94,7 @@ Haru peered at my face, going, "Hmm?"
 
 "Come on, come on, just tell me honestly. We're the Weather Trio from the Oil Painting Course at the Art University, aren't we?"
 
-The Weather Trio was the name for the three of us: me, Haru, and another girl we hung out with a lot, Minami Kumogoromo.\
+The Weather Trio was the name for the three of us: me, Haru, and another girl we hung out with a lot, Minami Kumoko.\
 It was none other than Haru who came up with the name. She was also the one who gave me my nickname, Ame.\
 I think it's rather good taste. It hasn't really gained much approval, though.
 

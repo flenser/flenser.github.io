@@ -210,7 +210,7 @@ She curled her five fingers, striking a pose like a threatening feline.
 Haru tilted her glass, her reply half-hearted.\
 Matching her gesture, I took a sip of my drink. The cassis orange was sweet and delicious.
 
-"What would you do? If someone confessed to you?"
+"What would you do? If she confessed to you?"
 
 "I told you, it won't happen."
 
@@ -240,10 +240,10 @@ It just feels... dishonest, somehow.
 
 Haru dipped Shintama's roast beef in rock salt and stuffed it into her mouth with a satisfying munch.
 
-"You were like this back in Yomimi too, weren't you?"
+"You were like this back then with Yomina too, weren't you?"
 
 A sharp, grating sound rang out.\
-　Startled by the familiar name, my fork had clattered against the cutlery.
+　Startled by the familiar name, my fork had clattered against the plate.
 
 "...That was... because that girl was utterly incapable of looking after herself. I couldn't stand by and watch."
 

@@ -70,7 +70,7 @@ Probably, she has her own world inside her, and very few people can enter it.\
 　Why do I know that?\
 It's obvious.\
 Because she's like me.\
-That's why I felt something different from the affection and comfort I felt towards Shigure-san, or the respect and friendship I felt towards Hina. It was more like empathy or solidarity.\
+That's why I felt something different from the affection and comfort I felt towards Shigure-san, or the respect and friendship I felt towards Hiname. It was more like empathy or solidarity.\
 So.\
 We probably won't become best friends, but we might make decent friends.
 

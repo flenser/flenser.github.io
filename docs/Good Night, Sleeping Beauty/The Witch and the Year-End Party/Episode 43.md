@@ -33,12 +33,12 @@ Marketing... does that mean they're promoting something?
 
 "Huh."
 
-"Probably my interactions with Hime were the most popular, but then there was Hitomi and Shiro-chan's Purple Team too."
+"Probably my interactions with Hime were the most popular, but then there was Toko and Shiro-chan's Purple Team too."
 
-Akai Hitomi-san was the Little Red Riding Hood-themed idol, and Aoba Jōna-san was the Bluebeard-themed one, right?\
+Akai Toko-san was the Little Red Riding Hood-themed idol, and Aoba Shirona-san was the Bluebeard-themed one, right?\
 They were a red and blue pair, hence the Purple Team, apparently. I see.
 
-"Himeiba, well, Hime was really enthusiastic about it. She'd plan videos for us to film together, write scripts for our talks..."
+"Himeiba, well, Hiname was really enthusiastic about it. She'd plan videos for us to film together, write scripts for our talks..."
 
 "Is that so?"
 
@@ -46,7 +46,7 @@ They were a red and blue pair, hence the Purple Team, apparently. I see.
 
 "Hmm... Focused?"
 
-"Yes, exactly. Hina was focused. She was dead serious about being an idol."
+"Yes, exactly. Hiname was focused. She was dead serious about being an idol."
 
 　Ibara cut herself off there and took a step closer to me.
 
@@ -70,7 +70,7 @@ My ears were burning. I hoped she hadn't noticed.
 
 Soaking in the hot bath, I replayed our earlier exchange in my mind.
 
-──It's yuri sales. Part of the job.\
+──It's yuri marketing. Part of the job.\
 ──I'm devoted to you, Shigure-san.
 
 "...Ugh..."

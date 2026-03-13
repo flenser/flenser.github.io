@@ -18,7 +18,7 @@ Having emerged from the bath, I asked Ibara, who was already fully prepared for 
 
 "What does that mean? That she gets bullied by her stepmother or something?"
 
-No, no, Hiname laughed.
+No, no, Ibara laughed.
 
 "Just a normal dual-income household. She's a neat freak who loves cleaning, mentally tough and resilient in adversity, gets on well with her siblings but is the youngest... Personally, though, the biggest thing is probably that thing."
 
@@ -34,9 +34,9 @@ No, no, Hiname laughed.
 
 Um, umm. How should I answer that?\
 Well, I do have confidentiality obligations.\
-I can't tell her that Hime became the official ambassador for 'Cinderella', or that I'm working on the collaboration products.
+I can't tell her that Hiname became the official ambassador for 'Cendrillon', or that I'm working on the collaboration products.
 
-"...Well, actually. I've been a bit curious about it lately. Seems Hime and Ibara were quite close, after all."
+"...Well, actually. I've been a bit curious about it lately. Seems Hiname and Ibara were quite close, after all."
 
 I blurted out that flimsy excuse, and Ibara's mouth twisted into an unusually pleased smile. What's with that face?
 
@@ -44,11 +44,11 @@ I blurted out that flimsy excuse, and Ibara's mouth twisted into an unusually pl
 
 Ah, bad feeling.
 
-"Hey, hey, hey, Shigure-san. Could it be... jealousy? Did you get jealous of Himeiba after finding out about 'Himeiba'?"
+"Hey, hey, hey, Shigure-san. Could it be... jealousy? Did you get jealous of Hiname after finding out about 'Himeiba'?"
 
 "No. It's not that."
 
-"Oh, come on. I told you it wasn't like that with Himeiba. Shigure-san, you're surprisingly possessive, aren't you?"
+"Oh, come on. I told you it wasn't like that with Hiname. Shigure-san, you're surprisingly possessive, aren't you?"
 
 Ibara chuckled softly.\
 　This is bad. Ibara's little devil side is showing.\
@@ -86,7 +86,7 @@ Feeling her breath catch, I said.
 
 　At my feeble resistance, Ibara's ears flushed crimson.
 
-"...Knyuuuuu..."
+"...Kyuuuuu..."
 
 What was that sound? Where did that come from?
 
@@ -120,7 +120,7 @@ Suddenly, Haru's words flashed through my mind.
 
 　──That schoolgirl, Ame, is looking at you with lust in her eyes.
 
-Could this be what he meant?\
+Could this be what she meant?\
 Does Ibara now want to touch me more deeply?\
 Is that why she presses her body against mine like this, clinging?\
 The moment that thought occurred to me, a strong desire stirred in the back of my neck.\
