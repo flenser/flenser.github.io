@@ -8,7 +8,7 @@ Episode Forty-Five
 Right then.\
 Having declared it to Momono-chan, I simply must throw myself into this with even greater determination than usual.\
 So, first things first: gathering information on Haibara Hiname.\
-The manufacturer has sent over desired imagery and reference materials, but that alone won't suffice.\
+The manufacturer has sent over desired image references and materials, but that alone won't suffice.\
 In projects like this, it's all too easy for the creators to be seen as amateurs.\
 In that sense, having the hardcore Momono-chan handle the design might actually have been a perfectly viable option.\
 　Well, though an excess of love isn't exactly ideal either.\
@@ -21,7 +21,7 @@ Couldn't have asked for more.\
 　Thanks to Momono-chan's devotion (proselytising?), I became increasingly knowledgeable about Haibara Hiname.\
 She's seventeen, the same age as Ibara. Birthday: 10th October. Blood type: A... That sort of profile is fine.\
 My overall impression was that she's an idol who embodies what an idol should be.\
-A pure, delicate appearance and approachability. Yet she can hold her own in talk segments, and her stage performances are razor-sharp.\
+A pure, delicate appearance and an approachable personality. Yet she can hold her own in talk segments, and her stage performances are razor-sharp.\
 　The ideal idol.\
 The idol among idols.\
 The keyword, naturally, would be "Cinderella".\
@@ -33,7 +33,7 @@ This, however, is proving rather troublesome.\
 The glass slipper, the pumpkin coach, the sky-blue gown.\
 Cinderella is such a major motif that there are countless angles to approach it from.\
 Consequently, while there's no shortage of ideas, there's also a risk it could simply become a generic 'Cinderella collaboration'.\
-　This time, it must be a "Hime Haibara Collaboration". That distinction mustn't be lost.\
+　This time, it must be a "Haibara Hiname Collaboration". That distinction mustn't be lost.\
 But if I'm not careful, the design will immediately be pulled towards "Cinderella".
 
 For that reason, I was struggling quite a bit.
@@ -55,7 +55,7 @@ The base was peperoncino, but the pasta was generously coated with fine green se
 
 "It has a lovely seaweed aroma and tastes really good. The firefly squid has a nice crunch to it too. It really makes you feel like you're eating seafood."
 
-"I see. So, was that sigh about work? Or something personal?"
+"Thank you. So, was that sigh about work? Or something personal?"
 
 "That was about work."
 
@@ -89,12 +89,12 @@ Aki-san nodded silently, encouraging me to continue.
 
 "...Hmm."
 
-Aki crossed her arms.\
+Aki-san crossed her arms.\
 Her ample bosom was emphasised, and I found myself following it with my eyes. No, wait.
 
 "Hmm, well..."
 
-After a moment, Aki spoke.
+After a moment, Aki-san spoke.
 
 "Well, to give you my conclusion, 'It's fine, isn't it?'"
 

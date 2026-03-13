@@ -91,13 +91,13 @@ Rubbing her nose against my chest, Ibara continued.
 
 "Next to me?"
 
-"Sorry, I can't do this. Absolutely impossible. I'd rather die."\
+"Sorry, I can't say it. Absolutely impossible. I'd rather die."\
 　What was that? Did she wet the bed or something? Probably not.\
 Still clutching my loungewear tightly, Ibara shuddered slightly.
 
 "Listen. I'm... much less able to hold back than I thought I was... Half... no, about eighty percent of it is your fault... I tend to go a bit overboard, you know? That sort of thing. Are you really sure you're okay with this?"
 
-Blimey, you're really laying down the ground rules.\
+She's really laying down a lot of defensive disclaimers.\
 And what's this about it being eighty per cent my fault?\
 I must say, that's rather hurtful.
 
@@ -126,7 +126,7 @@ Ibara shifted away from my chest and lifted her face.
 
 Right. Saying it like this, well, at worst, it'll just be a bit of touching on my chest or legs.\
 That much, with Ibara, I don't mind at all.\
-I took Ibara's hand and peered into their wide, dazed eyes.
+I took Ibara's hand and peered into her wide, dazed eyes.
 
 "What do you think? Would that ease the naughty feelings inside you a little...?"
 
@@ -154,22 +154,26 @@ And then, just when I thought she was about to say something—
 
 "Why???"
 
-Ibara gritted her teeth with a sharp, grinding sound.\
-Blimey. That's what teeth grinding sounds like.
+Ibara ground her teeth with a sharp grrr.\
+Incredible. So that's the kind of sound teeth-grinding makes.
 
-"Uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+"Uuuuugh aaaaaah geez, it's because Shigure-san is always like this that I always always always always……!!"
 
-"S-sorry. Um, that suggestion earlier wasn't great, was it? So, let's just forget about it... Instead, instead... Hmm, right. Want to touch my boobs? Just kidding!"
+"Huh?!"
 
-Ibara's movements stopped dead.
+Did I say something wrong?!
 
-"...J-just kidding..."
+"S-sorry. Um, my suggestion just now wasn't great, was it. In that case, never mind after all…… instead, instead…… hmm, oh! Want to touch my boobs? Just kidding."
 
-"Touch them."
+Ibara froze completely still.
 
-She sat down with a thud.
+"……j-just kidding……"
 
-"If you let me touch them, I'll forgive you for that succubus comment you made earlier."
+"I'll touch them."
+
+She drops down to sit with a soft thud.
+
+"If you let me touch them, I'll forgive you for the succubus comment from earlier."
 
 "What succubus comment?"
 
@@ -199,7 +203,7 @@ Quick response.
 
 "Are you inviting me?"
 
-"No."
+"Not exactly."
 
 She sat with her back against the bed.\
 Facing me, Ibara knelt on the floor in seiza.
@@ -214,9 +218,9 @@ Facing me, Ibara knelt on the floor in seiza.
 
 "…………Yes. Then, go ahead."
 
-Feeling it, I thrust my chest forward.\
+Somewhat boldly, I thrust my chest forward.\
 Ibara's throat moved up and down.\
-Fingers like whitebait stretched towards my chest.
+Her fingers — like small white fish — reached towards my chest.
 
 "…………Mm…"
 
@@ -228,7 +232,7 @@ On top of that, she kept a completely straight face the whole time she touched m
 
 "Because you're touching me with such a serious face, Ibara. And it tickles."
 
-"...You idiot, Shigure."
+"...You idiot, Shigure-san."
 
 "Ah!"
 

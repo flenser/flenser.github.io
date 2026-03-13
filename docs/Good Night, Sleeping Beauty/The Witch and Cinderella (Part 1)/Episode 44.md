@@ -34,7 +34,7 @@ It used to be standard practice for celebrities or models to take on such roles,
 "Exactly."
 
 The slide changed, displaying the product overview.\
-It was a shampoo increasingly spotted in drugstores lately.\
+It was a shampoo increasingly spotted in drug stores lately.\
 The design was simple, predominantly white, with a rectangular bottle shape. The product name was printed in modest-sized alphabet letters.\
 ──Cendrillon. Cinderella.
 
@@ -75,7 +75,7 @@ Shindo-san continued.
 "...Ah, yes. I know her."
 
 Of course I knew her.\
-Hime Haibara.\
+Haibara Hiname.\
 On the monitor, the left side of "Himeiba" flashed a perfect smile at me.
 
 　†
@@ -154,9 +154,9 @@ Oh no, here we go again.
 "The truth."
 
 Her eyes were fixed.\
-I think Momono-chan should broaden her worldview a bit.
+I think Momono-chan should broaden her world view a bit.
 
-"Ibara-chan may be gone, but Hime-sama still stands on stage. Perorist Momono Momoko isn't dead yet. I can still support her. Support your favourite while you can."
+"Ibara-chan may be gone, but Hiname-sama still stands on stage. Perorist Momono Momoko isn't dead yet. I can still support her. Support your favourite while you can."
 
 "Sorry, wait. Can I just ask one thing?"
 
@@ -168,9 +168,9 @@ I think Momono-chan should broaden her worldview a bit.
 
 There must have been a better name.
 
-"So, that's why I'm currently a Perorist, a remnant of the Himeiba faction, and Momoko Momono, who only supports Hime-sama."
+"So, that's why I'm currently a Perorist, a remnant of the Himeiba faction, and Momoko Momono, who only supports Hiname-sama."
 
-"Ah, right. (I don't really get it, but) I understand Momono-chan is a fan of Himehara Hime."
+"Ah, right. (I don't really get it, but) I understand Momono-chan is a fan of Haibara Hiname."
 
 "Yes. Thank you for listening to me this far..."
 

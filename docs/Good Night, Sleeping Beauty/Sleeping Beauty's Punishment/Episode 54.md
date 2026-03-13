@@ -105,7 +105,7 @@ Ibara blinked repeatedly.\
 Saying that, I stood up.\
 When Hime-chan sat down in the empty seat, Ibara's eyes widened.
 
-"Hina?"
+"Hiname?"
 
 "It's been a while, Ibara."
 
@@ -115,7 +115,7 @@ Her double-lidded eyes narrowed behind her glasses.
 
 Ibara's expression grew increasingly grim before my eyes.
 
-"What do you mean? Hina, you understand your position, don't you? When did you meet Shigure-san? I shouldn't have shared any personal information..."
+"What do you mean? Hiname, you understand your position, don't you? When did you meet Shigure-san? I shouldn't have shared any personal information..."
 
 "I think I understand my position. This place is safe, so don't worry. Besides, meeting Amami-san was just pure coincidence."
 
@@ -161,8 +161,8 @@ Without changing her expression, Ibara urged her on.
 
 "That's obvious, isn't it?! Once the new member auditions start, Ibara won't be able to come back!"
 
-　Hina raised her voice.\
-Yes. This was the "matter concerning Ibara's future" Hina had told me about.\
+　Hiname raised her voice.\
+Yes. This was the "matter concerning Ibara's future" Hiname had told me about.\
 The idol group Ibara belonged to, 'Charles', debuted as a quintet.\
 Therefore, both the vocal parts and the dance choreography were structured with five members in mind.\
 Recruiting a new member to fill the gap left by Ibara's departure was surely only natural.\
