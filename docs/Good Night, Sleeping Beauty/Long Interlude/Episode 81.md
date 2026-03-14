@@ -169,6 +169,6 @@ Seeing me so utterly spent, Shigure-san smiled.
 
 Absolutely.\
 Today, I'll stick close to her as much as possible.\
-Shigure-san is Shizuku's big sister, Yomina-san's friend, and Hime's benefactor.\
+Shigure-san is Shizuku's big sister, Yomina-san's friend, and Hiname's benefactor.\
 Even if she's just kind to everyone.\
 Even so, right now, she's my Shigure-san alone.

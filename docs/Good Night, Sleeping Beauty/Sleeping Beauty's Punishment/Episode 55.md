@@ -7,7 +7,7 @@ Episode Fifty-Five
 
 On the way home, Ibara murmured quietly on the train.
 
-"Hime is an incredible idol. She's adorable, a brilliant actress, and so dedicated that her singing and dancing are flawless."
+"Hiname is an incredible idol. She's adorable, a brilliant actress, and so dedicated that her singing and dancing are flawless."
 
 "...Yeah."
 
@@ -16,13 +16,13 @@ On the way home, Ibara murmured quietly on the train.
 I'd sensed that vaguely.\
 Her fervour for Himeiba back then, and her reaching out to me this time – it all boils down to that, doesn't it?\
 She was seeking a support because standing alone made her uneasy.\
-For Hime-chan, I was that kind of presence.
+For Hiname-chan, I was that kind of presence.
 
 "She's far more suited to being an idol than someone like me who dropped out. That's why she's the centre, isn't she? She should just carry herself with confidence."
 
 "...Then why didn't you just tell her that honestly?"
 
-"I've said it many times. But I'm Hime's friend. Things like this... when a friend says them, they don't really land. It just comes across as mere consolation..."
+"I've said it many times. But I'm Hiname's friend. Things like this... when a friend says them, they don't really land. It just comes across as mere consolation..."
 
 "Ah..."
 
@@ -39,7 +39,7 @@ I lowered my voice.
 
 "...So, about coming back."
 
-"It's fine. Just like I told Hime. I'm not thinking about that sort of thing right now."
+"It's fine. Just like I told Hiname. I'm not thinking about that sort of thing right now."
 
 "...I see."
 

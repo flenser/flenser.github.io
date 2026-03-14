@@ -8,9 +8,9 @@ Sleeping Beauty and the Drunkard. Part One
 Midnight, 11 PM.\
 I was lounging around in Shigure-san's room, watching videos.
 
-"Even if the magic wore off at midnight, the glass slipper is yours." This is Hime Haibara, the white-themed member of Charles. Right then, I'm absolutely starving right now. My manager told me there's a pumpkin dish specialist restaurant in Tokyo, so I thought I'd go try it. I do like pumpkin, you see. Simmered dishes and such. Cinderella and all that. That sort of thing, I suppose."
+"Even if the magic wore off at midnight, the glass slipper is yours." This is Hiname Haibara, the white-themed member of Charles. Right then, I'm absolutely starving right now. My manager told me there's a pumpkin dish specialist restaurant in Tokyo, so I thought I'd go try it. I do like pumpkin, you see. Simmered dishes and such. Cinderella and all that. That sort of thing, I suppose."
 
-"Hime, you're really putting in the effort..."
+"Hiname, you're really putting in the effort..."
 
 Watching the video filmed with a selfie camera, I lay sprawled on Shigure-san's bed.\
 Normally, I try not to look at my phone after ten o'clock, but days when there's a new notification on the "Charles" channel are special.\

@@ -11,7 +11,7 @@ Episode Fifty-Three
 
 "Well, I don't quite understand. But if that's the case, couldn't you just contact Ibara directly...?"
 
-When I said that, a dark shadow fell over Hime-chan's face.
+When I said that, a dark shadow fell over Hiname-chan's face.
 
 "The thing is, she won't meet me."
 
@@ -23,13 +23,13 @@ When I said that, a dark shadow fell over Hime-chan's face.
 
 "No!"
 
-Hime-chan raised her voice sharply.
+Hiname-chan raised her voice sharply.
 
 "S-sorry. But it's not that... it's for my sake, you see."
 
 "Yours?"
 
-"Hime-chan?"
+"Hiname-chan?"
 
 "Ah, sorry."
 
@@ -63,7 +63,7 @@ It clicked.
 
 "It was Ibara who suggested keeping the real reason for her retirement under wraps, wasn't it?"
 
-Hime-chan snapped her head up.
+Hiname-chan snapped her head up.
 
 "You knew?"
 
@@ -74,21 +74,21 @@ I was sure she'd bring it up herself.
 
 "...You're right, Amami-san. Ibara's reason for retiring hasn't been made public. Right up until the end, Ibara performed flawlessly at every live show and recording. So I doubt any fans have guessed. But that's precisely why..."
 
-"That..." Hime-chan faltered.\
+"That..." Hiname-chan faltered.\
 She lowered her eyes, her cheeks faintly tinged with a cherry blossom pink.
 
 "...Well... a strange rumour started circulating..."
 
 "A strange rumour?"
 
-Hime-chan cleared her throat with a soft cough.
+Hiname-chan cleared her throat with a soft cough.
 
 "...That the reason Ibara quit was because of a romantic entanglement with me..."
 
 "Huh?"
 
 A rather dumbstruck sound escaped me.\
-Hime-chan denied it, her face flushing bright red as if flustered.
+Hiname-chan denied it, her face flushing bright red as if flustered.
 
 "Of course it's a misunderstanding! Ibara and I are friends, and I respected her as a colleague! It's nothing like that at all! It was purely the agency's policy, or something like that—"
 
@@ -100,13 +100,13 @@ Hime-chan denied it, her face flushing bright red as if flustered.
 
 I see.\
 I'm starting to get it.\
-Hime let out a heavy sigh.
+Hiname let out a heavy sigh.
 
 "...Right after Ibara graduated, articles full of speculation popped up online. They wrote about that sort of thing in a sensational way. It spread, and then analysis videos and fan art started going viral one after another..."
 
 "Ah..."
 
-Isn't that half the fault of people like Hibari-san and Momono-chan (the extreme Ibara faction)?
+Isn't that half the fault of people like Hibari-san and Momono-chan (the extreme Himeiba faction)?
 
 "But you shouldn't go too far with that sort of thing. Making fun of it in a weird way or pretending about your own sexuality isn't good. That's how things end up backfiring."
 
@@ -120,18 +120,18 @@ How to put it.\
 It's not really a question of who's at fault.\
 If pressed, the reporter who wrote that shoddy article is to blame, but there's no point saying that now.
 
-"...I suppose, if possible, it might be better not to meet either. Couldn't that important matter be dealt with over the phone or by email?"
+"...I also think, if possible, it might be better not to meet Ibara. Couldn't this important matter be dealt with over the phone or by email?"
 
 "...If possible, I'd like to convey this one thing in person."
 
 "Hmm..."
 
 I'm torn.\
-I can already guess the nature of Hime-chan's "request". I could probably grant it.\
+I can already guess the nature of Hiname-chan's "request". I could probably grant it.\
 　But I don't know if it's the right thing to do.\
 Depending on the situation, it could end up deceiving Ibara.
 
-"──This place can be booked for private hire, you know."
+"──This place, you see, takes exclusive booking reservations."
 
 "Oh, really?"
 
@@ -143,7 +143,7 @@ No wonder I thought no customers were coming.
 
 "It's safe here. The manager knew me before I debuted and is someone I trust. I promise."
 
-Hime-chan reached out and stroked the head of the white cat that had come over to her.\
+Hiname-chan reached out and stroked the head of the white cat that had come over to her.\
 Unlike with me, the cat seemed to be actively seeking her out, rubbing its head against her palm.
 
 "Please. Could you bring Ibara here? If you invited her, I'm sure she'd come."
@@ -162,7 +162,7 @@ I see.\
 Indeed, this concerns Ibara's future.\
 I understand why she wants to speak directly. I get it now.\
 It's better this way.\
-Not just for Hime-chan, but probably for Ibara too.
+Not just for Hiname-chan, but probably for Ibara too.
 
 I agonised over it until my café latte grew completely cold, then said.
 

@@ -19,7 +19,7 @@ Switching screens, the left side illustration zoomed in.
 
 "The left side shows 'Haibara-san feeling down'. Her hair is tousled, her expression sombre. She's feeling low."
 
-Hime-chan, drawn in blue pen on white paper, had her eyes downcast and a gloomy expression.
+Hiname-chan, drawn in blue pen on white paper, had her eyes downcast and a gloomy expression.
 
 "Next, the front. This remains as previously shown."
 
@@ -57,7 +57,7 @@ I gave a slight bow and continued.
 ‘Confidence…’
 
 The microphone picked up the sound.\
-　It was Hime's voice.\
+　It was Hiname's voice.\
 She was participating in sporty attire, perhaps between lessons.
 
 'Ah, sorry. My mic was on.'
@@ -69,7 +69,7 @@ She was participating in sporty attire, perhaps between lessons.
 "...I see. Well then, I'll continue."
 
 The screen returned to the first slide.\
-It showed an illustration of Hime-chan looking utterly crushed, with a comically tearful expression.
+It showed an illustration of Hiname-chan looking utterly crushed, with a comically tearful expression.
 
 "Magic, I thought, would be the key word. 'Cendrillon' is a magical shampoo. Cinderella transforms from a cinder girl into a princess through magic."
 
@@ -102,7 +102,7 @@ Switching between screens, I continued.
 
 　Ultimately, that should be the most important factor.\
 After all, this is a collaboration product with an idol.\
-On the screen, Hime-chan gave a raised-hand reaction.
+On the screen, Hiname-chan gave a raised-hand reaction.
 
 "Haibara-san, please."
 
@@ -115,7 +115,7 @@ On the screen, Hime-chan gave a raised-hand reaction.
 Silence.\
 Even for a web conference, it was a probing question.\
 　I could have given a vague answer and deflected it. I've been through enough of these situations.\
-But the way Hime-chan was looking at me through the screen, her eyes were terribly earnest.\
+But the way Hiname-chan was looking at me through the screen, her eyes were terribly earnest.\
 So I ended up letting it slip.
 
 "...Actually, I'm not someone who has a lot of confidence in myself either."
@@ -142,7 +142,7 @@ Both her lack of confidence and the strength she shows in hiding it to stand on 
 
 'I think it's fine.'
 
-Beyond the screen, Hime-chan spoke up.
+Beyond the screen, Hiname-chan spoke up.
 
 'Right, Motomura-san?'
 
@@ -152,12 +152,12 @@ A series of 'thumbs up' hand signs appeared on the screen.\
 The manufacturer's representative declared firmly, "We'll take this proposal to the higher-ups."\
 The presentation concluded, and discussions moved on to the next steps.\
 After a short while, the meeting ended right on schedule.\
-Participants filed out one by one, until only me and Hime-chan remained.\
+Participants filed out one by one, until only me and Hiname-chan remained.\
 Just as I was about to leave—
 
 'Amami-san'
 
-Hime-chan called out to me.
+Hiname-chan called out to me.
 
 'Thank you so much today. I think it's a truly wonderful design.'
 
@@ -181,7 +181,7 @@ Through the screen, Hiname-chan smiled beautifully.
 
 “Yeah. It’ll be alright, I’m sure.”
 
-Hime-chan giggled, ticklishly.
+Hiname-chan giggled, ticklishly.
 
 ‘If you don’t mind, please tell Ibara. That I won’t say things like “Come back to Charles” anymore.’
 
@@ -193,7 +193,7 @@ Hime-chan giggled, ticklishly.
 
 ‘…I’ll do my best here. Please tell her to watch over me.’
 
-Hime-chan gave me a small wave as I nodded.\
+Hiname-chan gave me a small wave as I nodded.\
 With that smile, the very essence of an idol, the kind that captivates everyone.\
 The call ended.\
 Next time, I’ll ask Momono-chan how to buy concert tickets. Good seats, if possible.\

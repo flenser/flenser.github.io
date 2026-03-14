@@ -87,7 +87,7 @@ Ah, well, never mind. Whether she offers them or decorates them is Momono-chan's
 
 She said this and showed me a photo of a wrapped little bag.\
 　Momono-chan is a die-hard fan of 'Charles'.\
-Her current favourite is the leader, Haibara Hime-chan.\
+Her current favourite is the leader, Haibara Hiname-chan.\
 And before that, her favourite was my girlfriend. Well, girlfriend...\
 She is my girlfriend. There's no other way to put it.\
 ...Huh? So this is the chocolate Ibara-chan gave her last year? Not that it matters. She probably gets hundreds from others too.
@@ -106,7 +106,7 @@ Fan letters, then. It feels very much like the kind of gift you'd send an idol.
 
 "Do you perhaps write one after every live show?"
 
-"Well, that would be a bother for the staff checking them... This is the first one addressed to Hime-san. I've sent a few to Ibara-chan though."
+"Well, that would be a bother for the staff checking them... This is the first one addressed to Hiname-san. I've sent a few to Ibara-chan though."
 
 "Oh."
 
@@ -134,7 +134,7 @@ said a voice that wasn't mine.\
 I looked up and our eyes met.\
 In that instant, I wanted to praise myself for not gasping, "Eh?"
 
-"...Hime-chan?"
+"...Hiname-chan?"
 
 "Eh? Ah. Amami-san?"
 

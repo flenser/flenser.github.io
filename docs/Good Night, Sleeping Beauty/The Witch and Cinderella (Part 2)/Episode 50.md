@@ -22,12 +22,12 @@ Within mere minutes of her appearance, the entire male contingent was utterly sm
 　Even Shindo seemed somehow more relaxed.\
 Or rather, I was starting to feel captivated myself.\
 How to describe it? Her aura was overwhelming.\
-It hit you like a wave to the face. Like shimmering particles, some mysterious substance.\
+It hits you like a wave to the face. Like shimmering particles, some mysterious substance.\
 I was glad I'd honed my resistance to beautiful girls through Ibara.
 
 Consequently, the meeting proceeded in a consistently harmonious atmosphere.\
 　There were hardly any of the disruptive interruptions I'd feared. For a full hour, Haibara-san simply lavished praise on the concept proposal we'd pre-coordinated with the manufacturer.\
-Was this even a meeting? I couldn't help wondering. But hearing an active idol say, "Do your best with your work, okay? ♡" sent motivation skyrocketing for everyone involved, including the online participants. So I reckon it was well worth it (even unrelated Momono-chan had joined on mute).
+Was this even a meeting? I couldn't help wondering. But hearing an active idol say, "Do your best with your work, okay? ♡" sent motivation skyrocketing for everyone involved, including the online participants. So I reckon it was well worth it (Momono-chan, with characteristic cheek, had also joined on mute despite having no connection to the project whatsoever).
 
 　Then, five minutes before the scheduled end, it concluded with "Right then, we look forward to continuing our work together."
 
@@ -51,14 +51,14 @@ I vaguely recalled mentioning it briefly during the meeting.
 She said this with a bright smile. What a godsend of a response. But was it really alright?\
 I glanced at Shindo-san's expression. "If Haibara-san says so," came his magnanimous reply.
 
-"Ah, but I need to go to the supplies store, so it might take a little while."
+"Ah, but I need to go to the storeroom, so it might take a little while."
 
 Shindo-san glanced at the Apple Watch on his wrist.
 
 "Sorry, but I've got another meeting, so I'll head off first."
 
 And so, Shindo-san left with the manufacturer's representative.\
-Motomura-san also excused himself, saying he had his next meeting.\
+Motomura-san also excused herself, saying she had her next meeting.\
 Only Haibara-san and I remained.
 
 "Right then, shall we go? The storeroom's one floor down."
@@ -94,13 +94,13 @@ It was a question difficult to answer on the spot.\
 "Sorry. I was being mean. Here, you're welcome."
 
 I took the autograph paper she offered.\
-At the end of the scrawled signature, written in neat, careful hand just there, was "To Momoko-san".
+At the end of the scrawled signature, “To Momoko-san” was written in neat, careful handwriting.
 
 "Ah, thank you."
 
-"Oh no, no," she waved her hands dismissively.\
+"Oh no, it's nothing," she waved her hands dismissively.\
 　Even her casual gestures were astonishingly cute.\
-Then it occurred to me, and I placed my index finger against my chin.
+"Come to think of it," — Hiname said, placing her index finger on her chin.
 
 "You were in charge of the new packaging design for 'Rêve', weren't you, Amami-san?"
 
@@ -108,7 +108,7 @@ Then it occurred to me, and I placed my index finger against my chin.
 
 "I wanted to ask the person who designed that, so I was a bit selfish and asked Motomura-san."
 
-"Ahaha, I heard from Shindo. We're incredibly grateful as a company... though I'm not sure if we can meet your expectations."
+"Ahaha, I heard from Shindo-san. We're incredibly grateful as a company... though I'm not sure if I can meet your expectations."
 
 "Was there a model or something for that?"
 
@@ -118,7 +118,7 @@ Then it occurred to me, and I placed my index finger against my chin.
 
 "...Ah, well, that..."
 
-She couldn't tell anyone about her relationship with Ibara.\
+I couldn't tell anyone about my relationship with Ibara.\
 Especially not this girl, who had been close to Ibara.
 
 "I'm sorry, it's a bit difficult to explain."
@@ -138,32 +138,32 @@ In that instant, her expression vanished completely.
 "It's you, isn't it?"
 
 In an instant, the air felt frozen solid.\
-I couldn't help but look twice.\
-This girl, who?\
-The girl who'd been beaming a dazzling smile just moments ago, and the girl now glaring at me with a low voice, didn't connect.\
+I find myself doing an involuntary double-take.\
+This girl, who is she!?\
+The girl who'd been beaming a dazzling smile just moments ago, and the girl now glaring at me with a low voice, I can't connect the two.\
 Haibara-san (?) stepped forward abruptly.\
 　I stepped back as if pushed.\
 Someone unfamiliar, wearing Haibara Hiname's face, said mockingly.
 
 "Looks like you're about twenty-five, eh? That means you're already in your late twenties, Amami-san."
 
-"Y-Hiname-san?"
+"H-Haibara-san?"
 
 "So, what was late-twenties Amami-san aiming for when she approached Ibara? I'd love to know."
 
 "H-Huh?"
 
-"Connections in showbiz? That girl's savings? Or were you just some pervert who fancies high school girls? Surely you weren't trying to recruit her for adult videos, were you?"
+"Connections in showbiz? That girl's savings? A former fan? Or were you just some pervert who fancies high school girls? Surely you weren't trying to recruit her for adult videos, were you?"
 
 "Wait, what... what are you talking about?"
 
 "Oh, still playing dumb, are we?"
 
-Haibara-san's slender yet powerful arm seized the back of my collar.\
+Haibara-san's slender, yet powerful arm seized me by the collar.\
 　She leaned in close enough to kiss me, whispering in my ear.
 
 "You're living with Ibara, aren't you?"
 
 Her voice dropped two octaves, and the content made every hair on my body stand on end.
 
-"──Tell me the truth. Come on. Otherwise, I'll spill everything, absolutely everything, to that Shindo chap from earlier, won't I?"
+"──Tell me the truth. Come on. Otherwise, I'll spill everything, absolutely everything, to that Shindo chap from earlier, okay?"

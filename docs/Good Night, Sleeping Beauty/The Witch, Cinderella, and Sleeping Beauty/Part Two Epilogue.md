@@ -79,14 +79,14 @@ I couldn't calculate off the top of my head how many companies that would be equ
 So that means maybe once or twice? Bloody hell.\
 I'd probably want to cry and run away.\
 I mean, seriously, isn't that just impossible?\
-Is Hime-chan really going to sing, dance, and talk for two hours in a place like this?\
+Is Hiname-chan really going to sing, dance, and talk for two hours in a place like this?\
 Oh dear. It hasn't even started yet, and I'm the one getting nervous.\
 I clench the white penlight I'm holding (which Momono-chan shoved at me... I mean, gave me) tightly.\
 Ibara chuckled softly beside me.
 
 "Why are you so tense, Shigure-san?"
 
-"Well, Hime-chan, she's about to sing up there, isn't she? What if she messes up or something?"
+"Well, Hiname-chan, she's about to sing up there, isn't she? What if she messes up or something?"
 
 "It'll be fine."
 
@@ -97,16 +97,16 @@ Ibara chuckled softly beside me.
 As if in sync with Ibara's voice.\
 With a soft whoosh, the lights throughout the venue dimmed.\
 　Numerous laser beams illuminated the stage, dazzlingly bright.\
-On stage, before I knew it, there was Hime-chan, and the members of 'Charles'.\
+On stage, before I knew it, there was Hiname-chan, and the members of 'Charles'.\
 And then, the live performance began.\
 My first time witnessing a 'Charles' live performance, right before my eyes.\
 The next two hours were a torrent.\
-Through the opera glasses, Hime-chan singing with all her might, and the idols of 'Charles'.\
+Through the opera glasses, Hiname-chan singing with all her might, and the idols of 'Charles'.\
 　A torrent of sound and light.\
 Cheers that shook the body, and vocals that rose above them.\
 I understood perfectly what Momono-chan meant when she said a live performance had to be seen in person to be meaningful.\
 Before I knew it, I was wildly waving my penlight.\
-At the centre of the stage, Hime-chan proclaimed loudly.
+At the centre of the stage, Hiname-chan proclaimed loudly.
 
 'This is the last one! Thank you to everyone who came!'
 
@@ -123,7 +123,7 @@ Ibara pulled her mask down with her fingertips and
 
 she managed to say, her voice strained.
 
-"Hang in there, Hime. Hang in there, Toko-san. Hang in there, Shiro-chan. Hang in there, Tamaki. Hang in there..."
+"Hang in there, Hiname. Hang in there, Toko-san. Hang in there, Shiro-chan. Hang in there, Tamaki. Hang in there..."
 
 Beneath her cap, the corners of her eyes glistened.
 
@@ -134,7 +134,7 @@ Words that could never reach anyone.\
 Words that only reached me and Ibara.\
 　Even if the whole world wouldn't forgive Ibara's weakness, I alone would stand by her. Someday, I had resolved that in my heart.\
 But the whole world being the enemy? That couldn't possibly be true.\
-At the very least, Hime-chan never blamed Ibara.\
+At the very least, Hiname-chan never blamed Ibara.\
 Surely the other members, even Motomura-san, felt the same.\
 Even so.
 
@@ -242,7 +242,7 @@ Ibara continued in an unnaturally gentle voice.
 
 "Ibara, I... I..."
 
-Hime-chan grabbed the hem of Ibara's clothes.\
+Hiname-chan grabbed the hem of Ibara's clothes.\
 　Tears began to fall. Like a dam held back to its limit, finally bursting under the last push.
 
 "I wanted to keep being an idol with you forever, Ibara."
@@ -257,13 +257,13 @@ Along with that helpless truth.
 
 "Why?"
 
-Hime-chan's face crumpled.
+Hiname-chan's face crumpled.
 
 "Why are you quitting being an idol, Ibara-chan..."
 
 "I'm sorry."
 
-Ibara wrapped an arm around Hime-chan's back.\
+Ibara wrapped an arm around Hiname-chan's back.\
 Seeing her profile, I gently looked away.\
 I stood up.\
 An outsider shouldn't be here from this point on.
@@ -294,7 +294,7 @@ That's why I couldn't help asking.
 
 At my question, Kibasaka widened her eyes, then chuckled, "Nyahaha."
 
-"He'll be absolutely furious! When Motomura-san gets angry, he's terrifying!"
+"She'll be absolutely furious! When Motomura-san gets angry, she's terrifying!"
 
 "I-is that alright?"
 

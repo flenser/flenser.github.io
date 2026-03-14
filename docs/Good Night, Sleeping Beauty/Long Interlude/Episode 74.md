@@ -115,7 +115,7 @@ Right, got her to say it.
 "...Pleased to meet you."
 
 Hmm. No reaction to my name.\
-Just like with Shigure-san, she seems completely uninterested in idols. She probably knows about Hime, not me.\
+Just like with Shigure-san, she seems completely uninterested in idols. She probably knows about Hiname, not me.\
 We walked side by side down the corridor.\
 　Kaimei was quite a traditional school; the corridors were actually wooden-floored.\
 The dazzling morning light streamed in through the windows, casting scattered patches of amber-coloured sunlight across the floor.\
