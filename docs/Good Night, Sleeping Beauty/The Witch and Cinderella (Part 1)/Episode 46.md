@@ -28,7 +28,7 @@ No, no, Ibara laughed.
 
 "What?"
 
-"Why did you suddenly ask about Hime?"
+"Why did you suddenly ask about Hiname?"
 
 "Eh?"
 
@@ -57,7 +57,7 @@ In an instant, she was close enough to make the sweet scent of body milk reach m
 
 "Um... I-Ibara?"
 
-"Hime is my friend, and I respect her as an idol. But Shigure-san is special."
+"Hiname is my friend, and I respect her as an idol. But Shigure-san is special."
 
 　She said it in a tone that was somehow superior, as if explaining something to a stubborn child.
 

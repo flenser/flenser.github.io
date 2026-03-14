@@ -245,7 +245,7 @@ I properly turned her down!
 
 "And then... Hiname, for example?"
 
-"Hime-chan?"
+"Hiname-chan?"
 
 "Don't know where you met her, but she's cute, isn't she? I get why Shigure-san would do favours for her."
 
@@ -255,12 +255,12 @@ I properly turned her down!
 
 She gave me a cute glare, looking up at me with probing eyes.
 
-"Even today, weren't you just charmed by Hime's cuteness?"
+"Even today, weren't you just charmed by Hiname's cuteness?"
 
 "It's not like that. It's a misunderstanding."
 
 It really is a misunderstanding. Probably.\
-I do think Hime-chan is cute, but to me, Ibara seems more appealing.
+I do think Hiname-chan is cute, but to me, Ibara seems more appealing.
 
 "I'll apologise as many times as it takes for lying. But I thought it was better for you to hear today's talk directly from Hiname-chan."
 

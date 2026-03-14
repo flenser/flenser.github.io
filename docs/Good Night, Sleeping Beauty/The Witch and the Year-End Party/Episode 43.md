@@ -10,7 +10,7 @@ Episode Forty-Three
 The next day.\
 When I plucked up the courage to ask about "Himeiba", Ibara replied with surprising nonchalance.
 
-"We got on well enough normally, but with Hime, we're just friends. Not lovers or anything like that. Well, you know, the so-called 'yuri marketing' thing."
+"We got on well enough normally, but with Hiname, we're just friends. Not lovers or anything like that. Well, you know, the so-called 'yuri marketing' thing."
 
 "Yuri marketing."
 
@@ -33,7 +33,7 @@ Marketing... does that mean they're promoting something?
 
 "Huh."
 
-"Probably my interactions with Hime were the most popular, but then there was Toko and Shiro-chan's Purple Team too."
+"Probably my interactions with Hiname were the most popular, but then there was Toko and Shiro-chan's Purple Team too."
 
 Akai Toko-san was the Little Red Riding Hood-themed idol, and Aoba Shirona-san was the Bluebeard-themed one, right?\
 They were a red and blue pair, hence the Purple Team, apparently. I see.

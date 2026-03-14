@@ -68,7 +68,7 @@ Her earnest tone threatened to overwhelm me.
 
 I sensed this wasn't false modesty, but her genuine belief. Whether it was true or not was beside the point.\
 But if someone asked me why 'Charles' succeeded, I might answer "luck" too.\
-　Even knowing about Hime and the others' efforts woven into daily life, or Manager Motomura's probably excessive overtime hours, I'd still say it was 'luck'.
+　Even knowing about Hiname and the others' efforts woven into daily life, or Manager Motomura's probably excessive overtime hours, I'd still say it was 'luck'.
 
 "My parents wouldn't let me take a gap year, but I desperately wanted to go to art college, so I put in a fair amount of effort. But it didn't work out. That's when I burned out."
 
@@ -134,7 +134,7 @@ But.\
 The reason I find myself wondering, 'Really?' is surely because Shigure-san is too kind.\
 Boundless kindness resembles love, making it impossible to tell them apart.\
 How great a difference is there between what Shigure-san gave to Yomina-san and what he gave to me?\
-Or perhaps, compared to what she gives to Hime or Shizuku?\
+Or perhaps, compared to what she gives to Hiname or Shizuku?\
 I grow frightened by my own imagination.\
 　What if there was no difference at all?\
 What if Shigure-san was simply being kind to me, equally and fairly, just as he is to everyone else?\

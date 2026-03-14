@@ -69,9 +69,9 @@ Go – stay. She'd decided she wouldn't make it in time.\
 Fixing her own mistakes herself. That sense of responsibility felt right for a working adult, and perhaps it wasn't good to coddle her here.\
 　But.\
 But, you know.\
-Hime-chan's profile flashed through my mind.\
+Hiname-chan's profile flashed through my mind.\
 She'd said she wanted those who bought tickets to enjoy themselves.\
-And Momono-chan is a lovely junior. I want to let her go cheer Hime-chan on.\
+And Momono-chan is a lovely junior. I want to let her go cheer Hiname-chan on.\
 So, before I knew it, the words slipped out.
 
 "I'll help."
@@ -171,7 +171,7 @@ But, well, it's just...\
 As chocolates to give to a lover?\
 　Yet Ibara says it as if she genuinely doesn't care.
 
-"Well, that person's a fan of Hime, right? So they couldn't possibly get angry."
+"Well, that person's a fan of Hiname, right? So they couldn't possibly get angry."
 
 "But—"
 

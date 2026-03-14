@@ -52,7 +52,7 @@ Sorry, Ibara.
 
 Sorry.\
 I apologised again in my heart to the excited Ibara.\
-　But even so, Ibara should probably meet Hime-chan.
+　But even so, Ibara should probably meet Hiname-chan.
 
 †
 
@@ -74,7 +74,7 @@ We transferred stations and arrived at the cat café in question.
 
 "Er, yeah. That's the place."
 
-Inside, Hime-chan was already seated in a corner.\
+Inside, Hiname-chan was already seated in a corner.\
 Disguised and with her back turned, even Ibara didn't recognise her.
 
 "There are loads of cats."
@@ -96,14 +96,14 @@ This is hopeless! My conscience can't take any more!
 "Look. This isn't a date. Someone asked me to bring you here. That's why..."
 
 Ibara blinked repeatedly.\
-　Out of the corner of my eye, I saw Hime-chan stand up.
+　Out of the corner of my eye, I saw Hiname-chan stand up.
 
 "──What's going on?"
 
 "I'm sorry. I'll do anything you want later, but please, just listen to her for now."
 
 Saying that, I stood up.\
-When Hime-chan sat down in the empty seat, Ibara's eyes widened.
+When Hiname-chan sat down in the empty seat, Ibara's eyes widened.
 
 "Hiname?"
 
@@ -120,7 +120,7 @@ Ibara's expression grew increasingly grim before my eyes.
 "I think I understand my position. This place is safe, so don't worry. Besides, meeting Amami-san was just pure coincidence."
 
 Coincidence was a bit misleading.\
-For this day, Hime-chan had invested considerable time and risk.\
+For this day, Hiname-chan had invested considerable time and risk.\
 But I deliberately kept quiet.\
 I pulled out a chair from the next table and sat down.
 
@@ -140,7 +140,7 @@ What exactly am I going to be made to do? Scary.
 "...So. What was it you wanted to talk about directly that was worth going to such lengths?"
 
 Ibara glared at Hiname-chan as if challenging her.\
-　Hime-chan, on the other hand, took a deep breath before returning Ibara's gaze.
+　Hiname-chan, on the other hand, took a deep breath before returning Ibara's gaze.
 
 "Motomura-san and the president are planning auditions for new members of 'Charles'."
 
@@ -170,7 +170,7 @@ Recruiting a new member to fill the gap left by Ibara's departure was surely onl
 Since she had originally graduated, it might have been as good as zero anyway.\
 Still, the reason for her retirement was poor health due to insomnia, so if she recovered eventually, perhaps...\
 I don't think it's fair to say that thought never crossed Ibara's mind or the agency's.\
-That's why Hime-chan wanted to tell Ibara now.\
+That's why Hiname-chan wanted to tell Ibara now.\
 To tell her, and then, this is just my guess.
 
 "So?"
@@ -193,7 +193,7 @@ Ibara finished quietly.
 
 "...Why?"
 
-"It's got nothing to do with you, Hime."
+"It's got nothing to do with you, Hiname."
 
 "But I can't do this without you, Ibara—"
 
@@ -201,4 +201,4 @@ Ibara finished quietly.
 
 Ibara lowered her eyes for just an instant, then raised her face and declared.
 
-"It's no good. You're the centre, Hime."
+"It's no good. You're the centre, Hiname."

@@ -13,7 +13,7 @@ Episode Fifty-One
 
 "...Yes."
 
-"Huh. You're not dodging it, are you?"
+"Huh. You're not going to try to dodge it?"
 
 A sharp click of the tongue escaped Haibara-san.\
 The stark contrast between that intensely demure, delicate face and that abrupt gesture nearly made my head spin.\
@@ -54,22 +54,22 @@ Haibara-san released my collar and clasped her hands together tightly.\
 
 Then, abruptly, a cruel smile spread across her face. She traced my cheek with her fingertip, mocking me.
 
-"—Just kidding. Surely you wouldn't refuse, would you? Kind-hearted Amami-san, who's so gentle with schoolgirls?"
+"—Just kidding. Surely you wouldn't refuse, would you? Kind-hearted Amami-san, who's so gentle with high school girls?"
 
 †
 
 　After returning to the office, Momono-chan came straight over. She must have heard from Shindo-san.\
-I handed her the signed card, to her dog-like eyes waiting for a reward.
+I handed her the signed card, her dog-like eyes waiting for a reward.
 
-"Wow! Thank you so much! So, so, what did you think?"
+"Wow! Thank you so much! So, so, how was it?"
 
-"...What about?"
+"...How was what?"
 
-"Haibara-san, I mean! What were your impressions⁉︎"
+"Hiname-sama in the flesh! What were your impressions⁉︎"
 
 "………Um, well. Her face was incredibly beautiful. Her face."
 
-"Right?! I wish I could've seen her up close too... No, no, you're working, Senpai. Mixing business with pleasure isn't good."
+"Right?! I wish I could've seen her up close too... No, no, Senpai was there for work. Mixing business with pleasure isn't good."
 
 "Ah, ahaha..."
 
@@ -77,14 +77,14 @@ I handed her the signed card, to her dog-like eyes waiting for a reward.
 
 "That's right."
 
-My smartphone buzzed in my suit's inside pocket. Not the work one, my personal iPhone.
+My smartphone buzzed in my suit's inside pocket. Not the work one, but my personal iPhone.
 
-"Haa. Haibara-san is so recommendable... Right, I need to edit that recording and export it to external storage."
+"Haa. Hiname-sama is so worth stanning... Right, I need to edit that recording and export it to external storage."
 
 "Sorry, I'll step away for a moment."
 
-She moved away from Momono-chan, who was being tapped on the shoulder by Shindo-san asking, "Do you know about compliance, Momono-kun?", and headed for the fire escape.\
-A message had arrived on her smartphone chat app.\
+I moved away from Momono-chan, who was being tapped on the shoulder by Shindo-san asking, "Do you know about compliance, Momono-kun?", and headed for the fire escape.\
+A message had arrived on my smartphone chat app.\
 　The sender's name was Cinderella.\
 The icon was a glass slipper. The content read──
 
@@ -99,7 +99,7 @@ After a moment's anguish, I replied, "Understood."
 
 　And so it came to pass that I found myself being blackmailed by an active high school idol, all because I was living semi-cohabiting with a former high school idol.
 
-Huh.\
+How.\
 How did it come to this...
 
 †
@@ -110,20 +110,20 @@ Night.
 
 After finishing our meal at Sereno, Ibara, who was spreading out her textbooks beside me, suddenly said that.
 
-"Oh—really?"
+"Oh, really?"
 
 "Did something unpleasant happen at work?"
 
 "Ah… no…"
 
-He couldn’t say.\
-Haibara had strictly forbidden her from telling Ibara.\
-To protect her social standing, she had no choice but to conceal it.\
-Still, the atmosphere wasn’t one where she could simply brush it off as nothing.
+I couldn’t say.\
+Hiname had strictly forbidden me from telling Ibara.\
+To protect my social standing, I had no choice but to conceal it.\
+Still, the atmosphere wasn’t one where I could simply brush it off as nothing.
 
 "Well. I was just… accosted by a strange person."
 
-"...A weird person?"
+"...A strange person?"
 
 Ibara's eyebrow twitched.
 
@@ -133,11 +133,11 @@ Ibara's eyebrow twitched.
 
 "Er, um, how should I put it? Threatened me to do what they said, sort of."
 
-"Huh⁉︎"
+"Excuse me⁉︎"
 
-"Blimey!"
+"Whoa!"
 
-She was shocked.
+That startled me.
 
 "What on earth? Are you alright⁉︎ Didn't they do anything weird to you⁉︎"
 
@@ -150,7 +150,7 @@ She was shocked.
 "...Well, that's a relief then."
 
 Ibara plopped down onto her haunches.\
-Hmm, this makes it even harder to talk about. Ibara and Hime seem like friends.\
+Hmm, this makes it even harder to talk about. Ibara and Hiname seem like friends.\
 Or rather, what on earth is that girl thinking?\
 Saturday, ten o'clock. Summoned to a café.\
 The other party is a world-famous idol. Surely it's not some stingy request to get her to pay for coffee.\
@@ -169,9 +169,9 @@ Me and Ibara? We're pretty improper, aren't we.\
 We sleep together. We've bathed together. We've kissed. The other day, I even let her touch my chest.\
 Huh.\
 Am I just a bad adult seducing a high school girl?\
-　Strange. Even if we were to become that sort of relationship in the future, I'd decided not to make a move until after high school graduation... But still...
+　Strange. Even if we were to end up in that sort of relationship in the future, I'd decided not to make a move until after high school graduation... But still...
 
-"What's up, Shigure-san? You've been pulling all sorts of faces since a while back."
+"What’s wrong, Shigure-san? You’ve been pulling all sorts of faces this whole time."
 
 "Hey, Ibara."
 
@@ -183,12 +183,12 @@ Am I just a bad adult seducing a high school girl?\
 
 "Really!?"
 
-"Ah, you really haven't realised... Unconscious Succubus Shigure-san..."
+"Ah, you really haven't realised... Oblivious Succubus Shigure-san..."
 
-"What's an unconscious succubus?"
+"What's an oblivious succubus?"
 
-I wish you'd stop with the catchy phrases.\
-Unconscious Succubus Shigure-san.
+I wish that didn't roll off the tongue so nicely.\
+Oblivious succubus Shigure-san.
 
 Anyway, time just kept passing without me being able to talk to Ibara about anything.\
 And then, Saturday arrived.\

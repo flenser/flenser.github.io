@@ -152,7 +152,7 @@ There seemed to be a lot of two-shots with the girl with the short black hair, i
 
 "Ibara, are you close with this girl?"
 
-"Which one? Ah—Hime, right? Yeah, I suppose so. She's the Cinderella girl."
+"Which one? Ah—Hiname, right? Yeah, I suppose so. She's the Cinderella girl."
 
 The members of 'Charles', the group Ibara belonged to, each took their motif from a fairy tale written by Charles Perrault.\
 Fittingly cast as Cinderella, probably the most famous of the Charles tales, this girl was exceptionally pretty.\

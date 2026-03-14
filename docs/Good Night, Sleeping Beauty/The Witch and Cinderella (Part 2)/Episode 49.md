@@ -25,11 +25,11 @@ I usually wear relaxed office casuals, but today, for once, I'd slipped into a s
 "Hmph, because I am a grown-up. Suits me rather well, doesn't it? What do you think?"
 
 I gave Ibara, still eating breakfast, my best look.\
-Ibara hummed, nodded once, and said.
+Ibara hummed, gave a single thoughtful nod, and said.
 
 "Seductive. Makes me want to touch your bum."
 
-"Sexual harassment, boss⁉︎"
+"Are you a sexually harassing boss⁉︎"
 
 "Can I touch it?"
 
@@ -41,7 +41,7 @@ I did say you could look at me funny, but that doesn't mean I condone harassment
 
 "Yeah, yeah."
 
-While I finished my toast, I finished getting ready, glancing sideways at Ibara who was skilfully pouting her lips.\
+Nibbling on her toast, I finished getting ready, glancing sideways at Ibara who was skilfully pouting her lips.\
 　Our company has a flexitime system, but I usually leave home at the same time as Ibara, or slightly earlier.\
 Today especially, being late is not an option. I wanted to leave with plenty of time to spare, just in case.
 
@@ -71,7 +71,7 @@ I grabbed my handbag and left the house.\
 "Ah, is it that time already? Right, let's go then."
 
 Shindo-san and I left the office together. These days, remote meetings are the norm, but this time, due to the other party's preference, it was face-to-face.\
-After boarding the underground, I asked Shindo-san casually as we chatted.
+After boarding the subway, I asked Shindo-san casually as we chatted.
 
 "I don't have much experience with collaborative projects, but is this sort of thing common?"
 
@@ -92,7 +92,7 @@ Shindo stroked his chin.
 "Honestly... getting feedback at this stage makes things tricky..."
 
 　If Haibara-san herself or her agency were to offer design feedback, it would be difficult to ignore entirely.\
-While the manufacturer makes the final decision, some form of incorporation would likely be necessary. Worst case, it could mean starting from scratch.
+While the manufacturer makes the final decision, we’ll probably need to incorporate it somehow. Worst case, it could mean starting from scratch.
 
 "Well, I reckon that part should be fine. The manufacturer's representative will be present too, and I've heard it's not that kind of meeting."
 
@@ -156,11 +156,11 @@ After our introductions, the woman bowed politely.
 This person was Ibara's former manager with 'Charles'.\
 Motomura Tsumugi.
 
-"The manufacturer representative is already here. Please this way."
+"The manufacturer representative is already here. Please, this way."
 
-My first impression of Motomura-san was, 'This chap looks incredibly capable at his job.'\
-His back was perfectly straight. A natural-coloured short bob. A sharply tailored trouser suit. Small, rimless glasses.\
-Honestly, standing next to him made me fear my suit might look like a graduate recruitment outfit. The sense of being perfectly at ease in it was worlds apart.\
+My first impression of Motomura-san was, 'This person looks incredibly capable at her job.'\
+Her back was perfectly straight. A natural-coloured short bob. A sharply tailored trouser suit. Small, rimless glasses.\
+Honestly, standing next to her made me fear my suit might look like a graduate recruitment outfit. The sense of being perfectly at ease in it was worlds apart.\
 　Haaah, so cool, I thought, gazing admiringly as we entered the meeting room. Two manufacturer representatives, whom I'd already met via web conference, stood up.\
 And so, we plunged straight into the business card exchange. Contact details had already been swapped via email, but this was a kind of icebreaker.\
 Once the formalities were over, Motomura-san said.

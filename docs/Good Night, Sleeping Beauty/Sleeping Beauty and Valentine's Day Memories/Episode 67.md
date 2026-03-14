@@ -9,7 +9,7 @@ Episode Sixty-Seven
 
 "Not at all. It's first come, first served with things like that."
 
-When I said that, Hime-chan, who had finished paying and was holding her paper bag, bowed her head again and said, "I'm sorry."
+When I said that, Hiname-chan, who had finished paying and was holding her paper bag, bowed her head again and said, "I'm sorry."
 
 "Honestly, don't worry about it. Truth be told, I was still undecided."
 
@@ -17,7 +17,7 @@ When I said that, Hime-chan, who had finished paying and was holding her paper b
 
 The confectionery section was already closing up shop for the day.\
 Well, that meant I'd have to rush to get everything ready tomorrow. If I finished on time, it should be manageable.\
-Hime-chan and I left the shopping centre together and headed for the station.
+Hiname-chan and I left the shopping centre together and headed for the station.
 
 "Actually, I was surprised. Do you live around here, Hiname-chan?"
 
@@ -32,7 +32,7 @@ A prime location by the bay, close to the shopping mall and with excellent trans
 
 At the very least, she couldn't be called common.\
 　A beauty, an idol, a top student, a young lady, and a genius actress.\
-Hime-chan, who possesses everything in this world, was in the same off-duty mode as when we met at the cat café before.\
+Hiname-chan, who possesses everything in this world, was in the same off-duty mode as when we met at the cat café before.\
 Her knit hat, thick-rimmed glasses, hoodie, and jeans combo perfectly concealed her overflowing idol aura.\
 Still, her natural beauty shines through, and if you looked properly, she was undeniably cute.\
 　That aside.\
@@ -71,11 +71,11 @@ Still, I thought.
 
 "Ahaha, yes, I suppose so."
 
-But, Hime-chan looked down at her hands.
+But, Hiname-chan looked down at her hands.
 
 "Since it's such a special occasion, I want them to receive something I've personally chosen and bought. They've gone to the trouble of buying a ticket and coming to the venue, after all. I want to do everything I can."
 
-"H-Hime-chan..."
+"H-Hiname-chan..."
 
 She's too good.\
 What is this feeling? Could this be what Momono-chan meant by that "worth rooting for" feeling?
@@ -86,7 +86,7 @@ What is this feeling? Could this be what Momono-chan meant by that "worth rootin
 
 "Ibara."
 
-Hime-chan continued.
+Hiname-chan continued.
 
 "Last year, we had the same event, and Motomura-san prepared chocolates for everyone. But Ibara alone, she handed over chocolates she'd bought herself."
 
@@ -94,7 +94,7 @@ Saying this, she narrowed her eyes slightly. As if reminiscing about a past now 
 
 "When I asked why, she said exactly what I just said. Isn't that amazing? Because the customers would never know who prepared whose chocolate, you see."
 
-"You're just as amazing, Hime-chan."
+"You're just as amazing, Hiname-chan."
 
 "Yes. That's what I aspire to be."
 
@@ -108,7 +108,7 @@ But surely Ibara was banished from the Land of Sleep because she was too strong.
 
 "You mustn't push yourself too hard. Are you getting enough sleep?"
 
-Seeing my expression, Hime-chan waved her hands flutteringly. "I'm fine, really."
+Seeing my expression, Hiname-chan waved her hands flutteringly. "I'm fine, really."
 
 "I rest properly when I need to. I couldn't be as serious as Ibara."
 
@@ -121,7 +121,7 @@ Now she eats parfaits at night, acts as selfishly as she pleases, and if you let
 
 "I bet she's different in front of Amami-san, isn't she?"
 
-Hime-chan said, as if she'd seen right through my thoughts.
+Hiname-chan said, as if she'd seen right through my thoughts.
 
 "In front of Amami-san, she's a 'Shinomori Ibara' I don't know. Honestly, I'm a bit jealous."
 
@@ -129,10 +129,10 @@ Her eyes held a certain transparent loneliness.
 
 "I thought I was your best friend. Ibara, sneaking around getting cosy with such a lovely older sister like this..."
 
-"Hime..."
+"Hiname..."
 
 "Getting cosy."\
-But, I see. From Hime's perspective, I might be a cat burglar who stole her precious friend.\
+But, I see. From Hiname's perspective, I might be a cat burglar who stole her precious friend.\
 Feeling rather sorry about that, she murmurs softly.
 
 "...I'm so jealous."
@@ -153,7 +153,7 @@ Or rather, she could turn that aura on and off at will. Was she some kind of abi
 
 "Well, you see. Like, a hug, or sleeping together..."
 
-Hime-chan pressed her body against mine.\
+Hiname-chan pressed her body against mine.\
 Unlike Ibara, she was slender, with a perfectly proportioned model figure. A soft, sweet scent wafted from her. Not citrusy, but vanilla.
 
 "Hii!"
@@ -171,14 +171,14 @@ But.
 
 My hand, brought down like a sword, stopped inches from her face.\
 I couldn't possibly damage an idol's precious features.\
-Seeing my hand touch her forehead, Hime-chan broke into a grin.
+Seeing my hand touch her forehead, Hiname-chan broke into a grin.
 
 "Oh dear, I've been found out."
 
 She swiftly adjusted her glasses.\
 That single gesture made the lingering pink atmosphere vanish like a phantom.
 
-"Honestly. If I didn't know you, Hime-chan, I'd have thought you were serious."
+"Honestly. If I didn't know you, Hiname-chan, I'd have thought you were serious."
 
 "I'm flattered."
 
@@ -190,14 +190,14 @@ Her acting remains impeccable. She should seriously consider a career as an actr
 
 "Never mind!"
 
-Hime-chan shook her head vigorously from side to side.
+Hiname-chan shook her head vigorously from side to side.
 
 "Ah, but it's true I do get a little jealous sometimes. Ibara, just keeps talking about Amami-san all the time too."
 
 "Huh, really?"
 
 So that's how it is. Is that so?\
-　Near the station, Hime-chan stopped walking.
+　Near the station, Hiname-chan stopped walking.
 
 "Right then, I'll leave you here."
 
@@ -205,7 +205,7 @@ So that's how it is. Is that so?\
 
 "Yes. Um, Amami-san..."
 
-I stopped my retreating steps and turned back towards Hime-chan.\
-Hime-chan bowed her head slowly and said.
+I stopped my retreating steps and turned back towards Hiname-chan.\
+Hiname-chan bowed her head slowly and said.
 
 "Please look after Ibara for me."

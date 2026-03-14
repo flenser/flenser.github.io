@@ -7,7 +7,7 @@ Episode Sixty
 
 On the way from the station to Sereno, I kept playing one video over and over.\
 It was a compilation of clips from when Ibara was an idol.\
-Everyone has a side they don't show others. Yamauchi-san, Hime-chan, and Ibara too.\
+Everyone has a side they don't show others. Yamauchi-san, Hiname-chan, and Ibara too.\
 Everyone hides their vulnerability deep inside.\
 Yet, clutching their own little magic, they keep walking forward.
 
@@ -37,21 +37,21 @@ A poster for a Valentine's Fair was stuck in the window of the cake shop along t
 Ibara's reply sounded somewhat distant. But then, I wasn't exactly keen to delve into past anecdotes myself.\
 Nah, forget it. Beating around the bush isn't good.
 
-"I spoke to Hime-chan at work today."
+"I spoke to Hiname-chan at work today."
 
 Ibara's face lifted abruptly.
 
 "She said she'd keep trying, even without confidence."
 
-"Hime did?"
+"Hiname did?"
 
 "Yeah. I thought it was pretty cool."
 
 I genuinely felt that way.\
-Hime-chan had decided to take the stage while still hiding her anxieties and weaknesses.\
+Hiname-chan had decided to take the stage while still hiding her anxieties and weaknesses.\
 What else could that be but strength?
 
-"Did Hime say anything else?"
+"Did Hiname say anything else?"
 
 "That she'd be fine even without Ibara."
 
@@ -62,9 +62,9 @@ It was a vague smile, like it was covering up some immense, unfathomable lonelin
 
 "If she could say that, she didn't need to ask me for help in the first place, did she?"
 
-"Hime-chan is amazing."
+"Hiname-chan is amazing."
 
-"Yeah. Hime-chan is an amazing idol."
+"Yeah. Hiname-chan is an amazing idol."
 
 "I think I've become a bit of a fan."
 
@@ -73,7 +73,7 @@ It was a vague smile, like it was covering up some immense, unfathomable lonelin
 Ibara's expression changed.\
 　Flustered, she grabbed my coat sleeve.
 
-"S-Shigure-san. What does that mean? Have you started liking Hime more than me?"
+"S-Shigure-san. What does that mean? Have you started liking Hiname more than me?"
 
 "It's not like that."
 
@@ -165,7 +165,7 @@ It was as springy as the latest convenience store dessert.
 "I don't. I don't, but I think I'm okay with that."
 
 If you can't move forward without confidence, you'd never take a single step.\
-I want to be someone who can move forward while embracing my weaknesses. Seeing Hime-chan made me think that.\
+I want to be someone who can move forward while embracing my weaknesses. Seeing Hiname-chan made me think that.\
 Well, maybe it's all just rationalisation in the end.\
 Maybe I was just captivated by Ibara, staring at me so sadly, so utterly adorable.\
 If that's the case, then I suppose it's fine.\

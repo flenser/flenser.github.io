@@ -52,7 +52,7 @@ When Ibara returned from the bath a little while later, she was her usual self, 
 I entered the new week still carrying a foggy unease, like an unbroken rain cloud.\
 As if work and private life were linked by invisible gears, progress on the rough draft for that 'Cinderella' piece wasn't moving forward.\
 The main illustration was more or less decided.\
-　A close-up illustration of Hime-chan lathering her hair.\
+　A close-up illustration of Hiname-chan lathering her hair.\
 The product logo would remain unchanged from the standard version.\
 The back would feature the product description, leaving the sides.\
 Cinderella-themed items would be drawn on both sides in the same style as the front.\

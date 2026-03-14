@@ -143,7 +143,7 @@ I must have scrolled back quite far on her SNS back then, so the short hair impr
 "There's this one too, and this one as well."
 
 Each time Hibari-san's finger slid across the screen, a new illustration appeared.\
-And every single one depicted both Ibara and Hime together.\
+And every single one depicted both Ibara and Hiname together.\
 　Most were just them posing together, but some had rather suggestive compositions.\
 Hugging from the front, exchanging meaningful glances, and even kissing cheeks.
 
@@ -159,7 +159,7 @@ Considering that, not a single illustration of Ibara alone appeared.
 
 "Himeiba?"
 
-"Ah, the pairing tag for Hime-chan × Ibara-chan. Basically, it's the tag used by people spewing out their fantasies and illustrations of these two being all lovey-dovey."
+"Ah, the pairing tag for Hiname-chan × Ibara-chan. Basically, it's the tag used by people spewing out their fantasies and illustrations of these two being all lovey-dovey."
 
 "...Flirting..."
 

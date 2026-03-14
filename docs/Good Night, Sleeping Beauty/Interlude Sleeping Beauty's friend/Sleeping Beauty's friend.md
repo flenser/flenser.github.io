@@ -36,9 +36,9 @@ I want us bound by a thread so sturdy and resilient that excuses become unnecess
 Being the same sex, the seven-year age gap – these are transparent walls that won't vanish.\
 　It's usually invisible, but it's definitely there, and when the moment comes, it stiffly, coldly blocks outstretched hands.\
 So I can't afford to wait leisurely until graduation.\
-More practically, someone wonderful could appear before Shigure-san tomorrow and steal her heart.\
+As a more realistic concern, someone wonderful could appear before Shigure-san tomorrow and steal her heart.\
 No, just imagining that hurts too much.\
-Haa... I want to get married.
+Haa... I want to marry her.
 
 　My phone buzzed.\
 A message had arrived.\

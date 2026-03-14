@@ -47,7 +47,7 @@ But.
 †
 
 I did prepare a present, at least. I don’t know if Shigure-san got one ready, but this is my way of showing gratitude. It’s fine if it’s one-sided.\
-I really wanted to talk to Hime and everyone at ‘Charles’ about it, but they’re probably busy, so I didn’t.\
+I really wanted to talk to Hiname and everyone at ‘Charles’ about it, but they’re probably busy, so I didn’t.\
 This guilty feeling still hasn’t faded. Will it ever go away? Is this the right thing to do?\
 　Even that is shrouded in fog right now.
 

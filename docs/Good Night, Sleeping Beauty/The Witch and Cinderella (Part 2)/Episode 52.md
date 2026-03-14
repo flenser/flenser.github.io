@@ -99,7 +99,7 @@ Only the cats watched us, as if testing us.
 
 "Eh?"
 
-"You didn't seem angry at that cheeky younger person. Nor did you act submissive. Most importantly, Tsumire approached you without caution. So it's fine now. Sorry for doubting you."
+"You showed no sign of anger toward a younger person who took such an insolent attitude with you. Nor did you act submissive. Most importantly, Tsumire approached you without caution. So it's fine now. Sorry for doubting you."
 
 Leaving me behind, Haibara-san took a sip of her matcha latte and stuck out her tongue, saying "Ouch!"\
 It must have been hot. Is she sensitive to heat?
@@ -161,7 +161,7 @@ If all of that is just acting, then that means—
 
 "Eh?"
 
-"Like a professional actress. Oh, right, you're an idol. Do you perhaps aspire to be an actress? Wow, that's cool."
+"Like a professional actress. Oh, right, you're an idol. Do you perhaps aspire to be an actress? Wow, that's cool!"
 
 Upon hearing this, Haibara-san shrank even further, her shoulders hunched.
 
@@ -185,7 +185,7 @@ Perhaps it's something I can say precisely because I'm not a fan of "Idol Haibar
 
 "Yes. I'd love to get LASIK, but I'm just too scared. I mean, they cut your eyes and burn them with a laser!"
 
-The dazzling aura is nowhere to be seen in this Hime, who looks at me with disbelief, her eyebrows drawn down.
+The dazzling aura is nowhere to be seen in this Hiname, who looks at me with disbelief, her eyebrows drawn down.
 
 "When I'm performing as an idol, I cast a spell on myself. A sparkling spell to become Cinderella... a kind of self-hypnosis, I suppose."
 
@@ -194,8 +194,8 @@ The dazzling aura is nowhere to be seen in this Hime, who looks at me with disbe
 "Now that the spell's broken, I'm just plain old Cinderella in plain clothes."
 
 I don't think that's true.\
-Right now, she feels less like "Haibara-san" and more like "Hime-chan" – and she's adorable.\
-But before I could interject, Hime-chan continued.
+Right now, she feels less like "Haibara-san" and more like "Hiname-chan" – and she's adorable.\
+But before I could interject, Hiname-chan continued.
 
 "Right then, back to the main point."
 
@@ -212,6 +212,6 @@ But her next words made that impossible.
 "Yes. Could you arrange for me to meet Ibara?"
 
 Ibara?\
-Hime-chan addressed me, who was staring blankly.
+Hiname-chan addressed me, who was staring blankly.
 
-"It's important. It concerns that child's future."
+"It's important. It concerns that girl's future."
