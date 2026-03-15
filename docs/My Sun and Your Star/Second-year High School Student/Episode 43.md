@@ -106,9 +106,9 @@ Why on earth would Mayo-nee get told off?
 “Right, I’ll go ahead with this then. Oh, and by the way, this is completely unrelated, but I’m having a right old time being hassled by this one annoying person.”\
 “Annoying?”
 
-Mayu’s cupboard suddenly clatters open.
+Mayo-nee’s cupboard suddenly clatters open.
 
-“Hello! My name’s Abe Hikari! So this must be Mayu’s little sister! How cute!”
+“Hello! My name’s Abe Hikari! So this must be Mayo-nee’s little sister! How cute!”
 
 　A girl who introduced herself as Abe Hikari started touching me all over.
 
