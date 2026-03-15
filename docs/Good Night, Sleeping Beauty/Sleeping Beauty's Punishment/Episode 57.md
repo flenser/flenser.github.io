@@ -7,7 +7,7 @@ Chapter Fifty-Seven
 
 Ibara lowered herself between my legs, pinning my knees as I sat.
 
-"Hey, Shigure..."
+"Hey, Shigure-san..."
 
 "N-no, you can't. It's over now."
 

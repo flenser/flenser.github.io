@@ -103,11 +103,11 @@ She was clearly sulking. Adorable.
 
 　Even if you say so.
 
-"Because, honestly, thorns don't really suit you..."
+"I mean, Ibara, if I'm being honest, it doesn't really suit you..."
 
 "No way⁉︎"
 
-"Objectively speaking, I think you're the type who suits the cute look better."
+"Objectively speaking, I think you have a face that suits the cute type, after all."
 
 "Well, I'm aware of that part, but..."
 
@@ -139,19 +139,19 @@ I somehow swallowed my embarrassment and stammered out.
 
 "You're grading me⁉︎"
 
-"Because I'm your teacher. Right, Shigure-san. This is how you do it."
+"I'm the teacher, remember. Now listen, Shigure-san. This is how you do it."
 
 Ibara placed a hand on my shoulder and gently pressed her forehead against mine.\
-Warm air brushed my lips.\
+Warm breath brushed my lips.\
 We were so close, just a little more and we would have kissed.
 
 "──One more year. Will you wait for me until I graduate?"
 
 I gasped involuntarily.\
-Ibara's exhaled breath was drawn into my lungs.\
+The air Ibara breathed out was drawn into my lungs.\
 　Hiding my agitation as best I could, I said.
 
-"...Well, well. That was something. You've got my heart racing."
+"...W-well, amazing. That got my heart racing."
 
 "So, what do you think?"
 
@@ -203,11 +203,11 @@ Not just my cheeks, even my ears were burning unbearably.
 
 "K-kissing you, Ibara, feels nice. That's why it's no good, I tell you..."
 
-"Heeee?"
+"Oh, really?"
 
-Ibara's mouth curved into a smirk.
+Ibara's lips curved into a smirk.
 
-"Shigure-san, you get pleasure from it. Kissing a high school girl and feeling good? Even though you're an adult. That's so naughty."
+"Shigure-san, you get turned on from it. Kissing a high school girl and feeling good? Even though you're an adult. That's so naughty."
 
 "Uuuu..."
 
@@ -219,7 +219,7 @@ Ibara's mouth curved into a smirk.
 
 Ibara murmured, rubbing her forehead against mine.
 
-"Because you're such a wonderful person, Shigure-san. I worry someone else might take you away. That a year might be too long for them to wait."
+"Because you're such a wonderful person, Shigure-san. I worry someone else might steal you away. That you won't wait a whole year for me."
 
 "I'm not like that..."
 
@@ -241,7 +241,7 @@ Ibara murmured, rubbing her forehead against mine.
 
 "Haru too! Haru's a friend too!"
 
-I properly turned her down!
+I made that perfectly clear!
 
 "And then... Hiname, for example?"
 
@@ -313,9 +313,9 @@ Slurping and teasing my tongue thoroughly, tormenting it, before finally pulling
 "Mmmph."
 
 She nibbles my lips once more, then pulls away.\
-This time, her tiny tongue licks around the edge of my lips, lick-lick.
+This time, her tiny tongue licks around the edge of my lips.
 
-"T-ticklish, Ibara."
+"T-that tickles, Ibara."
 
 "Does it make you feel strange?"
 
