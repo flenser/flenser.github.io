@@ -37,13 +37,13 @@ I understood that feeling. The closer the person, the more you suspect they're j
 
 I lowered my voice.
 
-"...So, about coming back."
+"...I mean, about coming back."
 
 "It's fine. Just like I told Hiname. I'm not thinking about that sort of thing right now."
 
 "...I see."
 
-"'Charles' is the most unlikely option. Solo work or other units... I don't think so right now."
+"Returning to 'Charles' is the most unlikely option. Solo work or other units... not right now either, I'd say."
 
 Despite saying that, I couldn't help but sense a lingering regret or nostalgia in Ibara's eyes. Was that just a preconception playing tricks on me?
 
@@ -102,13 +102,13 @@ Where on earth did that 'good girl' who was there just moments ago disappear to?
 The one beside me now is Ibara, fully transitioned into full-blown little devil mode.\
 She pinched my earlobe between her fingertips and whispered sweetly.
 
-"Tonight, you're not sleeping at Shigure-san's place. You're sleeping in my room. All right?"
+"Tonight, instead of Shigure-san's place, let's sleep at my room. That's fine, right?"
 
 "Th-that's your request?"
 
 "What are you talking about? Of course not."
 
-With a sadistic smile, Ibara grabbed my arm.\
+With a sadistic little smile, Ibara grabbed my arm.\
 As if to say, I won't let you escape.\
 Eek...
 
@@ -132,7 +132,7 @@ That's probably true.
 
 "That's what you mean⁉︎ No way, a high school uniform is impossible, you know! I'm already twenty-four! I'll be twenty-five next month! That's criminal (?)!"
 
-I thrust my hands out in front of the approaching thorns, desperately resisting the uniform (a stylish blazer) being held out to me.
+I thrust my hands out in front of the approaching Ibara, desperately resisting the uniform (a stylish blazer) being held out to me.
 
 "It's fine, it's fine. It'll be absolutely fine. Right?"
 
