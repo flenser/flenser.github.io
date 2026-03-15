@@ -7,13 +7,13 @@ Episode 48: Winter Arrives (4)
 
 The sunlight streams onto my eyelids, and my eyes gradually adjust to the light.
 
-Once my eyes have adjusted, I see Endo-san lying next to me.
+Once my eyes have adjusted, I see Endo-san lying next to me.\
 I must be a lucky woman to be able to see Endo-san’s face first thing in the morning.
 
 I lightly touch her face, which is as beautiful as ever.
 
-She doesn’t seem likely to wake up yet.
-I bring my face closer.
+She doesn’t seem likely to wake up yet.\
+I bring my face closer.\
 She still doesn’t wake up.
 
 　I know it’s cowardly to do this to her whilst she’s so defenceless, but my body moved before my mind could process it.
@@ -50,7 +50,7 @@ Could it be… are we going to walk to school together?
 
 No, if we did that, we’d attract the attention of the whole school, and that’s the one thing I want to avoid.
 
-When I look at Endo-san’s face, he looks a little sulky.
+When I look at Endo-san’s face, he looks a little sulky.\
 　I reckon if the boys at school saw Endo-san looking like this, they’d be smitten straight away.
 
 Endo-san let go of my hand and placed hers on my face.
@@ -69,14 +69,14 @@ I didn’t want to play right into her hands, so to get one over on her, I pinch
 
 　When I went to wake Hikari-san, she’d fallen out of bed, probably because she’s a restless sleeper.
 
-‘Hikari-san, it’s morning.’
+‘Hikari-san, it’s morning.’\
 She mumbled something and started to wake up.
 
-‘Where’s Mayo-nee?’
-‘Mayo-nee isn’t with us today.’
+‘Where’s Mayo-nee?’\
+‘Mayo-nee isn’t with us today.’\
 ‘My body aches. Usually Mayo-nee sleeps holding me tight so I don’t fall out of bed, but she’s not here today.’
 
-No, Mayo-nee…
+No, Mayo-nee…\
 　What on earth kind of life is she leading?
 
 It looks like I’ll have plenty to ask her about tonight.
@@ -89,19 +89,19 @@ It seems Hikari-san was meeting Mayo-nee somewhere, so she left the house earlie
 
 Endo-san started spouting nonsense as usual. How on earth can she always talk like that with such confidence? As I suspected, Endo-san is a breed of person I simply cannot understand.
 
-‘I'm going ahead, so Endo-san, come along in about fifteen minutes.’
-‘Aw come on, we can walk together just this once. Besides, if I wait that long I'll be late.’
+‘I'm going ahead, so Endo-san, come along in about fifteen minutes.’\
+‘Aw come on, we can walk together just this once. Besides, if I wait that long I'll be late.’\
 ‘No. Not happening.’
 
 I absolutely hate this. I just want to get through school in peace.
 
-I hurried out of Endo’s house.
-Even though I was walking at a brisk pace once I’d left, about ten minutes later someone tapped me on the shoulder from behind.
+I hurried out of Endo’s house.\
+Even though I was walking at a brisk pace once I’d left, about ten minutes later someone tapped me on the shoulder from behind.\
 School was only five minutes away, yet Endo had caught up with me.
 
 It was the end of November and getting cold, so Endo was wearing a scarf.
 
-‘We agreed not to speak to each other, didn’t we?’
+‘We agreed not to speak to each other, didn’t we?’\
 ‘But we’re not at school here.’
 
 Oh no…
@@ -114,7 +114,7 @@ With no other choice, I ignored Endo-san and walked briskly on.
 
 Endo-san followed me, grumbling.
 
-　We’re almost at school.
+　We’re almost at school.\
 Just as I thought that, I started seeing more students in my school uniform, which made me even more flustered.
 
 “Eh! Why are you two together?”
@@ -141,12 +141,12 @@ What should I do… If I say I have plans, she’ll ask if it’s with a boyfrie
 
 I racked my brains, trying to figure out the right answer.
 
-‘I’m spending Christmas with Takizawa this year.’
-‘Eh, Hina?’
+‘I’m spending Christmas with Takizawa this year.’\
+‘Eh, Hina?’\
 ‘Yeah.’
 
-Yeah.
-I want to believe I’m dreaming.
+Yeah.\
+I want to believe I’m dreaming.\
 I’d kept it hidden all this time, yet Endo-san has just blurted it out so easily.
 
 Endo-san is suddenly standing beside me, putting her arm around my shoulder. I want to brush her off, but I can’t act as coldly as usual in front of Mai.
@@ -165,7 +165,7 @@ Whilst Mai is rejoicing with unprecedented enthusiasm, Endo-san isn’t smiling 
 
 　＊＊＊
 
-　School flew by in a flash, and it was time for the afternoon break.
+　School flew by in a flash, and it was time for the afternoon break.\
 　Endo kept sending me loads of stickers on my phone asking to walk home together, which was getting on my nerves, so I just replied that I’d be waiting at the convenience store near the school.
 
 　Endo was already at the convenience store before me and came running over, looking delighted.

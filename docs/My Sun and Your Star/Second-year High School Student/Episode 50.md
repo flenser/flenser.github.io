@@ -11,7 +11,7 @@ If I hadn’t said that, I probably would have been able to spend Christmas alon
 
 It was a mistake to say it as a warning not to interfere.
 
-It’s only natural.
+It’s only natural.\
 From Mai’s point of view, since I know both of them, there’s no reason for her not to go.
 
 I let out a deep sigh during class.
@@ -40,15 +40,15 @@ That’s a bit of a problem, to be honest…
 
 No one would think Takizawa put it there, and it’d be a hassle if people started asking if I have a boyfriend or whatever.
 
-‘That’s a no-go. Isn’t there anything else?’
+‘That’s a no-go. Isn’t there anything else?’\
 ‘Fine, then.’
 
 Saying that, Takizawa turned her back on me.
 
-　Just then, Mayo-nee and the others arrived.
+　Just then, Mayo-nee and the others arrived.\
 They seemed to have bought loads of food, as they were carrying bags in both hands.
 
-‘Right then, I’ll do my best today, Mayo-nee!’
+‘Right then, I’ll do my best today, Mayo-nee!’\
 Hikari said cheerfully.
 
 ‘I was thinking of making oyakodon today, but is there anyone who doesn’t like it?’
@@ -73,7 +73,7 @@ Takizawa and Hikari took turns tasting our dishes. Watching Takizawa eat mine, t
 
 　Hikari kept saying ‘delicious, delicious’ as she ate, but Takizawa remained silent the whole time.
 
-We ate our own oyakodon too.
+We ate our own oyakodon too.\
 I was astonished when I tasted Mayo-nee’s.
 
 It was far more delicious than anything you’d get in a restaurant.
@@ -94,7 +94,7 @@ The moment Mayo-nee asked Takizawa a question, she stood up abruptly from the ta
 
 With that, Takizawa headed off to the bathroom.
 
-‘Hoshizora-chan, why did she suddenly act like that?’
+‘Hoshizora-chan, why did she suddenly act like that?’\
 ‘Hmm, I suppose I could ask Hoshizora later, but she’s definitely not the type to talk about things like that.’
 
 　It was true; I didn’t think Takizawa would ever talk about things like that. She’d hardly ever told me what she was thinking.
@@ -105,23 +105,23 @@ Hikari-san cheerfully said that, changing the subject.
 
 Everyone had finished their baths and gathered in my room, chatting and laughing. Takizawa’s earlier mood had vanished, and she was back to her usual self, which was a relief.
 
-“Everyone’s here, so let’s do something!”
+“Everyone’s here, so let’s do something!”\
   Hikari-san started saying things like that.
 
-“I don’t think there’s anything in particular to do.”
+“I don’t think there’s anything in particular to do.”\
   Mayo-san was, unusually, not keen on the idea, or rather, she seemed wary that Hikari-san might do something unnecessary.
 
-“Hmm… when you think of a girls’ night out, it’s got to be love talk, hasn’t it!”
-  It always comes down to that, doesn’t it…
-  Mayo-san and Takizawa’s faces clouded over all at once.
+“Hmm… when you think of a girls’ night out, it’s got to be love talk, hasn’t it!”\
+  It always comes down to that, doesn’t it…\
+  Mayo-san and Takizawa’s faces clouded over all at once.\
 　I’m probably pulling the same face myself.
 
-“You lot are such a killjoy.”
+“You lot are such a killjoy.”\
 “So, Hikari, do you have a crush on anyone, or are you seeing anyone?”
 
 I waited for the right moment to speak up. With this sort of topic, the person who brought it up should talk about themselves first.
 
-“I’m not seeing anyone, but I do have a crush.”
+“I’m not seeing anyone, but I do have a crush.”\
 “Eh!”
 
 Mayo was the first to react, even before me.
@@ -142,16 +142,16 @@ I’d known that much, but this was the first time I’d heard that she had no i
 
 My heart ached sharply.
 
-“What about you, Hina-chan?”
+“What about you, Hina-chan?”\
 Hikari asked with a beaming smile.
 
-“As for me—”
+“As for me—”\
 I didn’t know what the right answer was.
 
 　I don’t even know what this feeling is myself. Because I don’t know, I’ve tried to face myself and think it through, but I still couldn’t come up with an answer.
 
-“I’ve never fallen for anyone, so I’m not really sure, but there is someone I want to cherish.”
-“Oh! Who is it?”
+“I’ve never fallen for anyone, so I’m not really sure, but there is someone I want to cherish.”\
+“Oh! Who is it?”\
 Hikari asked in a light-hearted tone.
 
 “I’m not answering that.”
@@ -160,21 +160,21 @@ Hikari nudged me playfully, as if to say I was being boring. There’s no way I 
 
 ‘Right then, last up is Mayo-nee!’
 
-‘I actually had my heart broken a little while ago, haha.’
+‘I actually had my heart broken a little while ago, haha.’\
 Everyone present looks taken aback.
 
 Or rather, around summer, Mayo-nee said she liked Takizawa. If that’s true, does that mean Mayo-nee confessed to Takizawa?
 
 No, that can’t be right.
 
-If Takizawa had been confessed to, I don’t think the two of them would be sitting here together like this right now.
+If Takizawa had been confessed to, I don’t think the two of them would be sitting here together like this right now.\
 　So, what on earth does Mayo-nee mean by that?
 
 “I haven’t heard that bit. Tell us the details.”
 
   Hikari, who had been the most energetic and cheerful of the lot until now, looks a bit downcast as she asks.
 
-“No, no, it’s not that interesting. That girl has someone she cares deeply about, and I just thought I couldn’t compete with her.”
+“No, no, it’s not that interesting. That girl has someone she cares deeply about, and I just thought I couldn’t compete with her.”\
 “Is that a reason to give up? If it were me, I’d go for it with the determination to snatch her away.”
 
 I found myself strangely convinced that, given it was Hikari, she might well have done such a thing.
@@ -189,7 +189,7 @@ Listening to Mayo-nee’s story, my mind hadn’t been able to keep up with proc
 
 I can’t help but wonder what sort of amazing person that must be.
 
-“Right then, Hikari, everyone’s had their turn, so now it’s your turn to answer.”
+“Right then, Hikari, everyone’s had their turn, so now it’s your turn to answer.”\
 Mayo-nee looked quite serious.
 
 I think Hikari is truly amazing for being able to get Mayo-nee, who’s usually so inscrutable, to open up like that. Perhaps Takizawa sensed that too, for she watched the two of them with an expression that was both delighted and a little envious.
@@ -198,26 +198,26 @@ I think Hikari is truly amazing for being able to get Mayo-nee, who’s usually 
 
 —Huh?
 
-I reckon all three of us had the same look on our faces.
+I reckon all three of us had the same look on our faces.\
 Hikari was beaming with joy, looking happier than ever.
 
-‘Hikari, cut the jokes. You’re putting Hina-chan and Hoshizora in a difficult spot, aren’t you?’
+‘Hikari, cut the jokes. You’re putting Hina-chan and Hoshizora in a difficult spot, aren’t you?’\
 　“Sigh…” Mayo-nee let out a sigh, looking genuinely flustered.
 
 “It’s true, though,” said Hikari, before arbitrarily bringing the topic she’d started to a close and moving on to something else.
 
 By the time we’d had our fill of various topics, it was getting quite late.
 
-“Where should we sleep tonight? We’d better get some sleep soon, we’ve got school tomorrow, don’t we?”
+“Where should we sleep tonight? We’d better get some sleep soon, we’ve got school tomorrow, don’t we?”\
 Hikari was being considerate in a rather baffling way.
 
-“I was thinking we could split it fifty-fifty between where you slept last night and my room.”
+“I was thinking we could split it fifty-fifty between where you slept last night and my room.”\
 “Oh, well then, I’d like to sleep with Hoshizora-chan.”
 
 Hikari is snuggling up to Takizawa, but that’s the one thing I absolutely cannot tolerate.
 
-I mean, she just said she liked Mayo-nee a moment ago, so why does she want to sleep with Takizawa now?
-I just don’t get it.
+I mean, she just said she liked Mayo-nee a moment ago, so why does she want to sleep with Takizawa now?\
+I just don’t get it.\
 I’m far too worried that Takizawa might do something weird to her.
 
 “As for me, Hina-chan… I’d love to sleep with my beloved little sister, but I suppose I’ll put up with it.”
@@ -228,7 +228,7 @@ No, why are you being so condescending too? However, I didn’t have the courage
 
 　Takizawa said this in a voice so quiet I wasn’t sure if everyone could hear it or not.
 
-Eh? What did you just say—?
+Eh? What did you just say—?\
 Before I could ask her to repeat herself, Mayo-san lifted Hikari-san up in her arms.
 
 “Looking after Hikari is my job, so I’m taking her over there. Sorry for the disturbance, Hina-chan.”

@@ -7,29 +7,29 @@ Episode 46: Winter Arrives (2)
 
 When I rang the doorbell, Endo-san looked at me with a puzzled expression.
 
-‘Are you staying the night too, Takizawa?’
+‘Are you staying the night too, Takizawa?’\
 ‘I’ve come to keep an eye on Hikari-san.’
 
 Without even looking at Endo-san, I strode straight inside. I hadn’t done anything wrong, so I didn’t like the way she was giving me that ‘what’s this all about?’ look. I’d simply come to keep an eye on Hikari-san.
 
 　Endo-san had already cooked dinner, and the house was filled with a delicious aroma.
 
-‘Are there any foods Hikari-san doesn’t like?’
-‘I don’t have any allergies or foods I dislike!’
+‘Are there any foods Hikari-san doesn’t like?’\
+‘I don’t have any allergies or foods I dislike!’\
 ‘That’s good. I’ve made twice-cooked pork, so please help yourself.’
 
 Endo-san looks just like she does at school. With Hikari-san here, she must be putting on a front without realising it.
 
 I don’t like being treated that way when I’m here. I don’t like it, but I don’t want anyone else to see Endo-san’s genuine expression.
 
-My thoughts are contradictory.
+My thoughts are contradictory.\
 I wonder when I started thinking so much about Endo-san’s expressions…
 
 With those thoughts in mind, I bring a mouthful of twice-cooked pork to my lips.
 
 It’s delicious…
 
-They often say that once someone has won your heart through your stomach, it’s all over, but I feel as though Endo-san’s cooking won my heart long ago.
+They often say that once someone has won your heart through your stomach, it’s all over, but I feel as though Endo-san’s cooking won my heart long ago.\
 　I wonder if Hikari-san will become a captive of Endo-san’s cooking too.
 
 ‘Wow, this is delicious!’
@@ -58,8 +58,8 @@ Of course it isn’t. Of course she’d hate it if someone talked about someone 
 
 ‘Eh! If Hina-chan’s up for it, then fine! I’ll get in touch!’
 
-  Hikari-san seems delighted.
-  I’m not enjoying this at all.
+  Hikari-san seems delighted.\
+  I’m not enjoying this at all.\
   I’ve got nothing but a bad feeling about this.
 
   I can’t very well be the only one not going, so it’s been decided that the four of us will stay over tomorrow. Just thinking about tomorrow makes my head start to throb, and I feel gloomy at the thought of it arriving.
@@ -74,7 +74,7 @@ Saying that, she sniffed Endo-san’s hair. ‘Oh, really?’ Endo-san said, sta
 
 　…………
 
-My body moved without my realising it.
+My body moved without my realising it.\
 I think I was gripping Hikari-san’s arm quite tightly. At that, Hikari-san looked taken aback and opened her mouth.
 
 ‘Hoshizora-chan, do you want to hug me like this?’
@@ -97,7 +97,7 @@ I lifted the small, light-weight Hikari-san up in one swift motion and carried h
 
 ‘Yeah…’
 
-Endo-san’s voice sounded a little darker and less cheerful than usual.
+Endo-san’s voice sounded a little darker and less cheerful than usual.\
 Leaving Endo-san behind in the living room, Hikari-san went straight into the bath, behaving herself.
 
 　I was left alone with Endo-san.
@@ -106,7 +106,7 @@ Leaving Endo-san behind in the living room, Hikari-san went straight into the ba
 
 Saying that, I sat down next to Endo-san and our shoulders touched. The shoulder touching Endo-san felt slightly warm.
 
-When I looked at Endo-san, she was smiling and saying, “It’s fine,” but that was the face she showed to Hikari-san; the Endo-san who was usually with me wasn’t there.
+When I looked at Endo-san, she was smiling and saying, “It’s fine,” but that was the face she showed to Hikari-san; the Endo-san who was usually with me wasn’t there.\
 My mood soured instantly.
 
 　Between Hikari-san’s behaviour earlier and Endo-san putting on a show even now that we’re alone, I felt utterly exasperated.
@@ -123,7 +123,7 @@ I know that.
 
 When I said that, Endo-san went quiet.
 
-I ran my finger along the area just below her collarbone.
+I ran my finger along the area just below her collarbone.\
 Endo-san flinched and moved her body for a moment, reacting to it.
 
 　I’d been trying not to do things like this recently.
@@ -210,11 +210,11 @@ Perhaps I’d let my guard down now that Hikari-san was gone; drowsiness came ov
 
 　I looked for my duvet, but unlike last time, mine hadn’t been laid out.
 
-“You said earlier you’d do anything I asked, didn’t you?”
-“——Yeah.”
+“You said earlier you’d do anything I asked, didn’t you?”\
+“——Yeah.”\
 “I want you to sleep with me.”
 
-It was true I’d said that in the heat of the moment, but I hadn’t expected her to make such a request.
+It was true I’d said that in the heat of the moment, but I hadn’t expected her to make such a request.\
 The drowsiness that should have been there vanished somewhere, leaving only the sound of my heartbeat.
 
 I’ll just keep my promise.
@@ -229,10 +229,10 @@ I got into bed with Endo-san.
 
 True, I might have done some pretty terrible things, but that’s no reason for her to hold my hand.
 
-Endo-san’s buttons are fastened, so the red marks aren’t visible.
+Endo-san’s buttons are fastened, so the red marks aren’t visible.\
 Endo-san lay down beside me, pressed herself against me, wrapping herself tightly around my right arm. It's like my heart has migrated to my right arm — pounding away loudly.
 
-Endo’s body is pressing against me.
+Endo’s body is pressing against me.\
 Her soft chest is pressing against me.
 
 I can’t sleep…

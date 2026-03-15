@@ -11,8 +11,8 @@ I reckon Takizawa is the kind of person you’d call beautiful.
 
 I can’t see them now, but she has jet-black eyes, eyelashes as long as a horse’s, a well-defined nose, mouth and eyebrows, and black hair that has taken on a bluish tint in the sunlight.
 
-I stroke that black hair.
-There’s no sign of her waking up.
+I stroke that black hair.\
+There’s no sign of her waking up.\
 　I gently trace Takizawa’s lips with my finger.
 
 The thought that these soft lips are always touching mine makes my heart, which until just now I couldn’t even tell was beating, start to thump.
@@ -33,7 +33,7 @@ Takizawa touched my face, and my heart began beating so fast it felt as though i
 
 The thought that she might hear it made my heart race even faster, and a strange sweat began to break out.
 
-　The next moment, something soft touched my lips.
+　The next moment, something soft touched my lips.\
 It felt exactly like what my fingertips had sensed a moment ago. Just as I was wondering why Takizawa would do such a thing, my head started throbbing as if my heart had moved there, making a loud, annoying noise.
 
 I wonder how much time had passed. When enough time had elapsed for it not to seem unnatural, I opened my eyes.

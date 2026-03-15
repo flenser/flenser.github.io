@@ -9,31 +9,31 @@ The person who introduced herself as Abe Hikari was absolutely radiant.
 
 She seemed to be glowing from within. She sparkled so brightly, I almost thought she was a firefly or something.
 
-‘Sis, what’s with this person who looks like a living fluorescent lamp?’
+‘Sis, what’s with this person who looks like a living fluorescent lamp?’\
 ‘That’s rude, Hoshizora!’
 
-Hikari replied, looking very cheerful.
-In response, my sister clutched her head.
+Hikari replied, looking very cheerful.\
+In response, my sister clutched her head.\
 　Mayo-nee took her hands off her head and began to speak in a calm, measured tone.
 
 The story goes back to the end of the summer holidays.
 
 ＊＊＊
 
-‘Are you in Tokyo too, big sister?’
+‘Are you in Tokyo too, big sister?’\
 ‘—Yes.’
 
 The girl who had spoken to her had eyes that sparkled. Although she was dressed in a mature style, her face looked childish, making it hard to tell her age at a glance.
 
 ‘I’ve got nowhere to stay tonight. Please let me stay at your house!”
 
-The girl, with a beaming smile, started saying things that made no sense. What on earth was she thinking, shouting such strange things so loudly in a public place?
+The girl, with a beaming smile, started saying things that made no sense. What on earth was she thinking, shouting such strange things so loudly in a public place?\
 In stark contrast to her sparkling enthusiasm, I replied matter-of-factly.
 
-“Why on earth would I do that?”
+“Why on earth would I do that?”\
 “Please!”
 
-As she was bowing deeply and drawing attention to herself,
+As she was bowing deeply and drawing attention to herself,\
 I warned her, “All right, just sit down quietly.”
 
 “Thank you so much! My name is Abe Hikari! Nice to meet you!”
@@ -50,9 +50,9 @@ She said it with such a ‘hehe, just kidding’ sort of tone, so I brushed her 
 
 Hikari knows how to joke around when she’s joking, but when she’s serious, she speaks in a manner befitting her age, so I often found myself unable to keep up with the contrast.
 
-When I asked her about herself, I discovered some rather troublesome facts.
-　It seeHikari-san has cut ties with her parents.
-It looks like she’s run away from home.
+When I asked her about herself, I discovered some rather troublesome facts.\
+　It seeHikari-san has cut ties with her parents.\
+It looks like she’s run away from home.\
 A runaway beauty...
 
 The tricky part is that this isn’t just a simple case of running away. Apparently, she had a row with her parents after they told her they couldn’t afford her university fees because they were poor, and she stormed out of the house.
@@ -63,7 +63,7 @@ She told me she absolutely wants to become a psychologist and get her clinical p
 
 Apparently, she’d been working part-time since high school without her parents’ knowledge to save money, but she hasn’t found a place to live yet, and the money she saved back then isn’t going to last forever.
 
-So, she ended up coming to live at my house.
+So, she ended up coming to live at my house.\
 I feel as though I’ve been dragged into quite a mess.
 
 　However, I envy and respect Hikari, who, unlike me, forges her own path regardless of her parents or the circumstances around her. It’s partly thanks to Hikari that I’ve started to think I might be able to change my current situation.
@@ -108,14 +108,14 @@ It’s great to see they get on so well, even I can tell. I’m relieved to see 
 
 ‘I’d be worried leaving Hikari on her own at that house…’
 
-　I was flabbergasted by Mayo-nee’s words.
+　I was flabbergasted by Mayo-nee’s words.\
 　It’s true that my sister can do anything, but that doesn’t mean she has to take care of everything for Hikari-san. Is she even doing the housework? I can’t help but think she’s being far too overprotective of Hikari-san.
 
 “Hikari-san, please do at least the housework. Don’t cause my sister too much trouble.”
 
 　I can’t help but feel a little sympathy for Mayo-nee. It seems she really hasn’t changed a bit—she’s still just as caring as ever.
 
-“No, she can do everything except cook, you know? It’s just that if I let her cook, she cut her finger the other day, so I’ve been worried ever since…”
+“No, she can do everything except cook, you know? It’s just that if I let her cook, she cut her finger the other day, so I’ve been worried ever since…”\
 Mayo-nee gazed at Hikari-san with concern.
 
 Yeah. Hikari-san’s lifestyle is exactly like mine.
@@ -128,7 +128,7 @@ Mayo-nee bowed her head and pleaded with me.
 
 Well, Endo-san must have her own commitments, and her house isn’t really meant for that sort of thing.
 
-‘I’ll do my best to sort out that university thing we were talking about earlier, too. If her existence is discovered, it’ll make it harder to move forward with that as well…’
+‘I’ll do my best to sort out that university thing we were talking about earlier, too. If her existence is discovered, it’ll make it harder to move forward with that as well…’\
 I was about to refuse before even asking Endo-san, but my sister looked so genuinely distressed as she pleaded with me that I simply couldn’t bring myself to say no.
 
 Sigh… Why does she always get dragged into these incidents?
@@ -141,11 +141,11 @@ Endo-san picked up after about three rings.
 
 After explaining the situation in detail, he agreed straight away.
 
-“Endo-san says it’s fine.”
-“That’s a relief.”
+“Endo-san says it’s fine.”\
+“That’s a relief.”\
 “Thanks for everything, Endo-chan!”
 
-I’d actually preferred it if Endo had turned me down.
+I’d actually preferred it if Endo had turned me down.\
 Or rather, are Endo-san and Hikari going to be staying at that house together?
 
 Hikari’s really good at getting on with people. I can easily picture the two of them getting on well and having a lovely chat.
