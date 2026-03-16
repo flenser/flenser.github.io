@@ -122,7 +122,7 @@ I hadn’t received a single message for ages, so why all of a sudden? Is it bec
 I tapped my phone with trembling fingers.\
 But the message that had arrived wasn’t the farewell I’d imagined.
 
-‘I want to see you. I’ll wait right there where we watched the fireworks together, until you come, Nana.’
+‘I want to see you. I’ll wait right there where we watched the fireworks together, I'll wait forever, until you come, Nana.’
 
 “Eh…?”
 
