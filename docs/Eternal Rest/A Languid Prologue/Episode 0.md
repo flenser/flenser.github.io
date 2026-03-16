@@ -1,3 +1,8 @@
+---
+parent: "A Languid Prologue"
+title: The Beginning
+nav_order: 1
+---
 The Beginning
 
 Thus spoke the Lord:
@@ -96,6 +101,6 @@ It seems tomorrow is Monday.
 
 The girl who looms so large in these memories — oh, I do look forward to meeting her.
 
-[^name]: The name "Gunjō Hyōri" is full of meaning.\
-The surname "Gunjō" means "ultramarine".\
-The given name "Hyōri" breaks down into "Hyō" meaning "ice" and "ri" meaning "beautiful/graceful", literally "ice-beautiful" or "graceful as ice" — elegant, cool, perhaps a little untouchable.
+* * *
+
+[^name]: The name "Gunjō Hyōri" is full of meaning: The surname "Gunjō" means "ultramarine". - The given name "Hyōri" breaks down into "Hyō" meaning "ice" and "ri" meaning "beautiful/graceful", literally "ice-beautiful" or "graceful as ice" — elegant, cool, perhaps a little untouchable.
