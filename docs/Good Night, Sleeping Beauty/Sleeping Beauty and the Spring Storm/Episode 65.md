@@ -125,7 +125,7 @@ Chillingly cold, yet pleasantly smooth fingertips.
 
 "...Ibara. Did you touch me while I was asleep?"
 
-I flinched.\
+She flinched.\
 Ah, this kid really did touch me.
 
 "Pervert."

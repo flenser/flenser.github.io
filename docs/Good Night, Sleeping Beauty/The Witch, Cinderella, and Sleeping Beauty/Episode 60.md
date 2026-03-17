@@ -96,12 +96,12 @@ Regular breaths escaped from her slightly parted lips.\
 Illuminated by the cake shop's lights, white breath scattered into the night.\
 I repeated myself once more.
 
-"I like you, Ibara."
+"I love you, Ibara."
 
 "...Eh? Ah... Eh...?"
 
-　Her features, as perfect as a well-made doll, crumbled with agitation and confusion.\
-Her lips opened and closed, gasping, her eyes sparkling like shattered jewels scattered across the sky.\
+　Her features, as perfect as a well-made doll, crumbled into a look of flustered confusion.\
+Her lips open and close, open and close, gasping, her eyes sparkling like shattered jewels scattered across the sky.\
 How adorable, I thought.\
 I'd thought so ever since the day we first met, but this was the most adorable she'd been all winter.\
 Every day, every minute, every second, a new record.\
@@ -123,13 +123,13 @@ Tears welled in both of Ibara's eyes.
 
 "I know."
 
-"She gets jealous in an instant, she's clingy, she's the type who always wants to be glued to you, and surprisingly, she's mentally fragile, she's seven years younger, underage, and far, far more childish than Shigure-san."
+"I get jealous in an instant, I'm clingy, I'm the type who always wants to be glued to you, and surprisingly, I'm mentally fragile, I'm seven years younger, underage, and far, far more childish than Shigure-san."
 
 "Yeah."
 
 "What do you mean, 'yeah'?"
 
-"But I think those thorns are cute, and... because she's important."
+"But I think all of that is cute, Ibara, and…… you are important to me."
 
 "Ugh."
 
@@ -149,9 +149,9 @@ I pinched Ibara's cheek.\
 The soft, yielding feel was pleasantly satisfying.\
 　Ibara flashed a tearful smile.
 
-"Oh dear."
+“Ow—!”
 
-"I suppose so."
+“Yeah, I figured.”
 
 When I released my fingers, her skin wobbled.\
 It was as springy as the latest convenience store dessert.
@@ -254,7 +254,7 @@ That's true. It is.
 
 "Anyway, that can wait! Ibara's taking exams next year, right? You need to study."
 
-"Uu..."
+"Grrr..."
 
 Ibara growled softly.\
 You liked that?
