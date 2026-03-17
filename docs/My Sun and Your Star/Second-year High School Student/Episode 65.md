@@ -7,18 +7,18 @@ Episode 65: Two Steps Forward, One Step Back
 
 I wake to the sound of birdsong.
 
-I open my eyes to find a beautiful girl sleeping there.
+I open my eyes to find a beautiful girl sleeping there.\
 It looks as though she won’t be waking any time soon.
 
-Ever since I was a child, I’ve had a strange habit of waking up early in the morning.
+Ever since I was a child, I’ve had a strange habit of waking up early in the morning.\
 I used to hate getting up so early, thinking I could have slept longer, but lately I’ve stopped feeling that way.
 
-　She is sleeping soundly, breathing gently.
+　She is sleeping soundly, breathing gently.\
 Making full use of the privilege of waking up early, I gently touch her all over. Whether I touch her hair, stroke her eyelashes, or brush her lips, she shows no sign of waking.
 
-A lot happened yesterday.
-Takizawa seemed happy, having enjoyed herself so much.
-That alone was enough to make me happy.
+A lot happened yesterday.\
+Takizawa seemed happy, having enjoyed herself so much.\
+That alone was enough to make me happy.\
 And yet, Takizawa opened up to me of her own accord.
 
 　Given Takizawa’s personality, she must have been suffering in silence all this time, unable to tell anyone.

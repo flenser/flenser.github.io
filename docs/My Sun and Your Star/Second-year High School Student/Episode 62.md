@@ -11,8 +11,8 @@ Takizawa’s birthday, her likes and dislikes, the things she enjoys, her hobbie
 
 However, apart from the fact that Takizawa’s birthday is 26 March, there wasn’t much else of use.
 
-‘Hina, why did you suddenly start asking about Hoshizora?’
-‘Well, I just wanted to get on better with Takizawa. I’d planned to ask her all sorts of things at the Christmas party, but I didn’t get the chance.’
+‘Hina, why did you suddenly start asking about Hoshizora?’\
+‘Well, I just wanted to get on better with Takizawa. I’d planned to ask her all sorts of things at the Christmas party, but I didn’t get the chance.’\
 I decided to brush it off with that.
 
 I use the Christmas present Takizawa gave me every day.
@@ -25,8 +25,8 @@ Everything I receive from Takizawa fills me with warmth.
 
 Each one is a treasure more precious to me than anything else.
 
-I want to give her something in return, at the very least.
-I thought long and hard about a birthday present, but nothing good came to mind. I don’t even know what sort of birthday celebration would make Takizawa happy.
+I want to give her something in return, at the very least.\
+I thought long and hard about a birthday present, but nothing good came to mind. I don’t even know what sort of birthday celebration would make Takizawa happy.\
 I don’t know anything about her.
 
 　Come to think of it, when we went to the summer festival last year, I seem to recall she was absolutely delighted with the Labrador soft toy. Perhaps Takizawa likes animals.
@@ -35,8 +35,8 @@ With that in mind, I decided we should visit the zoo together on her birthday.
 
 The zoo was absolutely the right choice.
 
-　Takizawa is smiling constantly.
-She looks like she’s having a lovely time.
+　Takizawa is smiling constantly.\
+She looks like she’s having a lovely time.\
 She’s chatting away to me.
 
 I planned the day for Takizawa’s sake, yet I feel as though I’m the one receiving the present.
@@ -49,13 +49,13 @@ When I asked what had happened, it seems she’d found a lost child and couldn�
 
 Even at a time like this, she’d rather help a child in trouble than enjoy himself. Takizawa may be a bit clumsy, but she has a wonderfully kind heart, and I know that better than anyone.
 
-I decided to help Takizawa.
+I decided to help Takizawa.\
 She was giving the lost child, a girl called Hana-chan, ride on her shoulders to keep her entertained.
 
 Watching her like that, I couldn’t help but smile.
 
-　The more time I spend with Takizawa, the more wonderful qualities I discover in her.
-I found several more today.
+　The more time I spend with Takizawa, the more wonderful qualities I discover in her.\
+I found several more today.\
 Takizawa is nothing but wonderful.
 
 It really gets on my nerves.
@@ -78,10 +78,10 @@ It’s just that simple, yet it makes me happy.
 
 Even though that ‘natural’ isn’t actually natural at all, I can’t help but feel deeply that Takizawa is truly an amazing person for being able to do it so effortlessly.
 
-　The polar bear was absolutely adorable.
-Takizawa, standing right next to it, was even cuter.
-Takizawa is smiling.
-So cute.
+　The polar bear was absolutely adorable.\
+Takizawa, standing right next to it, was even cuter.\
+Takizawa is smiling.\
+So cute.\
 I want her to keep that expression forever, yet I also don’t want anyone else to see it.
 
 I moved a little further away so Takizawa wouldn’t notice, pretending to take a photo of the polar bear whilst capturing her in the frame too.
@@ -98,7 +98,7 @@ It was so cute I really wanted it, but I was a bit embarrassed that if I bought 
 
 I was quite taken aback, to say the least.
 
-When I asked her why, it turned out she’d bought it for me.
+When I asked her why, it turned out she’d bought it for me.\
 That alone was enough to make me happy, but just as I was hesitating to accept it, another identical keyring appeared.
 
 ‘I’ll wear one too, so you won’t feel embarrassed, will you?’
@@ -127,8 +127,8 @@ I want to know more about Takizawa.
 
 Or would she run away, just like the rabbit that bolted when I tried to touch it earlier today? Either way, the fact remains that I want to know more about Takizawa.
 
-From now on, I’ll take my time and get to know Takizawa little by little.
-It doesn’t matter how long it takes.
+From now on, I’ll take my time and get to know Takizawa little by little.\
+It doesn’t matter how long it takes.\
 I want to be the one who knows Takizawa best.
 
 As the train swayed gently back and forth, those were the thoughts running through my mind.
