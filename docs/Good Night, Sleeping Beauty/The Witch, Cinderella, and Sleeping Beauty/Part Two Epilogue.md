@@ -272,7 +272,7 @@ An outsider shouldn't be here from this point on.
 Her presence here meant she was a member of 'Charles'.\
 Given the atmosphere and her height, I could probably guess who she was.
 
-"You're Kibasaka-san, right?"
+"You're Kisaka-san, right?"
 
 "Ah, yes, that's me."
 
@@ -286,13 +286,13 @@ She pretended to glance at the peephole,
 
 "Yes, just a little longer."
 
-Kibasaka-san nodded.\
+Kisaka-san nodded.\
 Having stepped off the stage and changed her disguise, she looked just like an ordinary university student.\
 That's why I couldn't help asking.
 
 "Um. Won't Motomura-san get angry about us doing this?"
 
-At my question, Kibasaka widened her eyes, then chuckled, "Nyahaha."
+At my question, Kisaka-san widened her eyes, then chuckled, "Nyahaha."
 
 "She'll be absolutely furious! When Motomura-san gets angry, she's terrifying!"
 
@@ -300,7 +300,7 @@ At my question, Kibasaka widened her eyes, then chuckled, "Nyahaha."
 
 "Not at all. An angry Motomura-san is terrifying. But—"
 
-Kibasaka continued matter-of-factly.
+Kisaka-san continued matter-of-factly.
 
 "Ibara's one of the 'Charles' crew, a friend. Even if she quits being an idol, that won't change."
 

@@ -67,7 +67,7 @@ Ibara reluctantly withdrew, looking decidedly reluctant.\
 Still flustered, adjusting my collar, I followed behind.\
 Then, moving into the living room, immediately.
 
-"Ibara the pervert!"
+"Ibara, you pervert!"
 
 I protested.
 
@@ -90,18 +90,18 @@ When? When did I make that kind of face?
 "You absolutely were."
 
 I wasn't.\
-Swallowing that pointless argument, the mature me sat down on the rug.\
-　Thud. Ibara rolled onto my lap.\
-Like a big cat. Plus, her uniform pleated skirt had ridden up dangerously high.\
-Silently adjusting the hem, Ibara shivered.
+Swallowing that pointless argument, I — the mature adult — lowered myself onto the rug.\
+With a little plop, Ibara rolled herself into my lap.\
+Like a large cat. Also, her uniform's pleated skirt had ridden up and things were getting precarious.\
+I silently fixed the hem of her skirt, and Ibara gave a little shiver.
 
 "Like a cat."
 
-As the words left my mouth, Ibara pressed her loosely clenched hand to her cheek.
+When I said it out loud, Ibara pressed her loosely curled hand against her cheek.
 
 "Purrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr"
 
-What on earth was that? Roughly cute? The very embodiment of cunning?
+What is that. Effortlessly cute. The living embodiment of coquettishness.
 
 "Where did you learn that sort of thing?"
 
@@ -109,22 +109,22 @@ What on earth was that? Roughly cute? The very embodiment of cunning?
 
 "Hmm."
 
-"Before doing it, I thought it was a bit 'edgy', but the finished product is actually pretty good. They used CG to animate the tails and stuff, so it's properly authentic."
+"Before doing it, I thought it was going to be a bit intense, but the finished product is actually pretty good. They used CG to animate the tails and stuff, so it's properly authentic."
 
 Right, I'll watch it later.
 
-"Juu-chan is Kibasaka-san?"
+"Tama-chan is Kisaka-san?"
 
 "Exactly."
 
-Kibasaka-san uses 'boku' as her pronoun, has short hair, and is like a 'Puss in Boots'. I greeted her at karaoke the other day.\
+Kisaka-san uses 'boku' as her pronoun, has short hair, and is like a 'Puss in Boots'. I greeted her at karaoke the other day.\
 She's a girl with slender limbs and a somewhat androgynous vibe.
 
-"That child's rather cute, isn't she?"
+"That girl's rather cute, isn't she?"
 
 "…………."
 
-"Aww!"
+"Ow!"
 
 She pinched my side without a word. Ouch.\
 Ibara looked up at me with eyes glistening with moisture.
@@ -156,7 +156,7 @@ Gently kneading the auricle.\
 Come to think of it, there's apparently an acupuncture point for sound sleep in the ear. After hand massage, I should study ear acupressure.\
 Starting with the soft auricle, tracing the beautifully shaped anti-helix. Kitties usually don't let you touch this part much.
 
-"Hmph."
+"Mmm.."
 
 I wondered if she had pierced ears, but there were no marks. A bit surprising.\
 I have both ears pierced, for what it's worth.\

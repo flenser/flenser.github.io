@@ -121,19 +121,19 @@ Now she eats parfaits at night, acts as selfishly as she pleases, and if you let
 
 "I bet she's different in front of Amami-san, isn't she?"
 
-Hiname-chan said, as if she'd seen right through my thoughts.
+As if seeing right through what I was feeling, Hiname-chan said:
 
 "In front of Amami-san, she's a 'Shinomori Ibara' I don't know. Honestly, I'm a bit jealous."
 
-Her eyes held a certain transparent loneliness.
+With eyes that held a transparent, quiet loneliness somewhere inside them.
 
-"I thought I was your best friend. Ibara, sneaking around getting cosy with such a lovely older sister like this..."
+"I thought I was her best friend. And yet Ibara went and secretly got cosy with such a lovely older sister like this..."
 
-"Hiname..."
+"Hiname-chan..."
 
-"Getting cosy."\
-But, I see. From Hiname's perspective, I might be a cat burglar who stole her precious friend.\
-Feeling rather sorry about that, she murmurs softly.
+"Cosy, she says."\
+But, I see. From Hiname-chan's perspective, I might be the homewrecker who stole her precious friend.\
+I was sitting with a vague sense of guilt when she murmured quietly:
 
 "...I'm so jealous."
 
@@ -147,9 +147,9 @@ She pointedly pouted her lips, then peered up at me seductively from beneath her
 "Well, what do you say, Amami-san? Could you heal me too... without telling Ibara?"
 
 Suddenly, a coquettish idol aura flooded out of her. With a hint of a little devil flavour, too.\
-Or rather, she could turn that aura on and off at will. Was she some kind of ability user?
+Or rather, she could turn that aura on and off at will. Did she have some kind of super power?
 
-"Heal... me?"
+"Heal... you?"
 
 "Well, you see. Like, a hug, or sleeping together..."
 

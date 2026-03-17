@@ -40,15 +40,15 @@ She gave an answer that could be taken as either denial or affirmation, exhaling
 
 "All right."
 
-I rubbed and rubbed her belly.\
+I rubbed and rubbed - I run my hand over her stomach.\
 Her cool, smooth, silky skin was a pleasure just to touch. I could keep stroking her like this forever. Never getting tired of it.
 
-"...Mm... Just a little lower..."
+"...Mm... Just a little more, lower..."
 
 "Understood."
 
-　From her side, through her solar plexus, circling her navel once, tracing the edge of her stiff pleated skirt.\
-Just a little, sliding the first knuckle of her finger beneath the fabric.
+From the side of her waist, passing over her solar plexus, circling once around her navel, and tracing the edge of the stiff pleated skirt.\
+Just slightly, I slid the first joint of my fingers beneath the fabric.
 
 "Ah!"
 
@@ -57,7 +57,7 @@ She hunched her back sharply, exhaling raggedly like she'd just surfaced from wa
 
 "Are you... alright?"
 
-"…………Hmm."
+"…………Hmmmm."
 
 Ibara let out a long, damp sigh.
 
@@ -90,7 +90,7 @@ Oh, she hit her head on the floor. That must hurt.
 
 "It's nothing!"
 
-"Oh, right."
+"O-okay then."
 
 It's nothing. Well, that's fine then.
 
@@ -98,7 +98,7 @@ It's nothing. Well, that's fine then.
 
 With a complex expression that was somewhere between wanting to cry and being angry, Ibara began preparing her change of clothes at super speed.\
 She grabbed a light green bath towel and dashed straight to the bath.\
-What's with the sudden rush?
+What on earth just happened?
 
 　†
 
