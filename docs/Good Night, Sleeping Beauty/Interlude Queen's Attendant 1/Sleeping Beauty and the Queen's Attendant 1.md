@@ -165,7 +165,7 @@ Somehow, my throat had gone completely dry.
 
 "I don't understand."
 
-"I'll explain that shortly. For now, would you mind getting in?"
+"I'll explain that shortly. For now, would you please get in?"
 
 "No."
 

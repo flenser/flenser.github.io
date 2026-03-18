@@ -5,7 +5,7 @@ nav_order: 5
 ---
 Episode One Hundred and Two
 
-I moved to the landing of the emergency staircase and pressed the call button.
+I moved to the landing of the emergency staircase and pressed the call button.\
 People rarely pass through here. Even so, I covered my mouth with my hand as I spoke.
 
 "Hiname-chan?"
@@ -42,7 +42,7 @@ Hiname-chan hesitated on the line.
 
 'Ten tickets would be one minute. Due to infection control and other measures, we've gone handshake-free, just talk now.'
 
-What a peculiar culture. How much do CDs cost these days, I wonder?
+What a peculiar culture. How much do CDs cost these days, I wonder?\
 It makes me wonder again if it's really okay to be chatting like this normally right now.
 
 'Sorry, I digressed.'
@@ -95,29 +95,29 @@ Incidentally, when I searched just now, that tweet had already been deleted. The
 
 "Well..."
 
-Hiname-chan's question left me at a loss for words.
-Should we tell Ibara? That's... well—
-What should we do?
-It's hard to judge because we don't know who this Kikuno-san (tentative name) really is.
-　At one point, I thought she might be Ibara's mother.
-But that still feels off.
-If she really were his mother, why go about it so roundabout?
+Hiname-chan's question left me at a loss for words.\
+Should we tell Ibara? That's... well—\
+What should we do?\
+It's hard to judge because we don't know who this Kikuno-san (tentative name) really is.\
+　At one point, I thought she might be Ibara's mother.\
+But that still feels off.\
+If she really were his mother, why go about it so roundabout?\
 Then again, if she's a complete stranger, that's downright horrifying. Should I just relay what I was told?
 
 "It's tricky, isn't it?"
 
 'Exactly.'
 
-Hiname-chan sighed, 'Fuu'.
+Hiname-chan sighed, 'Fuu'.\
 Even over the phone, her distress was palpable.
 
 'I'm sorry, I'm completely at a loss. We're in the middle of a national tour, so I really need to focus on the performances.'
 
-Hiname-chan continued, "I'm sorry for bringing up such a strange request."
-She's hurtling down the idol path at breakneck speed and must be ten times busier than me.
-Yet she's genuinely troubled about Ibara leaving the team. She's still such a bloody good kid.
-...Right.
-I can't let a girl like that carry this kind of worry.
+Hiname-chan continued, "I'm sorry for bringing up such a strange request."\
+She's hurtling down the idol path at breakneck speed and must be ten times busier than me.\
+Yet she's genuinely troubled about Ibara leaving the team. She's still such a bloody good kid.\
+...Right.\
+I can't let a girl like that carry this kind of worry.\
 Hiname-chan should focus on her own work. For the fans' sake, and for her own.
 
 "Thank you for talking to me about it."
@@ -140,13 +140,13 @@ Through the phone, I heard her exhale in relief.
 
 'Yes!'
 
-As if she'd made up her mind, the call ended with that spirited reply. That's fine.
-That's fine, but now then.
-I'd rashly agreed to take it on, but what should I do?
+As if she'd made up her mind, the call ended with that spirited reply. That's fine.\
+That's fine, but now then.\
+I'd rashly agreed to take it on, but what should I do?\
 Should I pluck up the courage to ask Ibara, or should I just suppress it on my own authority? Which is the right answer?
 
-　Puzzling over it, I returned to my seat to find a paper coffee cup with a lid placed there.
-I wondered if someone had put it there by mistake, but then my eyes met Momono-chan's.
+　Puzzling over it, I returned to my seat to find a paper coffee cup with a lid placed there.\
+I wondered if someone had put it there by mistake, but then my eyes met Momono-chan's.\
 She held a cup from the same vending machine.
 
 "Ah, that's for the morning manju and as a thank you for everything!"
@@ -169,13 +169,13 @@ Momono-chan clutched her chest tightly.
 
 "Aren't you a bit too gullible?"
 
-I found myself slightly concerned about Momono-chan's romantic prospects. Though that's none of my business, really.
-I sat down at my seat and pulled the knob on the lid. The rich, roasted aroma of ground beans wafted out.
-Even though I'd kicked my caffeine habit, the smell of coffee was still wonderful.
-Toasty and faintly sweet.
-　Smells trigger memories. Suddenly, I found myself longing for those sofa seats at Sereno.
-Right then, today I'll skip the herbal tea and have decaf coffee instead.
-Aki-san's decaf coffee is absolutely exquisite, and that's when it hit me.
-That's right.
-Aki-san is Ibara's cousin.
+I found myself slightly concerned about Momono-chan's romantic prospects. Though that's none of my business, really.\
+I sat down at my seat and pulled the knob on the lid. The rich, roasted aroma of ground beans wafted out.\
+Even though I'd kicked my caffeine habit, the smell of coffee was still wonderful.\
+Toasty and faintly sweet.\
+　Smells trigger memories. Suddenly, I found myself longing for those sofa seats at Sereno.\
+Right then, today I'll skip the herbal tea and have decaf coffee instead.\
+Aki-san's decaf coffee is absolutely exquisite, and that's when it hit me.\
+That's right.\
+Aki-san is Ibara's cousin.\
 She might know the truth about "Kikuno-san".
