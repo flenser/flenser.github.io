@@ -113,7 +113,7 @@ N-no, no, no, no. Why, why did you turn around now? I said I'd resent you foreve
 
 "Oh, I see. I'll stroke it for you then."
 
-Ignoring my response (?), Shigure-san wriggled about. Wait, Shigure-san's wearing earphones, she can't hear me! This person's still drunk, isn't she?!\
+Ignoring my response, Shigure-san wriggled about. Wait, Shigure-san's wearing earphones, she can't hear me! This person's still drunk, isn't she?!\
 Cold fingers slipped under the hem of my pyjamas.\
 No.\
 No, no, stop it, Shigure-san. If you touch me now, I'll go mad.

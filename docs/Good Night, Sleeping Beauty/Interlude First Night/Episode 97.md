@@ -64,7 +64,7 @@ Lying right beside her, I breathed in Shigure-san's exhaled breath. The oxygen f
 
 "...Mm..."
 
-Hot breath escaped her.\
+Hot breath escaped me.\
 　Without realising, I'd been rubbing my knees together.\
 A lewd, wet sound echoed from the core of my heated body.\
 Oh, come on, it's not my fault. It's all Shigure-san's fault, you know.\

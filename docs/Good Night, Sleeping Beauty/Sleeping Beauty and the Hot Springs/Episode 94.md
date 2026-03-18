@@ -175,7 +175,7 @@ Then my nose tingled, and something started dripping.
 
 "Eh?"
 
-"W-Shigure-san, that—sh——⁉︎"
+"S-Shigure-san, that—sh——⁉︎"
 
 Ibara was shouting something. But I couldn't make it out.\
 The world was dazzling.\
