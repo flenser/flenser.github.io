@@ -7,12 +7,12 @@ Sleeping Beauty and the Witch's Sister. Part 2
 
 The first day ended like that.\
 I wanted to talk a bit more, but Shizuku left with just a "I've got cram school".\
-The ungrateful little thing.
+Heartless creature.
 
-After getting home, I looked up Yomina Runa (I just called her by her first name for some reason).\
+After getting home, I looked up Yomi Runa (I just dropped the honorific, somehow it felt natural).\
 Well, I only searched online and on social media.\
 Even so, oh boy, the results just kept coming.\
-　Yomina Runa, she's famous. Not as much as me, mind.\
+　Yomi Runa, she's famous. Not as much as me, mind.\
 A twenty-five-year-old artist, illustrator, and book illustrator.\
 I looked at photos via image search and became certain.\
 No mistake.\
@@ -24,23 +24,23 @@ A stark white room, with just one chair placed in it.\
 On the wall behind her hung a sketch? A drawing? I couldn't tell, but it was a picture of a woman's face drawn with simple lines.\
 This must be her work.\
 Honestly, I couldn't tell if it was good or bad. Well, it was probably good, I suppose.\
-　In the photograph, Yomina Runa sat perched on the tall chair, facing the camera with a meaningful, expressionless gaze.\
+　In the photograph, Yomi Runa sat perched on the tall chair, facing the camera with a meaningful, expressionless gaze.\
 How to put it... seeing her again, she really does have an aura about her.\
 Her hair, the colour drained out, platinum; her features sharply defined.\
 The casualness of the baggy shirt and jeans actually plays into reinforcing that 'artist' impression.\
 　If you're putting your face out there, that certain look is important, I reckon. It is a popularity business, after all.\
 Anyway.\
-Yomina Runa is definitely a rather cool-looking beauty.\
+Yomi Runa is definitely a rather cool-looking beauty.\
 I never imagined she was a senior.\
-Just picturing Shigure-san and Yomina Runa living together in the past still makes my chest tingle.\
+Just picturing Shigure-san and Yomi Runa living together in the past still makes my chest tingle.\
 　It makes me tingle and feel all fuzzy inside.\
 Whenever I recall things like the pillow for peaceful sleep tucked away in the closet, or the sketches drawn on canvas, I feel a pain like digging my nails into a scab.\
 This is jealousy.\
 It's not about whether I trust Shigure-san or not; I'm jealous of that inescapable past.\
 And so, just a gut feeling.\
-　Could it be that the feelings I harbour for Yomina Runa and whatever Shizuku feels for Shigure-san are the same thing?\
+　Could it be that the feelings I harbour for Yomi Runa and whatever Shizuku feels for Shigure-san are the same thing?\
 Or maybe not.\
-I recall Shizuku's profile as she gazed up at Yomina Runa's painting.\
+I recall Shizuku's profile as she gazed up at Yomi Runa's painting.\
 ...Hmm, I don't know.
 
 "Haaah..."
@@ -49,9 +49,9 @@ I flopped onto the bed.\
 A bed all to myself.\
 It's been nights alone for about a week now.\
 Not quite as bad as before, but nights spent utterly alone still drag on.\
-Perhaps it was because I'd carelessly thought about Shigure-san and Yomina Runa.\
+Perhaps it was because I'd carelessly thought about Shigure-san and Yomi Runa.\
 　A restless heat settled deep in my heart.\
-After checking the door was closed, I slipped my hand under the sheet.\
+After checking that the door was closed, I slipped my hand under the sheet.\
 I pulled out the pyjamas I'd hidden away and pressed the fabric to my nose.\
 And then,
 
@@ -64,8 +64,9 @@ Taking a deep, full breath in,
 and slowly letting it out.\
 One more time.
 
-Suuuu~~,\
-Haaaa~~.
+Suuuu~~
+
+Haaaa~~
 
 A scent like a blend of lavender, musk, and cedarwood seeped all the way into the back of my nasal passages.\
 　Sweet and stimulating, like pop rock candy.\
@@ -78,9 +79,9 @@ But.
 It wasn't enough.\
 What could I do? It had been a week already.
 
-"…………It's too faint, you see…"
+"…………It's too faint…"
 
-After all that time, even the lingering scent would have faded.\
+After all that time, even the lingering scent was fading.\
 Hmm, I could do with some new pyjamas soon.\
 Maybe I'll sneak them while Shizuku's at cram school.\
 That would be creepy, wouldn't it? Just plain creepy.\
@@ -128,7 +129,7 @@ It was just how things were. Appearance was part of it, after all.\
 Having a good-looking face worked to your advantage in all sorts of situations.\
 But there were exceptions to everything. Like me, a total loner despite having a face that could kill.
 
-"Mmph. Believe it or not, I've got my reasons."
+"Hehe. Believe it or not, I've got my reasons."
 
 "Reasons?"
 
@@ -219,9 +220,9 @@ Right, time to press the advantage.
 Shizuku suddenly fell silent, as if startled.\
 She stuffed a mouthful of yakisoba bread into her mouth, swallowing it whole, and made a loud gulp.
 
-"What about you?"
+"You still haven't-?"
 
-"Mmmph... Never mind. Anyway, I don't have any secrets."
+"Nngh... Never mind. Anyway, I don't have any secrets."
 
 After that, Shizuku simply put her mouth to the vegetable juice carton and fell silent.\
 Tough nut to crack.\

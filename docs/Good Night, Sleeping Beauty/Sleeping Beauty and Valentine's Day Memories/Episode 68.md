@@ -93,7 +93,7 @@ Tears streamed from both mascara-coated eyes with a bubbling sound.
 "I said, stop that."
 
 　We each corrected the submission data, merged it, and finalised it. Probably took about two hours.\
-Then we dashed to the shopping mall. If we hurried, we should make it. Probably. Maybe...
+Then dash to the shopping mall. If I hurried, I should make it. Probably. Maybe...
 
 †
 
@@ -106,15 +106,15 @@ As for me, on the other hand...
 
 Ibara reached into the plastic bag and pulled out a small, flat box.
 
-"A Fort Mini."
+"Alfort Mini."
 
-She reached in again, grabbed something with a clatter like pulling a prize from a claw machine, and pulled it out.
+She reached in again, grabbed something like pulling a prize from a claw machine, and pulled it out.
 
-"Take-no-Sato."
+"Takenoko-no-Sato."
 
 Once more.
 
-"Choco bread."
+"ChocoAb bread."
 
 I cleared my throat with a "cough".
 
@@ -122,15 +122,15 @@ I cleared my throat with a "cough".
 
 "Hmm."
 
-Scary.\
-They say a beautiful person's blank expression is frightening, but even a younger high schooler is utterly terrifying. Especially since it's entirely my fault.\
-Ibara looked at me with eyes that revealed absolutely no emotion.
+Terrifying.\
+They say a beautiful person's blank expression is frightening, but a younger high schooler's is just as scary. All the more so because I'm the one in the wrong.\
+With eyes that gave absolutely nothing away, Ibara looked at me..
 
 "A box of obligatory chocolates?"
 
 "Sorry, that's not it."
 
-"Black Friday?"
+"Black Thunder?"
 
 "It really isn't."
 
@@ -166,7 +166,7 @@ Her expression broke, softening into a gentle smile.
 
 I looked at the chocolate confectionery lined up before me.\
 　Not that they aren't all delicious.\
-The luxurious Alto has the perfect harmony of crisp biscuit and chocolate, the Black Soda has an interesting crunchy texture, and the Choco bread has a fun, old-school sweet vibe. Take-no-Sato is divine.\
+The luxurious Alfort has the perfect harmony of crisp biscuit and chocolate, the Black Thunder has an interesting crunchy texture, and the ChocoAb bread has a fun, old-school sweet vibe. Takenoko-no-Sato is divine.\
 But, well, it's just...\
 As chocolates to give to a lover?\
 　Yet Ibara says it as if she genuinely doesn't care.

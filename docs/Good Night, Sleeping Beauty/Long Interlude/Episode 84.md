@@ -6,7 +6,7 @@ nav_order: 11
 The Witch's Sister's True Feelings.
 
 Shigure-san left around evening.\
-On Sunday, I couldn't meet her because of work Natsumi-san had asked me to do.\
+On Sunday, I couldn't meet her because of work Yomi-san had asked me to do.\
 The week turned over, and Monday came around again.
 
 "Morning."
@@ -75,7 +75,7 @@ Doesn't she look a bit pale?\
 Her complexion was rather white, and her lips seemed dull too.\
 The way she occasionally pressed her fingers to her temples – was that because of a headache?
 
-"Listen, Shizuku."
+"Hey, Shizuku."
 
 "What?"
 
@@ -161,7 +161,7 @@ When I asked, Shizuku answered reluctantly.
 "No."
 
 Of course not.\
-　If she had, Shigure-san would never have refused to give up the bed.
+　If she told her, Shigure-san would definitely give up the bed.
 
 "You should tell them properly."
 
@@ -201,7 +201,7 @@ But that means...
 
 "Can I ask you something?"
 
-"So what?"
+"What is it?"
 
 "Shizuku, do you perhaps really like that sister of yours?"
 
@@ -216,20 +216,20 @@ Shizuku spun around sharply.
 "...I don't get it. It's not about liking or disliking, we're sisters."
 
 She said it in a sulky voice, but she was clearly flustered.\
-　This, then.\
+  Which means…\
 Shigure-san had said things like "she might hate me," but in reality, it was rather the opposite.
 
 "Shizuku, since you moved in, what have you been doing about meals at home?"
 
 "What's this all of a sudden?"
 
-"Never mind."
+"Just tell me."
 
 "I get pastries or ready-made meals, I sort it myself."
 
 "Why?"
 
-"I'm already staying here for free, I can't burden them with meals too."
+"I'm already staying with her for free, I can't burden her with meals too."
 
 "...Are you actually communicating properly with your sister?"
 

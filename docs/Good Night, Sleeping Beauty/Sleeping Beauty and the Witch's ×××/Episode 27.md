@@ -186,5 +186,5 @@ She too had frozen like stone, her voice gone.
 
 "...Runa."
 
-Yomina Runa.\
+Yomi Runa.\
 The person I once lived with was standing there.

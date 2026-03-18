@@ -20,9 +20,9 @@ I know. Shigure-san is kind.
 
 "Precisely because we're sisters. You'd think she could treat her little sister a bit more casually."
 
-But she continued in a tone that implied, Because my sister is kind.
+“But my sister is kind, so…” she continues in that tone.
 
-"If I catch a cold, she nurses me back to health. When our parents aren't around, she cooks for us. If we watch a horror film, she sleeps with me that night. That sort of thing... you should leave that to a boyfriend."
+"If I catch a cold, she nurses me back to health. When our parents aren't around, she cooks for us. If we watch a horror film, she sleeps with me that night. That sort of thing... you should leave that to a lover."
 
 Haaah, I sighed.\
 In contrast to Shizuku, who I couldn't tell if she was angry or just bragging, I was secretly shocked.\
@@ -86,7 +86,7 @@ I typed, 'I want to see you,' and hovered my finger over the send button.\
 But I couldn't press it.\
 If I sent the message, Shigure-san would surely come running. Because she's kind.\
 But that wasn't it.\
-I loved kind Shigure-san, but what I wanted right now wasn't kindness.\
+I loved how kind Shigure-san was, but what I wanted right now wasn't kindness.\
 The last message I'd sent, 'I'm lonely,' blurred with tears.\
 　In that instant, my phone vibrated.\
 A call.\
@@ -131,7 +131,7 @@ Wanting her to prioritise me over Shizuku, her temporary live-in little sister, 
 It's not about ranking them or deciding who's more important. Family, lover, friends. Of course they're all important.\
 But.
 
-"I know, but I feel lonely. Is it because Shizuku is your sister?　Because Yomina-san is your best friend? Is that why you're kind to everyone, Shigure-san? Why can't I be special to you?"
+"I know, but I feel lonely. Is it because Shizuku is your sister?　Because Yomi-san is your best friend? Is that why you're kind to everyone, Shigure-san? Why can't I be special to you?"
 
 I know I'm talking nonsense.\
 But I can't stop.

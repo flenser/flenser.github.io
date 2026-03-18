@@ -18,7 +18,7 @@ She didn't seem particularly disappointed, probably because she wasn't being ent
 "Friends?"
 
 　Had my suspicion shown that much on my face?\
-Yomina-san gave a wry smile and propped her elbows on the table.
+Yomi-san gave a wry smile and propped her elbows on the table.
 
 "I know Ame would never cheat. Don't worry."
 
@@ -29,7 +29,7 @@ I know perfectly well that Shigure-san isn't that kind of person.
 
 "Even though you were secretly tailing her?"
 
-Yomina chuckled softly.\
+Yomi chuckled softly.\
 Ugh.\
 Ah, bloody hell, I really can't handle this person. It's awkward.\
 Honestly, I'm good at attacking, but when it comes to defence, I'm hopeless.\
@@ -49,7 +49,7 @@ The answer I'd expected came back so casually I was speechless.
 
 "Special..."
 
-I couldn't press further about what that meant because Yomina-san's face was so utterly still.\
+I couldn't press further about what that meant because Yomi-san's face was so utterly still.\
 Her eyes were like those of a devout believer gazing upon something sacred.
 
 "Ever since the day we first met, Ame has been my special one."
@@ -79,7 +79,7 @@ I know that feeling too.
 
 "That's when I met Ame. The one who gave water to my parched soul. My gentle Ame."
 
-Yomina-san looked up at the oil painting hanging on the wall.\
+Yomi-san looked up at the oil painting hanging on the wall.\
 　A landscape, perhaps? Not some incomprehensible modern art, but a painting easily understood even by an amateur like me.\
 Against a dusky, indigo-toned backdrop of evening streets, a woman stood alone, gazing up at the sky.\
 The colour palette alone conveyed it. Rain was falling on this town.\
@@ -92,7 +92,7 @@ Like a soliloquy.
 
 "I'd been painting all along for Ame. For Ame. To have Ame praise it. That was the only reason I painted."
 
-Yomina-san continued, her words coming in scattered bursts.
+Yomi-san continued, her words coming in scattered bursts.
 
 "It saved me. When facing a blank canvas, the mere fact that even one person was looking forward to its completion... how deeply that lifted my spirits..."
 
@@ -109,7 +109,7 @@ Hurriedly, I added.
 
 "No."
 
-Yomina shook her head.
+Yomi shook her head.
 
 "That's right. Back then, Ame was my only fan. I just assumed she was my fan."
 
@@ -133,7 +133,7 @@ So I'm not misunderstanding. I'm not conceited.\
 But.\
 The reason I find myself wondering, 'Really?' is surely because Shigure-san is too kind.\
 Boundless kindness resembles love, making it impossible to tell them apart.\
-How great a difference is there between what Shigure-san gave to Yomina-san and what he gave to me?\
+How great a difference is there between what Shigure-san gave to Yomi-san and what he gave to me?\
 Or perhaps, compared to what she gives to Hiname or Shizuku?\
 I grow frightened by my own imagination.\
 　What if there was no difference at all?\
@@ -146,7 +146,7 @@ The timer rang.
 
 "Do you still like Shigure-san?"
 
-At the blunt question, Yomina-san gave a faint smile.
+At the blunt question, Yomi-san gave a faint smile.
 
 "Ame will always be special to me. But I don't want to date her anymore."
 
@@ -154,5 +154,5 @@ At the blunt question, Yomina-san gave a faint smile.
 
 "I just remembered a bit of my dark past."
 
-"Because you said something about a one-night stand", she muttered under her breath.\
+"She muttered quietly, probably because I had mentioned a ‘one-night stand’ or something.\
 I didn't understand what she was talking about.

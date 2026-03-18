@@ -43,7 +43,7 @@ Oh ho ho, Mum laughed.\
 Over New Year, I was busy relaxing and taking it easy in that environment of meals served to me, plus the kotatsu and mandarins, so it's possible I tuned out Mum's talk.\
 Very possible.
 
-"But she's still in secondary school."
+"But she's still in high school."
 
 'That's why I made it a condition that she lives near you. You can rely on her if anything happens.'
 
@@ -65,7 +65,7 @@ Ah.
 
 Shizuku had always been a child who loved drawing.\
 Whenever I practised sketching at home, she'd inevitably appear beside me, scribbling something in her sketchbook with a Crayola crayon.\
-I knew she'd joined the art club at secondary school. I also knew she'd won prizes in several student competitions.\
+I knew she'd joined the art club at high school too. I also knew she'd won prizes in several student competitions.\
 But I hadn't realised she was that serious about it.\
 　Prep schools for art university entrance exams are concentrated in Tokyo.\
 If you're aiming for a prestigious art university, it certainly makes sense to learn the know-how at a prep school.\

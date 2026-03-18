@@ -78,7 +78,7 @@ I even had a fair few chances to chat with classmates in the classroom. But when
 
 "A friend?"
 
-"I don't know. Can't say. But she's a nice girl."
+"I don't know. Can't say. But she's a cute girl."
 
 "I see. It'd be nice if you got on well."
 
@@ -111,7 +111,7 @@ An impulse different from pity or concern is stirring ripples in my reason.
 Shigure-san grabbed my hand.\
 She gently pressed my palm against her cheek.
 
-"Mm. Your thorny hand... so cold, it feels nice..."
+"Mm. Ibara, your hand... so cool, it feels nice..."
 
 Shigure-san's cheek was hot, soft and squishy like freshly boiled mochi.\
 Like a baby. Even though she's an older sister.\

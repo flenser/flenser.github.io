@@ -15,7 +15,7 @@ Spinning pasta onto her fork, Shigure-san gave a wry smile.
 
 "Design..."
 
-I turned my gaze towards Yomina Runa.\
+I turned my gaze towards Yomi Runa.\
 　My eyes must have looked rather glazed over.
 
 "Why specifically ask Shigure-san? Wouldn't it be better to hire a professional?"
@@ -44,11 +44,11 @@ That's confusing!
 
 "But why specifically you, Shigure-san?"
 
-I thrust a long-handled spoon into the cherry and black bean parfait, then glared at Yomina Runa again.\
+I thrust a long-handled spoon into the cherry and black bean parfait, then glared at Yomi Runa again.\
 Still couldn't let my guard down.\
 Sorry, Shizuku, but this woman is the enemy.\
 Probably. Definitely, absolutely.\
-Even though I glared firmly thinking that, Yomina Runa said casually.
+Even though I glared firmly thinking that, Yomi Runa said casually.
 
 "It's an important solo exhibition, so I asked the designer I trust most. That's all."
 
@@ -86,7 +86,7 @@ When our eyes met, Shigure-san gave a small nod.
 "Don't lie so casually!"
 
 　I was hoping to use the commotion to get a bit cosy and gain the upper hand.\
-Stealing a glance at Yomina Runa, she was drinking her coffee with a 'sigh' on her face.\
+Stealing a glance at Yomi Runa, she was drinking her coffee with a 'sigh' on her face.\
 Her composed expression, made up with cosmetics, gave nothing away.\
 This is why adults are so frustrating.\
 She should show a little fluster at least.\
@@ -105,11 +105,11 @@ I took a deep breath and exhaled slowly.
 
 "Eh?"
 
-Yomina Runa—san blinked rapidly.
+Yomi Runa—san blinked rapidly.
 
 "Sorry for saying something rude. We've barely met."
 
-I gave a slight bow, and Yomina-san flustered.
+I gave a slight bow, and Yomi-san flustered.
 
 "N-no, it's fine. Don't worry about it. Besides, I mean, actually—"
 
@@ -123,7 +123,7 @@ I'm incredibly uneasy though. Hey. You're not trying to make a move, are you?\
 It's not that I doubt Shigure-san or anything.\
 It's just that she's beautiful and an adult, so I can't help feeling anxious.
 
-"You're an artist, aren't you, Yomina-san? From Kaimei."
+"You're an artist, aren't you, Yomi-san? From Kaimei."
 
 "Yes, that's right."
 
@@ -131,7 +131,7 @@ It's just that she's beautiful and an adult, so I can't help feeling anxious.
 
 "Here you are."
 
-Yomina-san took a cardholder from her handbag and placed one card on the desk.\
+Yomi-san took a cardholder from her handbag and placed one card on the desk.\
 It was a simple card with no title, just her name and contact details.\
 Actually, being an idol, I get these quite often (though I never give them out).\
 　I slipped the card into my skirt pocket.\
@@ -140,13 +140,13 @@ Just taking the card felt a bit awkward, so I asked something else.
 
 "When does the solo exhibition start?"
 
-Yomina-san blinked at my question.
+Yomi-san blinked at my question.
 
 "Are you interested in paintings?"
 
 "Not me, but a classmate of mine."
 
-The date Yomina-san gave me was still quite a way off.\
+The date Yomi-san gave me was still quite a way off.\
 Well, of course it would be, since she's only just starting preparations for promotion.
 
 "Would it be alright if I told her the date today? Actually, she's Shigure-san's sister."

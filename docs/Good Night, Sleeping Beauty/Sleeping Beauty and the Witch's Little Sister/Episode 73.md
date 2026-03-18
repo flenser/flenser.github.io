@@ -31,7 +31,7 @@ Even at times like this, Aki-san's cooking was delicious.
 "Not particularly. But maybe I just haven't noticed."
 
 I suppose hurting people often happens without us realising.\
-Hmm, Aki-san crossed her arms.
+"Hmm", Aki-san said, crossing her arms.
 
 "When did things start feeling awkward?"
 
@@ -74,7 +74,7 @@ Beyond the counter, Aki-san began preparing the tea.
 Right.\
 Come to think of it, she'd mentioned that since there's only one arts class, she'd inevitably be in the same year as Shizuku.
 
-" can't tell my family, but I reckon there are things I can tell friends and classmates."
+"I think there are things you can't tell your family, but you can tell your friends or classmates."
 
 That might be true, I suppose.
 
@@ -126,11 +126,11 @@ What?
 
 "To some extent..."
 
-Well, they are sisters.
+Well, we are sisters.
 
 "Then I probably like Shizuku-chan's face too. I'd end up liking it, wouldn't I?"
 
-See? See? Like she's hinting you should say something, Ibara creeps closer with a suggestive upward glance.
+Giving me a “come on, don’t you have something to say?” look, Ibara creeps closer with a suggestive upturned glance.
 
 "Um, be nice to my little sister...?"
 

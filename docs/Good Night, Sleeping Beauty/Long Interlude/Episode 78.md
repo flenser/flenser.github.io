@@ -39,7 +39,7 @@ Resting her chin on her elbow, she sighed once.
 
 "So I followed them and barged in."
 
-"Oh, right."
+"Oh, is that so..."
 
 Her reaction was lukewarm.\
 　Wasn't that a pretty impactful story just now?\
@@ -78,7 +78,7 @@ We probably won't become best friends, but we might make decent friends.
 
 "Come to think of it, you were an idol, weren't you?"
 
-"What do you mean, 'come to think of it'? Every time I see this face, it hits me, doesn't it? 'Too cute. This must be a former idol.'"
+"What do you mean, 'come to think of it'? Every time you look at this face, you should be thinking, ‘She’s way too cute, she has to be a former idol.'"
 
 "You, I can't tell if your self-esteem is high or low."
 
@@ -125,7 +125,7 @@ Shizuku exhaled sharply.
 Her smooth cheek flushed bright red.\
 Bingo. I knew it, but now I was certain.
 
-"Yomina Runa."
+"Yomi Runa."
 
 Shizuku's throat made a slight gurgling sound.\
 I took a business card from my uniform skirt and showed it to Shizuku.
@@ -161,11 +161,11 @@ After calming her down, Shizuku, her face still crimson, rattled off at breaknec
 "No."
 
 She must genuinely be serious about getting into art college.\
-But I suspect that throughout all the decisions leading up to this point, her feelings for Yomina-san played a part.\
+But I suspect that throughout all the decisions leading up to this point, her feelings for Yomi-san played a part.\
 Probably the reason for her defiance towards Shigure-san too.\
 But right now, more than that—
 
-"What kind of person is Yomina-san?"
+"What kind of person is Yomi-san?"
 
 "Huh?"
 

@@ -240,7 +240,7 @@ It just feels... dishonest, somehow.
 
 Haru dipped Shintama's roast beef in rock salt and stuffed it into her mouth with a satisfying munch.
 
-"You were like this back then with Yomina too, weren't you?"
+"You were like this back then with Yomi too, weren't you?"
 
 A sharp, grating sound rang out.\
 　Startled by the familiar name, my fork had clattered against the plate.
