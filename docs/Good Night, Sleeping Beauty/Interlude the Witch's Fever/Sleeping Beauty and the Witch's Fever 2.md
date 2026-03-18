@@ -40,7 +40,7 @@ But Shigure-san just...
 "But I need to wipe the sweat off..."
 
 ...she mumbled, dawdling.\
-Her joints must have been aching from the fever; she tried to reach the towel around her back, grimacing as she said, "Hold it..."\
+Maybe the fever’s making her joints ache. When she tries to reach the towel around to her back, she grimaced with a little “Ow, ow.”\
 　Oh, for heaven's sake!
 
 "Shigure-san, turn round!"
@@ -149,7 +149,7 @@ Shigure-san rolled over, facing the wall.
 
 "I've forgotten. Might be the cold."
 
-"Cheater."
+"That's unfair."
 
 Touching her shoulder in protest, I felt her sweat-dampened hair brush against me.\
 Her bright red earlobes were exposed.\
@@ -203,7 +203,7 @@ Her palm felt just a little warmer than usual.
 
 　Shigure-san said it almost like a mutter to herself.
 
-"But she appeared in my dream this morning. Only, Miss Mary was covered in thorns. So…"
+"But she appeared in my dream this morning. And… Miss Mary was you, Ibara. So…"
 
 "Hmm."
 

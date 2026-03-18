@@ -5,9 +5,9 @@ nav_order: 13
 ---
 Sleeping Beauty and the Kind Witch. Part 2
 
-Turning around, Shigure-san was there as if by magic.\
-Sometimes, I really do wonder if she isn't a witch after all.\
-I know she's come to fetch Shizuku.\
+Turning around, Shigure-san was there, as if by magic.\
+Sometimes I genuinely wonder if she might actually be a witch.\
+I know she's come to pick up Shizuku.\
 But.
 
 "Ibara."
@@ -127,7 +127,7 @@ My eyes burn hot, my voice trembles.\
 I knew I was talking nonsense.\
 But I couldn't stop.
 
-"Get angry. I don't want to be treated gently like everyone else. Then I won't know..."
+"Get angry at me. I don’t want you to treat me kindly like you do everyone else. If you do… I won’t be able to tell..."
 
 "Ibara."
 
@@ -137,7 +137,7 @@ Because I...
 
 "I want to be special."
 
-I wouldn't say I want to be cherished more than Shizuku, Haru, or Yomina-san, her dearest friends.\
+I wouldn't say I want to be cherished more than Shizuku, Haru, or Yomi-san, her dearest friends.\
 I just want to be special.\
 No matter how sweet and smooth it tastes, I hate off-the-shelf things.\
 I don't care if it's sour or bitter, I want something special just for me.\

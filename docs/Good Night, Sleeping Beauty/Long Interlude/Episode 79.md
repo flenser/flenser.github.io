@@ -32,7 +32,7 @@ After filling out the paperwork and receiving a brief explanation of the rules, 
 Easels and canvases lined up in rows. The smell of paint.\
 The air felt tense.\
 Unconsciously, I searched for Shizuku's figure and felt relieved to see her back, sharpening a pencil with a craft knife.\
-After a moment, Yomina-san entered the classroom.\
+After a moment, Yomi-san entered the classroom.\
 She really is teaching.
 
 "Right then, good afternoon. Today we'll be doing still life sketching—"
@@ -49,19 +49,19 @@ How to put it... I'm bored.\
 For the first ten minutes or so, I watched Shizuku sketch.\
 　Naturally, she looked so serious I couldn't very well interrupt her to chat.\
 That said, fiddling with my phone in this atmosphere felt awkward too.\
-I'd come hoping to speak directly with Yomina-san, but it didn't seem like the right vibe.
+I'd come hoping to speak directly with Yomi-san, but it didn't seem like the right vibe.
 
 "Would you like to try drawing?"
 
 Just as I was thinking of leaving, someone spoke to me.\
-Yomina-san. With a smile.
+Yomi-san. With a smile.
 
 "Since you're here. I can lend you the tools."
 
 "No, I..."
 
 I couldn't say I'd only come to talk to her.\
-Yomina-san placed an empty easel in front of me and set up the canvas.\
+Yomi-san placed an empty easel in front of me and set up the canvas.\
 She leaned close and whispered softly.
 
 "Try drawing."
@@ -69,7 +69,7 @@ She leaned close and whispered softly.
 "But—"
 
 Our eyes met at point-blank range.\
-Yomina-san had, how should I put it, such quiet eyes. Like a sea without a single ripple, utterly calm.
+Yomi-san had, how should I put it, such quiet eyes. Like a sea without a single ripple, utterly calm.
 
 "I'd like to see what kind of picture you paint. I won't line them up for critique or anything."
 
@@ -91,11 +91,11 @@ It's completely different. This is what they mean by it being presumptuous to ev
 Well, obviously.\
 This is an art college prep school, a place where kids aiming to make it in that world gather.\
 The world of serious competition is still a bit dazzling, painful on the eyes.\
-As promised, Yomina-san didn't critique my drawing.
+As promised, Yomi-san didn't critique my drawing.
 
 "Shinomori-san"
 
-After the critique session ended and participants began trickling out, Yomina-san called me over.
+After the critique session ended and participants began trickling out, Yomi-san called me over.
 
 "What is it?"
 
@@ -136,7 +136,7 @@ Could this person seriously be about to give me proper art advice?
 The hard stool was uncomfortable, making me restless.\
 This person... somehow makes me feel uneasy.\
 Facing her, I felt as if she could see right into my soul.\
-Then, Yomina-san's lips suddenly curved into a smile.
+Then, Yomi-san's lips suddenly curved into a smile.
 
 "You don't need to be so wary."
 

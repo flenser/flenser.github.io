@@ -72,7 +72,7 @@ It sounded rather suggestive.
 
 "What do you mean?"
 
-"You see, Yomina-san is actually quite a slovenly person in private. Wandering around in her underwear, sleeping on the sofa..."
+"You see, Yomi-san is actually quite a slovenly person in private. Wandering around in her underwear, sleeping on the sofa..."
 
 "Ah, well..."
 

@@ -112,7 +112,7 @@ I quietly pushed aside the pyjamas hidden under the futon. You've served your pu
 "Right then, what shall we do? Lie down for now?"
 
 Thud. Shigure-san lay down on the bed.\
-The situation of Shigure-san lying on my bed made my heart flutter. Ah, that's a euphemism.\
+The sight of Shigure-san lying on my bed made my heart flutter. Ah, that's a euphemism.\
 But Shigure-san was in her own clothes.
 
 "Won't your clothes get creased?"

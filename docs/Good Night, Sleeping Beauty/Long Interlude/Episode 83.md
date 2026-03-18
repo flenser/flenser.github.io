@@ -139,7 +139,7 @@ We sat side by side on the bedside, staring blankly.
 
 "Then I suppose it was good I came."
 
-"...Still haven't found Shizuku's house?"
+"...Still no luck finding a place for Shizuku?"
 
 "Well, it is that time of year."
 
@@ -164,13 +164,13 @@ I know it can't be helped, but I can't deny feeling disappointed.\
 
 "Really?"
 
-"Yeah. Probably because she likes Yomina-san."
+"Yeah. Probably because she likes Yomi-san."
 
 Shigure blinked.
 
 "Shizuku likes Runa...?"
 
-"At our school, there's a picture of Yomina-san displayed in the corridor. She saw it and said it was her 'idol'."
+"At our school, there's a picture of Yomi-san displayed in the corridor. She saw it and said it was her 'idol'."
 
 "...That..."
 
@@ -202,9 +202,9 @@ Holding up a finger, Shigure-san continued.
 
 "I see."
 
-So that's what Yomina-san meant by "it didn't work out."\
+So that's what Yomi-san meant by "it didn't work out."\
 It is strange, really.\
-If Yomina-san was the cause, Shizuku-san should have been rebelling much earlier.
+If Yomi-san was the cause, Shizuku-san should have been rebelling much earlier.
 
 "Hmm..."
 

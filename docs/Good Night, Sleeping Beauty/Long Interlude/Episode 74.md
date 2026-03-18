@@ -218,17 +218,18 @@ Or perhaps the artist became famous?\
 I think the teacher mentioned something, but I can't recall at all. Nor do I remember the artist's name.\
 I examine the metal nameplate affixed beneath the painting.\
 There, a name was engraved.\
-　A rather unusual surname. How does one read this? Yomi... no, that's not right.\
-Yorumi Yomina.
+  "夜見瑠奈"\
+　A rather unusual surname - "夜見". How does one read this? Yomi... no, that's not right.\
+Yoru (夜) mi (見), Yorumi (夜見)?
 
-"Yomina Runa,"
+"Yomi (夜見) Runa (瑠奈)."
 
 Shizuku murmured.\
 It was a name I recognised.\
 Runa-san.\
-A classmate of Shigure-san's, a famous artist, and my former flatmate during art college.\
+A classmate of Shigure-san's, a famous artist, and her former flatmate during art college.\
 　Could it be that very 'Runa'?\
-So she was my senior? And she painted this?\
+So she was my senpai all along? And she painted this?\
 Such a coincidence.\
 Not impossible, but unlikely.
 

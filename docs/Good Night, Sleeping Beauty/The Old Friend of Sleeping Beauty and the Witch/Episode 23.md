@@ -8,7 +8,7 @@ Episode Twenty-Three
 During my art college days, I had three particularly close friends.\
 The first was Haru Hinata.\
 Then there was Minami Kumori Hibari, another member of the Weather Trio.\
-And the last was Runa Yomina.
+And the last was Runa Yomi.
 
 　When I was with Haru or Hibari, we were usually all three together, but somehow I often found myself alone with Runa.\
 Runa had this otherworldly air about her. While overflowing with talent as an artist, her everyday life skills were utterly disastrous.\
@@ -44,7 +44,7 @@ Then, after various things happened, she vanished from my life.\
 Now, it seems she's thriving as an illustrator back in her hometown of Hokkaido.\
 Just recently, she illustrated the cover for a novel nominated for the Naoki Prize. You could call it a splendid career.
 
-"Come to think of it, Yomina's apparently coming back to Tokyo."
+"Come to think of it, Yomi's apparently coming back to Tokyo."
 
 Haru muttered suddenly.
 

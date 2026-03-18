@@ -10,7 +10,7 @@ That night.
 "Haa..."
 
 Lying on my bed at home, I stared up at the ceiling.\
-Yomina-san's words came back to me.
+Yomi-san's words came back to me.
 
 ──I'd been taking advantage of Ame's kindness and misunderstood things.
 
@@ -169,6 +169,6 @@ Seeing me so utterly spent, Shigure-san smiled.
 
 Absolutely.\
 Today, I'll stick close to her as much as possible.\
-Shigure-san is Shizuku's big sister, Yomina-san's friend, and Hiname's benefactor.\
+Shigure-san is Shizuku's big sister, Yomi-san's friend, and Hiname's benefactor.\
 Even if she's just kind to everyone.\
 Even so, right now, she's my Shigure-san alone.

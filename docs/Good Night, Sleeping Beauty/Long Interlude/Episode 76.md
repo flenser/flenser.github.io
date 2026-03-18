@@ -29,7 +29,7 @@ My feet, about to start running, stopped dead.\
 　Where Shigure-san's gaze fell, there stood a blonde woman.\
 A tall woman, wearing a cropped top with jeans.\
 Her profile looked familiar.\
-Could that possibly be, Yomina Runa?\
+Could that possibly be, Yomi Runa?\
 Suddenly, Shigure-san turned her head.\
 I instinctively hid behind the vending machine.
 
@@ -63,7 +63,7 @@ Carrying my unease, I follow the pair.\
 Before, Shigure-san said she and that woman were nothing.\
 　Just room-mates, she insisted.\
 But honestly, I'm a little suspicious.\
-She might be a friend to Shigure-san, but that doesn't mean Yomina Runa thinks the same way.\
+She might be a friend to Shigure-san, but that doesn't mean Yomi Runa thinks the same way.\
 They were in the bath together, after all.\
 Before me. Before me.\
 I worried they might go to an izakaya or bar, but they headed for a family restaurant instead.\
@@ -100,7 +100,7 @@ I trembled silently.\
 This is it, isn't it?\
 The so-called getting back together, no, that's not quite right. They never really broke up in the first place.\
 　I swallowed hard, sharpening my senses so I wouldn't miss a single word.\
-With hesitation in her tone, Yomina Runa said.
+With hesitation in her tone, Yomi Runa said.
 
 "—Is it... a bother, after all?"
 
@@ -131,15 +131,15 @@ I pointed my finger at the two adults staring blankly.
 
 "Huh?" "......"
 
-At my declaration, Shigure-san looked as though he'd been hit by a bolt from the blue, while Yomina Runa quickly looked away.\
-　Yomina Runa. That's the reaction you give when you've got something to feel guilty about.\
+At my declaration, Shigure-san looked as though he'd been hit by a bolt from the blue, while Yomi Runa quickly looked away.\
+　Yomi Runa. That's the reaction you give when you've got something to feel guilty about.\
 I glared at Shigure-san.
 
 "Explain what this is all about!"
 
 "...Er..."
 
-Shigure-san exchanged glances with Yomina Runa.\
+Shigure-san exchanged glances with Yomi Runa.\
 Then she said.
 
 "Ibara, you're probably misunderstanding."
