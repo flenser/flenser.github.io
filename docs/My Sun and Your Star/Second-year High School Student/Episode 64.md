@@ -5,7 +5,7 @@ nav_order: 64
 ---
 Episode 64: 17 Years Old (5)
 
-‘I’ve received far too much from Endo today.’
+‘I’ve received far too much from Endo-san today.’
 
 To be honest, I feel a bit guilty for taking up so much of Endo’s time and receiving so many gifts from her.
 
