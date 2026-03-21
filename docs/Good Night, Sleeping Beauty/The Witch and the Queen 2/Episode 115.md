@@ -5,9 +5,9 @@ nav_order: 3
 ---
 Episode One Hundred and Fifteen
 
-It was at that moment.
-A sound came from beyond the door, from the main entrance on the first floor.
-I felt Ibaras body tense up in my arms.
+It was at that moment.\
+A sound came from beyond the door, from the main entrance on the first floor.\
+I felt Ibaras body tense up in my arms.\
 If I hadn't misheard, that was the sound of a door opening. Footsteps could be heard too, coming closer.
 
 "Looks like they're back."
@@ -18,9 +18,9 @@ Ibaras muttered, slightly frightened.
 
 "Perhaps they finished their business early."
 
-Soon after, voices arguing reached us. One was Kikuno-san. The other, likely her mother.
-The voices fell silent.
-Someone ascended the stairs. Ibara gripped my hand tightly. Her expression was rigid and tense.
+Soon after, voices arguing reached us. One was Kikuno-san. The other, likely her mother.\
+The voices fell silent.\
+Someone ascended the stairs. Ibara gripped my hand tightly. Her expression was rigid and tense.\
 The door opened.
 
 "──You."
@@ -55,8 +55,8 @@ Ibara cried out, almost like a scream.
 
 "Of course I know that! He's been ill for ages, hasn't he⁉︎"
 
-　Natori's eyes flickered ever so slightly.
-Ibara was clever and perceptive. She wasn't someone you could easily keep secrets from.
+　Natori's eyes flickered ever so slightly.\
+Ibara was clever and perceptive. She wasn't someone you could easily keep secrets from.\
 Had she not known that? They'd lived together all this time.
 
 "...Since when?"
@@ -81,7 +81,7 @@ Ibara declared it, her knees trembling.
 
 "—Don't speak so presumptuously."
 
-Natori-san stepped forward with one foot.
+Natori-san stepped forward with one foot.\
 This is as far as it goes, I thought. I raised my right hand, shielding Ibara behind me.
 
 "Wait."
@@ -90,7 +90,7 @@ This is as far as it goes, I thought. I raised my right hand, shielding Ibara be
 
 "I understand. But if that's the case, then you're an outsider too, aren't you?"
 
-A flicker. Natori-san's eyebrow twitched. It was clearly an expression of displeasure.
+A flicker. Natori-san's eyebrow twitched. It was clearly an expression of displeasure.\
 This was surely my only chance. I steadied my breathing, consciously trying to keep my voice steady.
 
 "Let me see her. Ibara's mother. She's here, isn't she?"
@@ -107,16 +107,16 @@ This was surely my only chance. I steadied my breathing, consciously trying to k
 
 "Natori."
 
-The air seemed to freeze.
-Unnoticed, a woman in kimono had appeared at the room's entrance.
-　She was slender, with an intelligent, sharp-featured face.
+The air seemed to freeze.\
+Unnoticed, a woman in kimono had appeared at the room's entrance.\
+　She was slender, with an intelligent, sharp-featured face.\
 She resembled Kikuno-san more than Ibara.
 
 "I heard the story from my sister downstairs."
 
 "Nobara-san—"
 
-Natori-san tried to say something, but Nobara-san waved a hand. A gesture that said, enough.
+Natori-san tried to say something, but Nobara-san waved a hand. A gesture that said, enough.\
 Nobara-san spoke without looking at me.
 
 "Ibara."
@@ -125,24 +125,24 @@ Nobara-san spoke without looking at me.
 
 "Are you running away again?"
 
-I turned around involuntarily.
+I turned around involuntarily.\
 Ibara stood frozen, her face ashen.
 
 "──That's all you ever do, isn't it?"
 
-Smack. A dry sound came from my palm.
-For the first time in my life, I'd raised my hand to another person.
-I clenched my stinging, throbbing palm.
+Smack. A dry sound came from my palm.\
+For the first time in my life, I'd raised my hand to another person.\
+I clenched my stinging, throbbing palm.\
 　I was surprised at myself for feeling not even a shred of regret, despite resorting to the most despicable means.
 
 "You..."
 
-Out of the corner of my eye, Natori-san was speechless.
+Out of the corner of my eye, Natori-san was speechless.\
 I lowered my clenched hand and bowed my head.
 
 "I'm sorry. I apologise for resorting to violence."
 
-I raised my face and looked straight ahead.
+I raised my face and looked straight ahead.\
 Our eyes finally met.
 
 "But this time is different. Absolutely different."
@@ -167,15 +167,15 @@ For the first time, a flicker of unease crossed Nobara-san's face.
 
 "A job can be quit. But you can't escape being a parent, you shouldn't be allowed to escape it."
 
-Ibara's small hand, still clutching my sleeve, trembled.
+Ibara's small hand, still clutching my sleeve, trembled.\
 　With a face twisted as if she'd swallowed a bitter pill, Nobara glared at me.
 
 "...You have no children yourself, yet you speak as if you know."
 
 "That's true."
 
-I probably won't become a parent myself in the future either. I can't truly understand this person's suffering either.
-Even so, I want to be on Ibara's side.
+I probably won't become a parent myself in the future either. I can't truly understand this person's suffering either.\
+Even so, I want to be on Ibara's side.\
 But not just that. If it were possible—
 
 "When I came to this house, I passed through the back garden. From the main gate, around the hedge."
@@ -188,16 +188,16 @@ But not just that. If it were possible—
 
 "Passiflora, lemon balm, lavender, chamomile. The passiflora and chamomile were blooming beautifully. Though some had been picked."
 
-Passiflora is also known as passionflower. It belongs to the same family as the tropical fruit, passionfruit.
-Like chamomile, it is also a type of herb.
-Its effects include calming the mind, easing anxiety and tension. And—
+Passiflora is also known as passionflower. It belongs to the same family as the tropical fruit, passionfruit.\
+Like chamomile, it is also a type of herb.\
+Its effects include calming the mind, easing anxiety and tension. And—\
 Promoting restful sleep.
 
 "Since when?"
 
-Nobara-san's brow furrowed.
-At first glance, it was obscured by her meticulous makeup.
-But facing her this close, it was unmistakable.
+Nobara-san's brow furrowed.\
+At first glance, it was obscured by her meticulous makeup.\
+But facing her this close, it was unmistakable.\
 Deep shadows lingered beneath her eyes.
 
 "Since when have you not been sleeping properly?"
@@ -226,12 +226,12 @@ I took a deep breath and exhaled.
 
 "Ibara's... no. The Miyazono family ends with your generation."
 
-I was saying something terribly cruel right now.
+I was saying something terribly cruel right now.\
 Knowing it, I pressed on relentlessly.
 
 "Because, well, it's obvious. Once there's no one left to inherit the shares, that's the end of it. Even if Ibara were to take over, there's no future beyond that."
 
-That is what it means for me and Ibara to live together.
+That is what it means for me and Ibara to live together.\
 The Miyazono family bloodline ends here. The 'household' this woman fought so desperately to protect will vanish entirely, one way or another.
 
 "Why not just sell the shares?"
@@ -246,7 +246,7 @@ The Miyazono family bloodline ends here. The 'household' this woman fought so de
 
 "...Such reckless behaviour cannot be permitted. I must fulfil my husband's duties in his stead."
 
-　It sounded like rusted iron, a voice that had endured wind and snow for too long, creaking and groaning.
+　It sounded like rusted iron, a voice that had endured wind and snow for too long, creaking and groaning.\
 A voice taut and thin, stretched to breaking point.
 
 "I don't see it that way. But if that's how you feel, then please... place the blame on me."
@@ -257,39 +257,39 @@ Ignoring the puzzled look, I continued.
 
 "It's not your fault. I'm the one at fault. It's because the wicked witch came along and spirited the princess away."
 
-This person too, in their own way, must have suffered.
-That's not to say we should be friends.
-I cannot forgive her for treating Ibara like a tool. I have no intention of forgiving her.
-Even so.
+This person too, in their own way, must have suffered.\
+That's not to say we should be friends.\
+I cannot forgive her for treating Ibara like a tool. I have no intention of forgiving her.\
+Even so.\
 ──Even so.
 
 "It's all my fault, so it's fine."
 
-The slightly sunken, double-lidded eyes blinked.
+The slightly sunken, double-lidded eyes blinked.\
 　That expression, after all, resembled Ibara.
 
 "So, shall we rest now?"
 
 "──…Hah?"
 
-For a moment, I thought I'd misheard.
-But Nobara-san was definitely smiling.
+For a moment, I thought I'd misheard.\
+But Nobara-san was definitely smiling.\
 It was a laugh that seemed to overflow from the rim of a vessel, unable to be contained.
 
 "Nobara-san…"
 
-Natori-san approached Nobara-san, reaching out a hand as if to support her.
-　Nobara-san, her expression serious once more, turned her gaze towards her daughter.
+Natori-san approached Nobara-san, reaching out a hand as if to support her.\
+　Nobara-san, her expression serious once more, turned her gaze towards her daughter.\
 She seemed to want to say something, her lips trembling hesitantly, and then, finally, she murmured just one phrase in a weary voice.
 
 "…………It's fine. Do as you wish."
 
-Ibara clutched my sleeve tightly.
-　Nobara-san exchanged a glance with Natori-san.
-After a whispered exchange in low voices, I saw Natori-san give a small nod.
+Ibara clutched my sleeve tightly.\
+　Nobara-san exchanged a glance with Natori-san.\
+After a whispered exchange in low voices, I saw Natori-san give a small nod.\
 Turning on her heel, Nobara-san said without looking back.
 
 "...At least take care of yourself."
 
-The door closed.
+The door closed.\
 Just before it shut, I sensed Ibara nodding behind me.
