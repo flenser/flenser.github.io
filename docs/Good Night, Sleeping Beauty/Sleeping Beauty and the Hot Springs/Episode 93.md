@@ -118,7 +118,7 @@ As I stared blankly, Ibara grinned.
 "S-sorry."
 
 I hastily turned my whole body away.\
-Ibara was right. What good did it do me to be mesmerised?
+Ibara was right. What am I doing, getting lost staring at her?
 
 "You can look all you like."
 
@@ -126,11 +126,11 @@ Ibara was right. What good did it do me to be mesmerised?
 
 "Right then, I'll wash your back, shall I?"
 
-"I said it's fine, didn't I?"
+"I told you, you don't have to."
 
-"Eeek!"
+"Gotcha."
 
-"Yikes!"
+"Hyah!"
 
 A cold substance touched my back with a squelch. A slippery sensation. Body soap.\
 Ibara's palm slid down between my shoulder blades.
@@ -175,13 +175,13 @@ I shouldn't, but the heat melts my reason away.
 
 Obeying the voice, I received a kiss that felt like biting.\
 A slick tongue knocked against my front teeth.\
-Opening a gap, it entered immediately.\
-Not a shred of restraint. Like a dog pouncing on its prey.\
+Opening a gap, she entered immediately.\
+Not a shred of restraint. Like a dog pouncing on its food.\
 But it felt so good, I couldn't resist.\
 　Our tongues rubbed together, sending a tingling pleasure down my spine.\
 My vision blurred, making me dizzy. Was it oxygen deprivation? Or perhaps the cumulative effect of days without proper sleep and travel fatigue.\
 But it still wasn't enough.\
-We pulled apart, drew close again, and kissed repeatedly.\
+We pulled apart, drew close again, layering kiss upon kiss.\
 It was strange. Even though we were touching so deeply, I couldn't bear the craving for more.\
 　Somehow, Ibara's hand had left my thigh.\
 It traced my side, stroked my solar plexus, touched the base of my swell.\

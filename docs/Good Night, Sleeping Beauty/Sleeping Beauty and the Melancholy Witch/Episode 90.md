@@ -66,7 +66,7 @@ Seeing me ponder, Ibara's eyebrows drooped dejectedly.
 "Hot springs..."
 
 I wanted to soothe the fatigue built up from the end-of-term rush.\
-Ibara blinked at this choice, which laid bare the desires of a weary salaryman.\
+Ibara blinked at this choice, which laid bare the desires of a weary working adult.\
 Hot springs probably don't appeal to a current high school girl, after all.\
 I thought that for a moment.
 
@@ -144,9 +144,9 @@ But.\
 What if, on this trip, she pressed me?\
 　If she said she wanted to do that sort of thing.\
 Then, I...\
-I realised my lips had touched hers without me noticing, and my face flushed.
+I realised that I had touched my lips without me noticing, and my face flushed.
 
-"...Oh, for heaven's sake, am I in secondary school or something..."\
+"...Oh, for heaven's sake, am I in high school or something..."\
 I muttered, gazing up at the dusky sky through the car window.\
 Without reaching any conclusion whatsoever, night fell once more.\
 I had a feeling I wouldn't sleep tonight either.

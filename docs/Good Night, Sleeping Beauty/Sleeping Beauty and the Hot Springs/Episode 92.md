@@ -193,8 +193,8 @@ Finally, with a wet sound, her lips pulled away.
 Ibara's left hand stroked the front of her own yukata.\
 The swell was obvious even through the fabric.\
 A place distinctly different from hair or cheek, an irreversible place.\
-Somehow, her throat had gone bone dry.\
-If it came down to whether she wanted to touch it or not...
+Somehow, my throat had gone bone dry.\
+If it came down to whether I wanted to touch it or not...
 
 "I might want to."
 

@@ -62,10 +62,10 @@ I felt like some poorly made instrument.\
 　I couldn't tell if Ibara was skilled. Probably not.\
 But her touch was gentle, and above all, earnest.\
 More than anything, it was Ibara touching me now.\
-My adorable, endearing princess.\
+My princess, adorable and heartbreaking in the most tender way.\
 My body felt hot. The nerves running beneath my skin felt like they might burn through.\
 It feels good... I swallowed the words just before they escaped.\
-　—No more. Not any further.
+　—No more. Not any further than this.
 
 "I-Ibara..."
 
@@ -77,7 +77,7 @@ It feels good... I swallowed the words just before they escaped.\
 
 "So, mm."
 
-Cunning.\
+How cunning.\
 Before I could utter my protest, my lips were silenced.\
 Her tongue moved slowly and deliberately, while her hands never stopped.\
 The ticklish sensation I'd felt had long since transformed into something else entirely.\
@@ -93,7 +93,7 @@ I meant to say, let's stop.\
 But Ibara, misunderstanding something, gently lowered her hand.\
 Stroking my solar plexus, then below my navel.\
 Realising her intended destination, my whole body froze.\
-Idiot. No. There, I mean, now.
+Idiot. No. There, I mean, now...
 
 "That spot... is enough. Stop."
 

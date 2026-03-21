@@ -225,11 +225,11 @@ She seemed displeased, glaring at me with a sulky expression.
 
 "...You can afford to be so smug now, but not for long."
 
-"Eh? But—yikes!"
+"Eh? But——kyah!"
 
 She pulled up my top, and a rather adorable squeal escaped me, one that even I found a bit embarrassing.
 
-"Wha—"
+"Oh……"
 
 Ibara stared intently at my chest.
 
