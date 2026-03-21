@@ -25,9 +25,9 @@ Instead of an answer, I heard a small sniffle.\
 Her face buried in my shoulder, she hugged me tight. Painfully tight.\
 The face pressed against me moved from side to side.
 
-"I wasn't."
+"I didn't."
 
-"You weren't?"
+"You didn't?"
 
 "Because it's only been a week. I was the one who walked out on you. I can't say something like that…… that I was lonely……"
 
@@ -168,7 +168,7 @@ Ibara's pale throat trembled as she continued.
 
 "You can't just quit your current company easily, can you?"
 
-"Our place is going to be half independent. That was always my plan. We've got projects on the go, so it'll be summer at the earliest."
+"About half of us are going independent. I was planning to do the same. We've got projects on the go, so it'll be summer at the earliest."
 
 "Will you actually get work?"
 
