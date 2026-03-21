@@ -7,12 +7,12 @@ Episode One Hundred and Fifteen
 
 It was at that moment.\
 A sound came from beyond the door, from the main entrance on the first floor.\
-I felt Ibaras body tense up in my arms.\
+I felt Ibara's body tense up in my arms.\
 If I hadn't misheard, that was the sound of a door opening. Footsteps could be heard too, coming closer.
 
 "Looks like they're back."
 
-Ibaras muttered, slightly frightened.
+Ibara muttered, slightly frightened.
 
 "They said they'd be back in the evening."
 
