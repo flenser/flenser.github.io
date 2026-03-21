@@ -59,7 +59,7 @@ Like a puppy finding its owner, she came trotting over.\
 My eyes met Aki-san's. Through her glasses, her meaning was clear.\
 Later.
 
-"Mmph, this is my girlfriend, Shigure-san."
+"Hehe, this is my girlfriend, Shigure-san."
 
 "You don't need to announce it every time."
 

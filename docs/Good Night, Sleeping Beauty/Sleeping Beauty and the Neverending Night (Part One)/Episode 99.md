@@ -25,7 +25,7 @@ Ibara held the cup ice cream up beside her face. She was adorable in every way.
 
 "Which thing?"
 
-"What is better than chocolate mint...?"
+"Choco mint, or~?"
 
 "...Rum raisin?"
 

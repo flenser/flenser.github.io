@@ -62,7 +62,7 @@ During Valentine season, they're sometimes promoted as gifts for men who aren't 
 
 "But old wives' tales would be plagiarism, wouldn't it?"
 
-"Right. So, we thought it'd be nice to collect some lovely romantic anecdotes inspired by the product name, Zex, and print them out."
+"Right. So, since it’s tied to the product name, we thought it’d be nice to gather some nice romantic anecdotes from Zex and print them out."
 
 I see. If it fits within the character limit for SNS Zex posts, it should also fit neatly on the back of the individual wrappers.
 
@@ -143,7 +143,7 @@ Something commonplace, like you could find it anywhere if you threw a stone, but
 
 "Like how we hug every night?"
 
-"That's why I can't tell you!"
+"That’s exactly why I can't say it!"
 
 How am I supposed to explain that to Momono-chan?
 
@@ -212,7 +212,7 @@ She said this, though without any real insistence, and moved away.\
 Despite having been refused, she seemed surprisingly nonchalant about it.\
 It was contradictory.
 
-They lay down together on the bed.\
+We lay down together on the bed.\
 　The floral scent drifting from the aromatherapy diffuser by the pillow eased the tension in both body and mind.\
 It seemed to be working properly, for Ibara was snoring softly before midnight had even struck.\
 Sleepy snores echoed.\
