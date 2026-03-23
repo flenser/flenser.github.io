@@ -1,6 +1,6 @@
 ---
 parent: "Sleeping Beauty Wants to Soothe"
-title: "One Hundred and Twenty-Five"
+title: "Episode One Hundred and Twenty-Five"
 nav_order: 6
 ---
 Episode One Hundred and Twenty-Five
