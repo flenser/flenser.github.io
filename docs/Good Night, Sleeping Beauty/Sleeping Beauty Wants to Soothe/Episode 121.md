@@ -27,8 +27,8 @@ Ibara placed her index finger on her chin and gazed towards the kitchen.
 
 "Well, first off, probably a meal, I suppose."
 
-Her innocent words made me breathe a sigh of relief.
-Good. Seems to be heading in a healthier direction than I feared.
+Her innocent words made me breathe a sigh of relief.\
+Good. Seems to be heading in a healthier direction than I feared.\
 ...Than I feared? What on earth was I imagining?
 
 "I'll make lunch, then."
@@ -43,7 +43,7 @@ Good. Seems to be heading in a healthier direction than I feared.
 
 "Oh... right."
 
-Back when we first met, her 'speciality dish' was toast, but she's grown during her time with me.
+Back when we first met, her 'speciality dish' was toast, but she's grown during her time with me.\
 Actually, we sometimes cook together now. I suppose I could leave it to her. Probably.
 
 "Any other chores you'd like me to do?"
@@ -62,8 +62,8 @@ I'd only just cleaned the other day, and I'd done the laundry first thing this m
 
 "He might be able to, but—"
 
-Is that really the issue?
-Ibara snorted, thinking I just didn't get it.
+Is that really the issue?\
+Ibara snorted, thinking I just didn't get it.\
 I really didn't get it. What exactly did Ibara want?
 
 "Wait here a moment."
@@ -82,7 +82,7 @@ She suddenly spread her arms wide, giving me a look that seemed to say something
 
 "I want to hold you, Shigure-san."
 
-I see.
+I see.\
 ...I see?
 
 "But isn't that the same thing?"
@@ -91,20 +91,20 @@ I see.
 
 "Right, right."
 
-Hmm.
-Well, basically, Ibara wants a hug. Can't be helped.
-Not that I mind, if that's the case.
-I sat down on the bed, ready to hug her sideways, and it was at that very moment.
-Ibara's hands wrapped around the back of my head.
-My head was pulled forward with a tug and landed on something soft.
-The feel of towel fabric and the usual citrusy lemon scent.
-　My whole face was soft and fluffy, smelling lovely.
-This is...
+Hmm.\
+Well, basically, Ibara wants a hug. Can't be helped.\
+Not that I mind, if that's the case.\
+I sat down on the bed, ready to hug her sideways, and it was at that very moment.\
+Ibara's hands wrapped around the back of my head.\
+My head was pulled forward with a tug and landed on something soft.\
+The feel of towel fabric and the usual citrusy lemon scent.\
+　My whole face was soft and fluffy, smelling lovely.\
+This is...\
 Ibara's...
 
 "There you go, no struggling, please."
 
-Just as I tried to pull away, my head was held down.
+Just as I tried to pull away, my head was held down.\
 Ibara's frame is delicate, but she's got muscles honed from dancing. She's far stronger than me, who's never had a regular exercise routine.
 
 "No, I said no!"
@@ -117,8 +117,8 @@ True, normally it tended to be me holding Ibara close to my chest.
 
 "Mmmph."
 
-Today, the roles were reversed.
-Instead of hugging her, I was being hugged.
+Today, the roles were reversed.\
+Instead of hugging her, I was being hugged.\
 So tightly I could almost hear her heartbeat.
 
 "Mmph. There, there. Go on, you can be properly clingy."
@@ -133,11 +133,11 @@ So tightly I could almost hear her heartbeat.
 
 "No, no, no."
 
-What on earth does 'for now' mean?
-Ibara flopped onto the bed with a thud.
-Dragged along, I rolled over too.
-Her breath tickled my ear. My face was still buried in the curve of her chest.
-I knew it, but she was big. And she wasn't wearing a bra again.
+What on earth does 'for now' mean?\
+Ibara flopped onto the bed with a thud.\
+Dragged along, I rolled over too.\
+Her breath tickled my ear. My face was still buried in the curve of her chest.\
+I knew it, but she was big. And she wasn't wearing a bra again.\
 Her slender fingertips ran through my hair.
 
 "How about it?"
@@ -150,8 +150,8 @@ Her slender fingertips ran through my hair.
 
 "So you can't really relax around someone younger?"
 
-I gasped.
-Ibara's voice was damp with emotion.
+I gasped.\
+Ibara's voice was damp with emotion.\
 A whiny, nasal tone reached me from somewhere above my head.
 
 "So I guess I'm no use to you, Shigure-san. Even though we're lovers. Because I'm childish, I can't even comfort you when you're tired... sniff."
@@ -182,34 +182,34 @@ I panicked.
 
 "Ehh... Alright then, just a little..."
 
-Why was the one being touched the one begging?
-Still confused, and thinking "That 'just a little' was definitely fake crying," I touched the chest of the girl lying down.
+Why was the one being touched the one begging?\
+Still confused, and thinking "That 'just a little' was definitely fake crying," I touched the chest of the girl lying down.\
 Squishy.
 
 "Right, that's enough."
 
 "More!"
 
-Incidentally, "That's enough" was my line, and "More!" was Ibara's.
+Incidentally, "That's enough" was my line, and "More!" was Ibara's.\
 Our positions and lines had reversed.
 
 "Shigure-san. Don't you want to touch my body?"
 
-Ugh, I stuttered.
-I won't lie. I'll tell her everything honestly. That resolve flashed through my mind.
+Ugh, I stuttered.\
+I won't lie. I'll tell her everything honestly. That resolve flashed through my mind.\
 　If it was a question of whether I wanted to touch her or not, the answer was obvious.
 
 "Well... I do want to touch you, but—"
 
 "Aha."
 
-Ibara broke into a smile.
+Ibara broke into a smile.\
 Still holding my head against her chest, she whispered in my ear.
 
 "Then you can touch me however you like. Today, I'm your body pillow, Shigure-san."
 
-There was a pop, like something snapped.
-　Oh, for heaven's sake. Really, this girl.
+There was a pop, like something snapped.\
+　Oh, for heaven's sake. Really, this girl.\
 I forcefully extricated myself from Ibara's bosom and grabbed her shoulders.
 
 "Huh?"
@@ -218,7 +218,7 @@ Holding down the bewildered Ibara, I got down on all fours.
 
 "S-Shigure-san?"
 
-Looking down at her, I met her eyes.
+Looking down at her, I met her eyes.\
 Ibara's pupils trembled ever so slightly, as if frightened.
 
 "...Did I make you angry?"

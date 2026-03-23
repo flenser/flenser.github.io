@@ -5,10 +5,10 @@ nav_order: 6
 ---
 Episode One Hundred and Twenty-Five
 
-When was the last time I had my ears cleaned?
-As a child, I used to have them cleaned at the ENT clinic.
-I remember the cool, funnel-like metal tool and tweezers being used to swiftly remove the wax.
-After starting primary school, I kept them clean myself, glancing sideways at my mother who was always busy with Shizuku.
+When was the last time I had my ears cleaned?\
+As a child, I used to have them cleaned at the ENT clinic.\
+I remember the cool, funnel-like metal tool and tweezers being used to swiftly remove the wax.\
+After starting primary school, I kept them clean myself, glancing sideways at my mother who was always busy with Shizuku.\
 　So having someone clean my ears while resting my head on their lap might be a first.
 
 "Gently now, gently."
@@ -17,7 +17,7 @@ After starting primary school, I kept them clean myself, glancing sideways at my
 
 "But, yikes!"
 
-A dry scraping sound echoed.
+A dry scraping sound echoed.\
 A ticklish sensation made the inside of my thigh tingle.
 
 "Shigure-san, don't move."
@@ -26,7 +26,7 @@ A ticklish sensation made the inside of my thigh tingle.
 
 "Hmm?"
 
-Ibara's eyes gleamed ominously at my slip of the tongue.
+Ibara's eyes gleamed ominously at my slip of the tongue.\
 Ah, I have a bad feeling about this.
 
 "Scratch scratch scratch."
@@ -37,8 +37,8 @@ Ah, I have a bad feeling about this.
 
 "It's... not exactly nice, more like... tingly?"
 
-Each time the barbed tip scraped up my inner ear, I was hit by an indescribable sensation.
-It was a little scary, but still.
+Each time the barbed tip scraped up my inner ear, I was hit by an indescribable sensation.\
+It was a little scary, but still.\
 This... felt good.
 
 "Ah, up there, stop..."
@@ -47,9 +47,9 @@ This... felt good.
 
 "Eh?"
 
-It wasn't erotic, though.
-It was just that... I let out a sound without meaning to.
-True to her confident demeanour, Ibara's touch was delicate.
+It wasn't erotic, though.\
+It was just that... I let out a sound without meaning to.\
+True to her confident demeanour, Ibara's touch was delicate.\
 Sometimes gentle, sometimes forceful, she stimulated my sensitive spots.
 
 "Hyah!"
@@ -68,7 +68,7 @@ Saying this with an exasperated tone, Ibara didn't stop her hands.
 
 "Just a little longer, hold on. You mustn't struggle until it's properly finished."
 
-There was something suggestive in the tone of her voice.
+There was something suggestive in the tone of her voice.\
 Looking up, I saw the corners of her mouth turned up unnaturally.
 
 "Um, Ibara. This is kind of scary..."
@@ -81,13 +81,13 @@ Why did that angelic smile feel so utterly ominous?
 
 "Hii!"
 
-She absolutely is holding a grudge.
-Ibara bent down sharply. Her breath brushed against my earlobe.
+She absolutely is holding a grudge.\
+Ibara bent down sharply. Her breath brushed against my earlobe.\
 She was so close, her lips could touch my ear with just one more push.
 
 "Shigure-san."
 
-A strangely low, whispering voice.
+A strangely low, whispering voice.\
 Perhaps because he'd just finished brushing his teeth, a faint scent of mint lingered.
 
 "Shigure-san's ears are really beautiful."
@@ -102,7 +102,7 @@ A soft, sucking sound as she drew in breath.
 
 "Hii!"
 
-A shiver ran down my spine.
+A shiver ran down my spine.\
 An intense sensation, like feathers tickling exposed nerves.
 
 "Wha— no way, stop it—"
@@ -117,8 +117,8 @@ An intense sensation, like feathers tickling exposed nerves.
 
 "Honestly, honestly."
 
-Again, the sound of inhaling.
-I gripped the hem of my clothes tightly, bracing for the sensation.
+Again, the sound of inhaling.\
+I gripped the hem of my clothes tightly, bracing for the sensation.\
 Huuu.
 
 "Mmmph."
@@ -129,12 +129,12 @@ A shiver ran down my spine, from the top of my head to the tips of my fingers.
 
 "Oh, I see."
 
-Relieved by her unusually understanding and compliant reaction, I let out a sigh of relief.
+Relieved by her unusually understanding and compliant reaction, I let out a sigh of relief.\
 It was right after that.
 
 "Ahm"
 
-A wet, squelching sound.
+A wet, squelching sound.\
 Something soft, damp, and slimy covered my earlobe.
 
 "Wh-what⁉︎"
@@ -157,7 +157,7 @@ A soft sucking sound as she drew on the cartilage before pulling away.
 
 "Of course not. I just wanted to lick them."
 
-She declared it without a hint of guilt, leaning in again.
+She declared it without a hint of guilt, leaning in again.\
 Before I could ask if that lie meant anything, before I could even think of a retort, my ear was enveloped by something hot and wet.
 
 "Mmph. Remember? That time before, when Shigure-san gave my ears lots of massages?"
@@ -174,15 +174,15 @@ Before I could ask if that lie meant anything, before I could even think of a re
 
 "Of course."
 
-A slick tongue traces the entrance to the hole.
-Chu, lips suck up the opening of my ear.
-Both sensations are unbearable, and my knees buckle involuntarily.
+A slick tongue traces the entrance to the hole.\
+Chu, lips suck up the opening of my ear.\
+Both sensations are unbearable, and my knees buckle involuntarily.\
 Chu, a lip-smacking sound, and the lips pull away just a little.
 
 "I remember perfectly well. Naughty things are off-limits until graduation, though."
 
-Her whisper at my ear made my chest flutter.
-Her breath touched my saliva-damp skin, cool and tingling.
+Her whisper at my ear made my chest flutter.\
+Her breath touched my saliva-damp skin, cool and tingling.\
 "But," Ibara continued,
 
 "This isn't a naughty thing. It's just cleaning your ears, spoiling Shigure-san. So it's alright, right?"
@@ -197,7 +197,7 @@ My ears burned. The sound of kisses echoed repeatedly: chuu, chuu.
 
 "If you don't like it, I'll stop."
 
-I couldn't suppress the heat rising to my cheeks.
+I couldn't suppress the heat rising to my cheeks.\
 My parched throat made a gulp sound.
 
 "…………No."
@@ -208,7 +208,7 @@ Those tawny eyes stared intently at my face.
 
 "So, it feels good?"
 
-What was that, rubbing salt in the wound?
-I couldn't help but look away.
-But.
+What was that, rubbing salt in the wound?\
+I couldn't help but look away.\
+But.\
 In the end, after a long hesitation, I gave a small nod.
