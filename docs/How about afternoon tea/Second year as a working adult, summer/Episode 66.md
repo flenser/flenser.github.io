@@ -209,3 +209,5 @@ I'll prove I'm serious too. No time for appearances. Once I decide to do somethi
 So, closing the door behind me with one hand, I smiled brightly and said:
 
 "President, how about some afternoon tea?"
+
+![afternoon tea](/assets/images/afternoon-tea-secretary.png)
