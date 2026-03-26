@@ -1,12 +1,12 @@
 ---
-title: My Home
+title: Novel Index
 layout: home
 nav_exclude: true
 ---
 
-Welcome to our simple web novel site containing stories translated from Japanese.
+## Welcome to our simple web novel site containing stories translated from Japanese
 
-Stories translated so far
+### Stories translated so far
 
 - [A Closet Romance](/docs/A Closet Romance/closet-romance.html)
 - [Don't you feel ashamed to be overpowered by a maid](/docs/Don't you feel ashamed to be overpowered by a maid/overpowered-by-maid.html)
@@ -21,3 +21,7 @@ Stories translated so far
 
 {: .note }
 Most of these are still ongoing, new episodes will be translated and uploaded as soon as possible, usually same day or next.
+
+### Stories completed so far have been compiled into ePUBs
+
+- [eBook Downloads](/docs/eBook Downloads/book-list.html)
