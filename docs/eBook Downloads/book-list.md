@@ -11,6 +11,6 @@ Stories completed so far:
 - [How about afternoon tea](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/How.About.Some.Afternoon.Tea.Epub)
 - [If you kiss me, I'll tell you](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/If.You.Kiss.Me.I.ll.Tell.You.Epub)
 - [Love Grows in the Classroom After School](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/Love.Grows.in.the.Classroom.Epub)
-- [She, expressionless and transparent, seems to be someone you could hold tight if you paid the price](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/She.Expressionless.and.Transparent.Seems.to.be.Someone.You.Could.Hold.Tight.if.You.Paid.the.Price.Epub)
+- [She, expressionless and transparent, seems to be someone you could hold tight if you paid the price](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/She.Expressionless.and.Transparent.Epub)
 
 With thanks to Macmilan on Discord for compiling the ePUB versions of the completed novels.
