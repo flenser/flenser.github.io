@@ -5,12 +5,12 @@ nav_order: 4
 ---
 Episode One Hundred and Twenty-Three
 
-"Shigure-san's Naughty Side"
+"Shigure-san, you perv"
 
-Sitting cross-legged at the edge of the bed, Ibara glared at me with half-closed eyes, giving off a "stare-down" vibe.\
+Sitting in a tight huddle at the edge of the bed, Ibara glared at me with half-closed eyes, giving off a "stare-down" vibe.\
 Hands pressed against her stomach, her face flushed crimson up to her ears, she murmured in protest.
 
-"I told you not to touch my stomach. Yet you kept going on and on and on..."
+"I told you not to touch my stomach. And you just kept going and going and going and going……"
 
 "I'm sorry."
 
@@ -147,7 +147,7 @@ At least, right now, I can't imagine it at all.\
 
 Ibara continued.
 
-"I want Shigure-san to feel like they need me too, just as I can't live without them anymore."
+"I want you to need me too, Shigure-san, just as I can’t live without you anymore."
 
 ──I already feel that way.\
 I swallowed the words that came to mind.\
