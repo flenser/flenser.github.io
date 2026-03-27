@@ -117,7 +117,7 @@ With surprising strength, Ibara's thumbs worked to loosen my muscles.
 
 "Yeah."
 
-Even after I brought her back from my parents' place, Ibara still occasionally says "because of me".\
+Even after I brought her back from her parents' place, Ibara still occasionally says "because of me".\
 I correct her every time, but she doesn't seem to accept it wholeheartedly.
 
 "Shigure-san, does it feel good?"
@@ -132,7 +132,7 @@ Well, regarding the latter...
 
 "Hey, no sexual harassment."
 
-"Mmph."
+"hehe."
 
 It might be ulterior motives.\
 Pulling her hand from beneath my chest, Ibara collapses flat onto me.\

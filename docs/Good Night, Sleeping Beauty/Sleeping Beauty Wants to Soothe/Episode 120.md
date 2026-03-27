@@ -79,7 +79,7 @@ The biggest thing is not having rent. I really can't thank Aki-san enough.
 
 I let out a deep sigh.\
 I felt rather pathetic, even to myself.\
-I'd been so full of confidence when she'd made that bold declaration, yet here I was, a complete mess.\
+I'd been so full of confidence when I'd made that bold declaration, yet here I was, a complete mess.\
 Life doesn't end with a happy ending. No matter how much you try to put on a brave face, reality follows the fairy tale.\
 You have to work to earn money, do the housework, eat your meals, and just keep living like that.\
 I thought I understood that.
