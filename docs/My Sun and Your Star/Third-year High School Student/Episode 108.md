@@ -39,7 +39,7 @@ Nothing changing should be the most settled and reassuring feeling — and yet t
 
 　I sat down quietly next to him and skipped the lesson too.
 
-‘—My impression of you’s changed, Takizawa-san.’
+‘—My impression of you has changed, Takizawa-san.’
 
 　I was so startled by the sudden address that I nearly jumped to my feet.
 
