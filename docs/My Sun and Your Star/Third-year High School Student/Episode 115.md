@@ -1,9 +1,9 @@
 ---
 parent: "Third-year High School Student"
-title: "Episode 115: New Year’s Eve (Part 2)"
+title: "Episode 115: New Year’s Eve (2)"
 nav_order: 115
 ---
-Episode 115: New Year’s Eve (Part 2)
+Episode 115: New Year’s Eve (2)
 
 The short hand of the clock had passed eleven, and I was feeling rather restless. Takizawa, sitting next to me, was watching the telly as usual.
 
