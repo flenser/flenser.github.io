@@ -121,7 +121,7 @@ Today, the roles were reversed.\
 Instead of hugging her, I was being hugged.\
 So tightly I could almost hear her heartbeat.
 
-"Mmph. There, there. Go on, you can be properly clingy."
+"Hehe. There, there. Go on, you can be properly clingy."
 
 "Ah, clingy?"
 

@@ -11,11 +11,11 @@ Wiping my damp ears with an antiseptic alcohol wipe, I declared with unwavering 
 
 "No ear-licking. No pampering either. Because I'm an adult. Right?"
 
-"Ehh?"
+"What?"
 
 Sitting on the bedside, Ibara clutched her bespoke pillow like a stuffed toy and voiced her discontent.
 
-"No 'eh' about it."
+"Don't 'what' me."
 
 "But you looked like you were enjoying it, Shigure-san."
 
@@ -103,7 +103,7 @@ I can't imagine her lying to me, so she really must be doing well.
 
 "That's really admirable. Properly admirable."
 
-"Eheheh."
+"Hehehe."
 
 When I reached out and stroked her head, Ibara's face melted into a soft, gooey expression.\
 Aaaah, adorable. Troublesome. No, not troublesome. Actually, troublesome.\

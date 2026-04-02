@@ -41,7 +41,7 @@ How many times would we buy bread from that shop from now on?\
 　Streets we couldn't navigate without smartphone directions, novel shops and menus – they'd surely become part of our daily routine, buried beneath a lukewarm, ordinary existence.
 
 Beyond the waterside park, round the corner, lay the new home I'd seen countless times in photos.\
-A compact two-storey, two-bedroom flat, a 2LDK. No garden, no parking space. I was a driver on paper only anyway, with no plans to buy a car.\
+A compact two-storey, two-bedroom house, a 2LDK. No garden, no parking space. I was a driver on paper only anyway, with no plans to buy a car.\
 　This is our new home. Mine and Ibara's.
 
 "Right, I'm going in..."

@@ -77,7 +77,7 @@ Looking up, I saw the corners of her mouth turned up unnaturally.
 
 Why did that angelic smile feel so utterly ominous?
 
-"I just want to soothe you, Shigure-san. I don't held a single grudge about all that tickling and embarrassing stuff you did to me, not one bit."
+"I just want to soothe you, Shigure-san. I don't hold a *single* grudge about all that tickling and embarrassing stuff you did to me, none whatsoever."
 
 "Hii!"
 
