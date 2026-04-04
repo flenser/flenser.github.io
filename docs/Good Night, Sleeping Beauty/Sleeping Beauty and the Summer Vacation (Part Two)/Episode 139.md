@@ -104,7 +104,7 @@ Runa came over to me and crumbled the shaved ice in her hand.
 
 "Oh, I see."
 
-She pressed her hand to her cheek. Had she been that tired?
+I pressed my hand to my cheek. Had I been that tired?
 
 "Do you feel refreshed?"
 

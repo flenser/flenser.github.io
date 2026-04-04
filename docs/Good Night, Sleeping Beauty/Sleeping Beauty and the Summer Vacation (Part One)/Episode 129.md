@@ -6,9 +6,9 @@ nav_order: 2
 Episode One Hundred and Twenty-Nine
 
 So.\
-A few days later, I was in the passenger seat of a saloon car.\
-Runa, gripping the steering wheel, was humming cheerfully to herself.\
-The sharply designed sunglasses suited her rather well, making her look like a Hollywood actress from a bygone era.
+A few days later, I was in the passenger seat of a car.\
+Runa, hands on the wheel, was humming cheerfully to herself.\
+Her sharply designed sunglasses suited her rather well, making her look like a Hollywood actress from a bygone era.
 
 "We'll be at the roadside station soon. Shall we have lunch there?"
 
@@ -16,15 +16,14 @@ The sharply designed sunglasses suited her rather well, making her look like a H
 
 "No way. Not even you get to touch the wheel of my lovely little Jimny, not even if it's Ame."
 
-"Well, actually," I added.
-
+And besides, she added:\
 "Ame. You say you've got a licence, but you hardly ever drive, do you?"
 
 "Well, sort of..."
 
 That was true.
 
-"It's motorway for a while yet, and I'm genuinely scared, so no way."
+"There's quite a bit of motorway ahead too, so I'm genuinely scared — absolutely not."
 
 She chuckles. Honestly, it's a relief since I have zero confidence in my driving skills.\
 Even at driving school, I barely scraped through. People like me really shouldn't drive if they can help it.

@@ -41,7 +41,7 @@ Squish squish squish squish...!
 
 　I lathered my body with fierce intensity. A bit rough, but it'll do for a day.\
 Behind me, the glass door slid open.\
-Hmph.\
+Hehe.\
 Too late now, Ibara.\
 Grasping the shower nozzle, I rinsed the foam from my body.\
 All that remained was to soak in the bath.
@@ -56,7 +56,7 @@ Pouting, Ibara sat down on the adjacent washing area.
 
 "I was going to wash it for you."
 
-"Because you touch me weirdly, don't you?"
+"But you touch me weirdly, don't you?"
 
 "But you were really into it, Shigure-san."
 

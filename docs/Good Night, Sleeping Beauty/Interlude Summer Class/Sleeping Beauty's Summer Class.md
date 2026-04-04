@@ -124,7 +124,7 @@ A bird. But it stings a bit that I kind of get it.
 
 Her gaze turns towards me.
 
-"Is that how you feel now too, Shinomori-san?　—Ah, caught you out."
+"Is that how you feel now too, Shinomori-san?　—Ah, looks like I hit the mark."
 
 Annoying.
 

@@ -48,7 +48,7 @@ Then, like applying hand cream, I spread it all the way down to her fingertips.
 
 "There, all done."
 
-"Mmph."
+"Hehe."
 
 Ibara glanced at Runa. Rivalry?\
 Somehow, I found myself looking towards Shizuku.\
@@ -72,7 +72,7 @@ You forgot?
 
 "I said I don't need it."
 
-"Shizuku-chan. Mountain mosquitoes are vicious, you know? Let me put it on for you."
+"Shizuku-chan. Mountain mosquitoes are vicious, you know? Let her put it on for you."
 
 "Ugh... Alright, fine."
 
@@ -86,7 +86,7 @@ Compared to that hazy memory, Shizuku's arms were much longer and slimmer now.\
 She's grown up, hasn't she.\
 Lost in nostalgia, I continued rubbing her arms.\
 　After a moment, she waved my hand away. "That's enough!"\
-Shu.\
+Aww...\
 Your big sister is a little sad.
 
 "Shall we go now?"
