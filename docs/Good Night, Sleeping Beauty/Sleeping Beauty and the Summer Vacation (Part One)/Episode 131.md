@@ -136,7 +136,7 @@ Honestly, I started feeling like maybe it wouldn't be so bad spending just tonig
 Ibara would be furious, though.\
 But I wanted to see that face too.
 
-"Ame, you look annoyed."
+"Ame, you're making a wicked expression."
 
 "Huh? No way."
 

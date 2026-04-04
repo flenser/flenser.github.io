@@ -104,7 +104,7 @@ I twist the cap off the plastic bottle and take a sip of unsweetened black tea.
 
 "Also, I'm genuinely pretty put off by the whole going after a high schooler thing."
 
-Also, I'm genuinely pretty put off by the whole going after a high schooler thing.
+Pffft — the tea sprayed out in a mist.
 
 "Hey, sis, that's disgusting!"
 
@@ -171,7 +171,7 @@ That might be true, but...\
 A warm feeling slowly spread through my chest.\
 Seeing my face relax, Shizuku said hurriedly.
 
-"D-don't get the wrong idea. I owe you one. It's just me saying thanks for introducing me to the teacher."
+"D-don't get the wrong idea. I owe you one. It's just me saying thanks for introducing me to Sensei."
 
 "Tsundere?"
 

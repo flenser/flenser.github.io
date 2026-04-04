@@ -92,7 +92,7 @@ Such a sore loser. Also, does she really understand?
 
 "Ah, wait a moment. What about Shizuku? Is that alright for her too?"
 
-"It's fine. It's the teacher's suggestion."
+"It's fine. It's Sensei's suggestion."
 
 Fine then. A total affirmation machine.\
 Runa clapped her hands together.

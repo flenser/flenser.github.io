@@ -54,7 +54,7 @@ Relatively colder than my skin warmed by the bathwater.
 
 "N-no, I can't—"
 
-"Of course you can. I've seen it loads of times already."
+"Of course you can. You've seen it loads of times already."
 
 "I haven't seen it loads of times."
 
@@ -241,7 +241,7 @@ But Ibara just looked perfectly fine.
 
 "Eh?"
 
-"Mmph. Trying to distract me with tickling? That won't do, Shigure-san. If you want to stop me today—"
+"Hehe. Trying to distract me with tickling? That won't do, Shigure-san. If you want to stop me today—"
 
 Ibara grabbed my wrist again.
 
