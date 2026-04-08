@@ -83,7 +83,7 @@ As soon as I said that, Endo-san moved closer to me, pressing her body against m
 
 “So Hina laughs like that too—”
 
-　Mai said that whilst stuffing her cheeks with a chocolate banana. Endo-san’s smile right now is her genuine smile. It’s a smile she’d never show at school, so I can see why Mai thinks that.
+　Mai said that whilst stuffing her cheeks with a chocolate banana. Endo-san’s smile right now is her genuine smile. It’s a smile she’d never show at school, so I can see why Mai would say that.
 
 “Mai-senpai, can I have a bite of that?”\
 “Eh? It’s mine. No way.”\
@@ -203,3 +203,5 @@ I pulled the hand intertwined with mine toward me, rose up just a little on my t
 　Truth be told, I wanted to run away from there right then and there; I was so embarrassed I wanted to vanish.
 
 　But that day, I held Endo-san’s hand the whole time and looked up at the sky until the fireworks stopped.
+
+![fireworks](/assets/images/sun-star-fireworks.jpg)
