@@ -111,6 +111,8 @@ Endo-san's face was quite flushed.
 
 "*Hoshizora* — happy birthday. And — please stay with me forever——"
 
+![rings](/assets/images/sun-star-rings.jpg)
+
 Unusually, Endo-san was looking down.
 
 A slightly lacking-in-confidence sort of manner.

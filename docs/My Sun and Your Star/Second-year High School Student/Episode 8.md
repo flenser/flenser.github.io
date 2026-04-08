@@ -148,3 +148,5 @@ It doesn't have to be perfect.
 No matter how awkward it feels, I'll struggle and fight my way through life.
 
 Clutching the handkerchief given to me by the black-haired girl, I swore to the starry sky.
+
+![handkerchief](/assets/images/sun-star-handkerchief.jpg)
