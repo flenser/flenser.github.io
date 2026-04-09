@@ -10,6 +10,8 @@ has_children: true
 
 ### Kiss me, strangle me, and kill me—
 
+---
+
 Morishita Mei, a second-year high school student, pushed to the edge by her abusive mother, is overcome with murderous intent; before doing anything extreme, she flees into the night with a kitchen knife.
 
 She thought she had fled to a deserted spot, but runs into her classmate, Fujishiro Nanoha, who sees the blade.
@@ -28,7 +30,7 @@ A story of girls who long to be perfect, yet remain somehow incomplete—
 
 A yuri story of co-dependent girls harbouring deep worries within their hearts.
 
-*This story is a work of fiction and does not condone or encourage any acts that contravene laws or regulations.
+*This story is a work of fiction and does not condone or encourage any acts that contravene laws or regulations.\
 *Trigger warning: This story contains themes of abuse, self-harm, and violence. Reader discretion is advised.
 
 ![My Neighbour, Kataba-san](/assets/images/neighbour-kataba.jpg)
