@@ -174,11 +174,11 @@ Yui-san showed a hint of hesitation, but sensing my resolve hadn't wavered, she 
 
 Hearing that, I nodded firmly. It felt as though the foggy unease that had settled in my chest was beginning to clear.
 
-"But I... I was really surprised. After being engaged for eight years, you don't know anything about Yui-san, do you, Kitakami-san?"
+"But I... I was really surprised. After being engaged for eight years, he doesn't know anything about Yui-san, does he?"
 
 "Eh?"
 
-"He said she was innocent. I couldn't help wondering who on earth he was talking about. Yui-san is such a little minx, you know."
+"He said you were innocent. I couldn't help wondering who on earth he was talking about. Yui-san is such a little minx, you know."
 
 Teasingly, I said this, and Yui-san smiled as if all her strength had drained away.
 

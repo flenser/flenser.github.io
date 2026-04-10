@@ -31,7 +31,7 @@ I see. Thank you.\
 She said that and continued.\
 About the cause of the bruises all over her body.
 
-"He'd been hitting me like this for a while now."\
+"He's been hitting me like this for a while now."\
 "………"\
 "But it's only recently he started hurting me so badly I get bruises this big."\
 "………"\

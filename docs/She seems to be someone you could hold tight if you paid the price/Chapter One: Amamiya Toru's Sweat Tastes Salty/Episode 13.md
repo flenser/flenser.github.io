@@ -49,7 +49,7 @@ It felt like confirmation that, as long as I kept piling on the money, seeing he
 "Well, that's..."\
 "...?"
 
-Amamiya Tōru brought the paper bag he was holding up in front of his face, blocking my view of her reaction.
+Amamiya Tōru brought the paper bag she was holding up in front of her face, blocking my view of her reaction.
 
 "Pink... was cute."
 

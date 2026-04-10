@@ -169,7 +169,7 @@ Then, perhaps, had Mitsuki's mother remarried?\
 Mitsuki was still in high school, so suddenly living with a man she wasn't related to by blood would surely be difficult for her.\
 Had her mother made arrangements for that? A so-called 'separate residence marriage'?
 
-Before my grandmother passed away, she told me about my father in secret. Seems he was a right piece of work. Even though he was Mum's classmate, he wouldn't acknowledge her. At high school, Mum was the only one who ended up having to leave... Since Dad's family register is clean, he might be married to someone else somewhere. Maybe he's even got children already. If so, I might have siblings I've never met, siblings I've never even seen.
+"Before my grandmother passed away, she told me about my father in secret. Seems he was a right piece of work. Even though he was Mum's classmate, he wouldn't acknowledge her. At high school, Mum was the only one who ended up having to leave... Since Dad's family register is clean, he might be married to someone else somewhere. Maybe he's even got children already. If so, I might have siblings I've never met, siblings I've never even seen."
 
 What am I supposed to do? This is incredibly heavy. A heavyweight topic indeed. The environment Mitsuki lived in was beyond my imagination.\
 Unconcerned with my speechlessness, Mitsuki continued matter-of-factly.

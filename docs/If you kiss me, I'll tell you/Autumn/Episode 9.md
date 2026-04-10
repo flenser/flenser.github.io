@@ -79,7 +79,7 @@ When I turned it on, the familiar start-up chime played, and the TV screen chang
 
 "This is the only game I've got."
 
-Though he was supposedly living alone, I didn't comment on the two controllers present. Instead, I picked up the other controller and placed it on Seno-san's lap.
+Though she was supposedly living alone, I didn't comment on the two controllers present. Instead, I picked up the other controller and placed it on Seno-san's lap.
 
 "This is playable against someone, right? Let's have a go."
 

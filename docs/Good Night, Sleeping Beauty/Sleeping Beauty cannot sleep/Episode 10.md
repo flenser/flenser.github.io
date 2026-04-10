@@ -19,7 +19,7 @@ Up the concrete stairs, to the back of the second floor.
 
 "But honestly, I think it's careless. A beauty like you living in an apartment without even an auto-lock."
 
-Whether she was a beauty or not aside, he'd hit a sore spot.
+Whether she was a beauty or not aside, she'd hit a sore spot.
 
 "It's simply a matter of take-home pay. The neighbourhood's not unsafe, after all."
 

@@ -57,7 +57,7 @@ There was no one else left in this world. The car was hurtling at breakneck spee
 
 —At that moment, I was certain this person was not my teacher.
 
-The teacher I love would never say something like this. Above all else, he’d be worried about my safety.
+The teacher I love would never say something like this. Above all else, she’d be worried about my safety.
 
 …I’ll sort this out. I’ll make sure she becomes ‘Sensei’ again.
 

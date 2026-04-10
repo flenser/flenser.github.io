@@ -226,7 +226,7 @@ Not that I'm saying anything specific.
 "...Yeah."
 
 Oh, right, Ibara exhaled.\
-He leaned towards me, parting the water's surface.
+She leaned towards me, parting the water's surface.
 
 "Is there anything I can do?"
 

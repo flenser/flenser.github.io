@@ -13,7 +13,7 @@ Uehara-san was raised in a single-parent household and apparently never knew her
 
 "I've led a more fulfilling life since leaving university, and I earn a decent income. Going to university isn't really that meaningful,"
 
-　Apparently, her mother has been imposing this view on her since he was in secondary school.
+　Apparently, her mother has been imposing this view on her since she was in secondary school.
 
 　　　　　　　　　　◇
 

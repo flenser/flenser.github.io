@@ -55,7 +55,7 @@ Lotte nodded in agreement and fastened the choker around Alisha's neck.\
 "Is that so?"\
 "Because it means Lotte will grant my request."
 
-Being told that was the reason for her peace of mind, he wasn't sure if he should simply be glad.
+Being told that was the reason for her peace of mind, she wasn't sure if she should simply be glad.
 
 "Well then, I'd like you to wipe me down straight away."
 

@@ -131,7 +131,7 @@ Seeing her face, Seno-san frowned, looking thoroughly disgusted.
 
 I'd thought she'd laugh it off, but seeing how utterly put off she seemed, I laughed myself.
 
-"But you know, just when I thought I'd followed her and got in, he'd got a girlfriend. It was a bloody awful memory."
+"But you know, just when I thought I'd followed him and got in, he'd got a girlfriend. It was a bloody awful memory."
 
 "Ah... that bloke, he was dating the manager, wasn't he? Yeah, constantly having that shoved in your face would be rough."
 

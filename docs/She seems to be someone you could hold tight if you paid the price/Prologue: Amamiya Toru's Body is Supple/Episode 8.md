@@ -80,7 +80,7 @@ Hmm.
 
 　Hmm.
 
-...What if we flipped the idea? What if Amamiya Tōru did something for me that he thought was worth five thousand yen?\
+...What if we flipped the idea? What if Amamiya Tōru did something for me that she thought was worth five thousand yen?\
 The actual content wouldn't matter; I was drawn to the very idea that someone I'd been chasing with my eyes —Amamiya Tōru— would do something for me, just for me.
 
 So I made the request.\

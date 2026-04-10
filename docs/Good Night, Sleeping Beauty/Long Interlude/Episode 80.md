@@ -133,12 +133,12 @@ So I'm not misunderstanding. I'm not conceited.\
 But.\
 The reason I find myself wondering, 'Really?' is surely because Shigure-san is too kind.\
 Boundless kindness resembles love, making it impossible to tell them apart.\
-How great a difference is there between what Shigure-san gave to Yomi-san and what he gave to me?\
+How great a difference is there between what Shigure-san gave to Yomi-san and what she gave to me?\
 Or perhaps, compared to what she gives to Hiname or Shizuku?\
 I grow frightened by my own imagination.\
 　What if there was no difference at all?\
-What if Shigure-san was simply being kind to me, equally and fairly, just as he is to everyone else?\
-What if he was only staying with me because he felt sorry for me, unable to sleep?\
+What if Shigure-san was simply being kind to me, equally and fairly, just as she is to everyone else?\
+What if she was only staying with me because she felt sorry for me, unable to sleep?\
 That wouldn't be love or affection anymore, would it? It would be pity or compassion, something like that.\
 The timer rang.
 

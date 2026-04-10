@@ -227,7 +227,7 @@ Scratching her head and speaking with a happy expression, Mai really did look ha
 　She glanced briefly in my direction, but at those words my chest suddenly tightened and I looked away.
 
 　I felt so distressed I didn’t want to be there anymore.\
-　I hadn’t known Endo-san had someone he liked. I didn’t want to know…
+　I hadn’t known Endo-san had someone she liked. I didn’t want to know…
 
 “Aren’t you going to confess?”\
 “Not right now. I know it’s a one-sided crush, and I don’t want to ruin our current relationship.”\

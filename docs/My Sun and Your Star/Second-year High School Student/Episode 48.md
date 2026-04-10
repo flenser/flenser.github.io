@@ -50,7 +50,7 @@ Could it be… are we going to walk to school together?
 
 No, if we did that, we’d attract the attention of the whole school, and that’s the one thing I want to avoid.
 
-When I look at Endo-san’s face, he looks a little sulky.\
+When I look at Endo-san’s face, she looks a little sulky.\
 　I reckon if the boys at school saw Endo-san looking like this, they’d be smitten straight away.
 
 Endo-san let go of my hand and placed hers on my face.

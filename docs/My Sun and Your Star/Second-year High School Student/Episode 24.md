@@ -128,7 +128,7 @@ After school, the usual study session was held at my house.
 
 Today, Takizawa seemed even more sullen than usual.
 
-　He usually wears a sullen expression, but today it was particularly pronounced.
+　She usually wears a sullen expression, but today it was particularly pronounced.
 
 Was it because I'd spoken harshly to her on the rooftop? Or was there another reason? Before I could ask, it was time to listen to Takizawa's instructions.
 

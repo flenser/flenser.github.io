@@ -22,7 +22,7 @@ When I implied that I also liked Yui, Yukiyasu-san smiled happily.
 
 I hesitated slightly, reluctant to use the phrase 'homosexual' in this context.
 
-"The only one who hasn't realised is Dad. Even though they're engaged, I'd never heard her mention any romantic interest in men before that either. I did find it odd... but when I first met Kanata-chan, I knew for sure. Ah, so that's it – Yui likes women. I've never heard it from her mouth, so I just pretend I don't know."
+"The only one who hasn't realised is Dad. Even though she's engaged, I'd never heard her mention any romantic interest in men before that either. I did find it odd... but when I first met Kanata-chan, I knew for sure. Ah, so that's it – Yui likes women. I've never heard it from her mouth, so I just pretend I don't know."
 
 　Indeed, it was only natural to find it odd that someone as beautiful as Yui-san, who was popular with both men and women, never had a single boyfriend. She seemed utterly disinterested in Kitakami-san too...
 
@@ -52,7 +52,7 @@ Indeed, for Father, it was a precious chance to pull back a son who had once dri
 Yui-san's efforts to break off the engagement weren't necessarily for my sake. After all, this reunion was truly coincidental. Even if she does like me now, it might just be a case of rekindled feelings...\
 But if it really was for my sake... nothing could make me happier. A warmth slowly spreads deep within my chest.
 
-I want Yui to live freely. I don't want her to live for my father or me at the expense of suppressing her true self. So, if you still care for Yui, I'll support the two of you. Father too... once he knows how hard Yui is trying, I'm sure he'll understand.
+"I want Yui to live freely. I don't want her to live for my father or me at the expense of suppressing her true self. So, if you still care for Yui, I'll support the two of you. Father too... once he knows how hard Yui is trying, I'm sure he'll understand."
 
 Hearing Yukiyasu-san say that somehow makes me feel incredibly reassured. That's right. I know from all the stories Yui's told me that her father, though awkward, is a deeply loving man.
 

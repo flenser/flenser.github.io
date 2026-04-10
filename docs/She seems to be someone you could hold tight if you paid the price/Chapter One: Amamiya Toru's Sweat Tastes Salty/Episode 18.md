@@ -60,7 +60,7 @@ Even so, if it meant making her cry because of me, I decided I should be honest 
 "Yes, I'm well aware of that."
 
 I know. I've read the school rules properly. So I fully understand that our school prohibits students from working part-time.\
-　No matter how much money Amamiya Tōru wanted, the reason he'd been seducing people like this to get them to give her money instead of working part-time was the risk if it got discovered.\
+　No matter how much money Amamiya Tōru wanted, the reason she'd been seducing people like this to get them to give her money instead of working part-time was the risk if it got discovered.\
 If it involved giving something in return and was a consensual exchange of money, then it was a private matter the school couldn't interfere with.
 
 Knowing all this, I had planned to go for a part-time job interview today.

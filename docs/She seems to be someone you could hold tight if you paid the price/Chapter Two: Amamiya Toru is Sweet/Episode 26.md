@@ -150,7 +150,7 @@ Where on earth had the girl gone who'd been crying and emotionally unstable just
 
 "Of course I don't."
 
-How embarrassing. What kind of thing was he making me say?
+How embarrassing. What kind of thing was she making me say?
 
 "Hmm. …Well, alright. Let go now. I won’t do anything."
 
