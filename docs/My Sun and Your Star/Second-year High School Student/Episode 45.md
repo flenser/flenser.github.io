@@ -139,7 +139,7 @@ Endo-san picked up after about three rings.
 
 “——Takizawa? What’s up? Has something happened?”
 
-After explaining the situation in detail, he agreed straight away.
+After explaining the situation in detail, she agreed straight away.
 
 “Endo-san says it’s fine.”\
 “That’s a relief.”\

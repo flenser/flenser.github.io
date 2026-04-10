@@ -148,7 +148,7 @@ Apparently, it's not that I'm too easy. Just as I thought. It's because Shigure-
 
 　My own voice sounded sharp. My guard seeped into the edge of my words.\
 Because, Yomi-san's comment just now...\
-It sounded like she was saying he understood Shigure-san better than I did, and that she was the one with the capability to take her out like this and refresh her.\
+It sounded like she was saying she understood Shigure-san better than I did, and that she was the one with the capability to take her out like this and refresh her.\
 Yomi-san shook her head from side to side.
 
 "It's not like that."

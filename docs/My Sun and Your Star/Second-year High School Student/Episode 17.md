@@ -211,7 +211,7 @@ There were far too many to choose from. I could just pick something at random, b
 
 "Are you going to embroider?"
 
-He asked the very question I didn't want to be asked. I could have lied or made excuses, but unnecessary lies felt like they'd only make me uncomfortable later, so I decided to tell the truth.
+She asked the very question I didn't want to be asked. I could have lied or made excuses, but unnecessary lies felt like they'd only make me uncomfortable later, so I decided to tell the truth.
 
 "Yeah. I'm planning to get someone who's good at embroidery to teach me."
 

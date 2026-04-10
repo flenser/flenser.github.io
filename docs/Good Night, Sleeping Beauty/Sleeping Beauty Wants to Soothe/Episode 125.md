@@ -88,7 +88,7 @@ She was so close, her lips could touch my ear with just one more push.
 "Shigure-san."
 
 A strangely low, whispering voice.\
-Perhaps because he'd just finished brushing his teeth, a faint scent of mint lingered.
+Perhaps because she'd just finished brushing her teeth, a faint scent of mint lingered.
 
 "Shigure-san's ears are really beautiful."
 

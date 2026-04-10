@@ -151,7 +151,7 @@ I clinked my glass against the mug he offered and gave a slight bow.
 When Mitsuya-san said that, Niiyama-san laughed. I was sure Niiyama-san was a year senior to Mitsuya-san, but she wasn't using honorifics. Come to think of it, these two might have been close for a long time.\
 　But — Mitsuya, silently stuffing her face with meat, just didn't look like she fancied Niiyama-san at all...
 
-"Aosawa-san's amazing, isn't he? I was really surprised. Heard there were loads of applicants for the president's secretary position."
+"Aosawa-san's amazing, isn't she? I was really surprised. Heard there were loads of applicants for the president's secretary position."
 
 It wasn't so much that she'd earned it through merit as that she'd bluffed her way into the seat, but I couldn't say that, so I just laughed it off.
 

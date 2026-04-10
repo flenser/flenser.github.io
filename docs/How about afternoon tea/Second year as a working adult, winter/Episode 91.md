@@ -131,7 +131,7 @@ He probably doesn't know. That such a strong feeling, one that makes your heart 
 
 There are things people simply cannot compromise on.
 
-I clenched the hand we held in my pocket. When Yui-san asked me, "What's wrong?", I just shook my head and said, "Nothing."
+I clenched the hand held in my pocket. When Yui-san asked me, "What's wrong?", I just shook my head and said, "Nothing."
 
 ＊＊＊
 

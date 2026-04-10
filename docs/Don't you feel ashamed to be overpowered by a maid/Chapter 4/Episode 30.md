@@ -70,7 +70,7 @@ Cortier glanced briefly at Alisha, who had just finished the award ceremony.\
 Alisha headed towards the seats reserved for the nobles' attendants.\
 She had often seen Alisha before.\
 The usual Alisha would have returned to her seat immediately.\
-　Observing her movements, he saw her conversing with a young girl there.\
+　Observing her movements, she saw her conversing with a young girl there.\
 At last year's ceremony, at the very least, she had not brought a maid.\
 She was not one to flaunt authority; she stood here as a knight.\
 Therefore, she would not have brought a maid.\

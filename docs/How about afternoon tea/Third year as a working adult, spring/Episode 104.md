@@ -173,7 +173,7 @@ I simply stared back at those burnt-brown eyes, clouded with anger, with a cold 
 
 I recalled what Yukiyasu-san had said.
 
-This man couldn't believe in his own efforts, striving only to be what his father wanted him to be. He had no self. He could only become a puppet—a pitiful man.
+This man couldn't believe in his own efforts, striving only to be what his father wanted him to be. He had no self. He could only become a puppet, a pitiful man.
 
 "...Kitakami-san, are you truly content with that? A life spent merely running along a predetermined track, without a single ounce of your own effort being acknowledged?"
 

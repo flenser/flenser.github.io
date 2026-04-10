@@ -121,7 +121,7 @@ Yui-san, taken aback by Yuri's sudden request, paused. Yuri took a deep breath a
 
 Oh dear. I had to stop Yuri before she said anything more bizarre. That's what I thought, but fuelled by alcohol, Yuri, with flames blazing deep in her eyes, rambled on regardless of my attempts to stop her.
 
-"Kanata, you know, is actually incredibly popular. He's been hit on by men so good-looking it makes me jealous, and not just once or twice. Even so, Kanata has always been devoted to you, thinking only of you. I know you care about Kanata, Senpai. But if you ever do anything to make her cry again, I absolutely won't forgive you."
+"Kanata, you know, is actually incredibly popular. She's been hit on by men so good-looking it makes me jealous, and not just once or twice. Even so, Kanata has always been devoted to you, thinking only of you. I know you care about Kanata, Senpai. But if you ever do anything to make her cry again, I absolutely won't forgive you."
 
 H-help. I instinctively looked to Ritsu for support. Ritsu-san met my gaze perfectly, grinning and narrowing her eyes with amusement.\
 I recognised that look on Ritsu-san's face. It was the mischievous glint in her eyes when she was usually teasing Yui-san and finding it highly entertaining. She didn't seem to have any intention of stopping Yuri.

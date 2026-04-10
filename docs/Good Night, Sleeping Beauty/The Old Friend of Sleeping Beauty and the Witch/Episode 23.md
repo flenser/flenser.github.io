@@ -54,7 +54,7 @@ First I'd heard of it.\
 Then again, Runa doesn't use social media, so news about her circumstances rarely surfaces in the first place.\
 Nibbling on basil-infused tomato and avocado bruschetta, Haru grumbled.
 
-"Can that girl even manage living alone properly? He's definitely the type who couldn't set up Wi-Fi on her own, right?"
+"Can that girl even manage living alone properly? She's definitely the type who couldn't set up Wi-Fi on her own, right?"
 
 "Ahaha, surely not."
 

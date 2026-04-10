@@ -91,7 +91,7 @@ I'm sorry, Wataru. Even though you've confessed your feelings so strongly, I sti
 
 I actually rather like this side of the teacher, but for Wataru, who seems to regard her as his sworn enemy, it apparently sparked unbearable fury.
 
-He closed in on the teacher, fixing him with a cold, ruthless gaze I'd never seen before.
+He closed in on the teacher, fixing her with a cold, ruthless gaze I'd never seen before.
 
 "...Listen, Sensei. You know exactly how much I know, don't you? Why are you acting like this?"
 

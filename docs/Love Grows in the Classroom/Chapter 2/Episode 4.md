@@ -17,7 +17,7 @@ From day one, she addressed the students by their first names. Put nicely, she w
 
 But as a Japanese teacher, I liked her.
 
-"Arai no Narihira was what you'd call a playboy back then, you know? He was incredibly popular. Good looks and skill at composing waka poetry – in that era, that was the ultimate package. Though nowadays, a guy who goes around gifting poems would probably just put people off."
+"Ariwara no Narihira was what you'd call a playboy back then, you know? He was incredibly popular. Good looks and skill at composing waka poetry – in that era, that was the ultimate package. Though nowadays, a guy who goes around gifting poems would probably just put people off."
 
 Hisako-san's lessons weren't just easy to understand; they were full of humour too, so she seemed popular with the class... but then.
 

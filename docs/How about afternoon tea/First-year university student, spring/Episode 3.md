@@ -46,7 +46,7 @@ Last night, she said she was going out for drinks and didn't come back until mor
 
 "...Has Yui-san always been like that with women?"
 
-"I don't know about before uni, but he's been like that since at least first year. She's got a uselessly good face, so she gets all the attention. What she gets up to is pretty scummy though. Kanata-chan, are you alright living with that sex-crazed savage? Has she done anything to you?"
+"I don't know about before uni, but she's been like that since at least first year. She's got a uselessly good face, so she gets all the attention. What she gets up to is pretty scummy though. Kanata-chan, are you alright living with that sex-crazed savage? Has she done anything to you?"
 
 I couldn't help but laugh. I was slightly envious of the kind of relationship that allowed her to speak so maliciously about Yui-san. I still didn't have the courage to delve that deep.
 

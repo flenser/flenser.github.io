@@ -262,7 +262,7 @@ Saying that, she tries to pull away physically, so I hug her tightly to stop her
 　If Takizawa catches a cold, I’ll stay by her side and look after her.\
 　Then, I’ll be able to be alone with Takizawa again.
 
-‘If Takizawa catches a cold, I’ll look after her until he’s well enough to study again.’
+‘If Takizawa catches a cold, I’ll look after her until she’s well enough to study again.’
 
 There was no reply.
 

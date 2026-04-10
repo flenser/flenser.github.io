@@ -131,7 +131,7 @@ I pointed my finger at the two adults staring blankly.
 
 "Huh?" "......"
 
-At my declaration, Shigure-san looked as though he'd been hit by a bolt from the blue, while Yomi Runa quickly looked away.\
+At my declaration, Shigure-san looked as though she'd been hit by a bolt from the blue, while Yomi Runa quickly looked away.\
 　Yomi Runa. That's the reaction you give when you've got something to feel guilty about.\
 I glared at Shigure-san.
 

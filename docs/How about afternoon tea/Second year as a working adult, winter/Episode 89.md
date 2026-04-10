@@ -123,9 +123,9 @@ Good. That he didn't say it would be fine if that's what she wanted. Now I can t
 
 　She couldn't possibly be happy marrying someone who doesn't understand her.
 
-"...I can imagine what Yui's thinking. Three years ago, when she chose Yukiyasu over me for the board position, I knew something was off. Why bring that guy back into the group after he left? The reason's simple. You're trying to break off our engagement, aren't you? As long as Yukiyasu's there, I'm unnecessary."
+"...I can imagine what Yui's thinking. Three years ago, when she chose Yukiyasu over me for the board position, I knew something was off. Why bring that guy back into the group after he left? The reason's simple. She's trying to break off our engagement, isn't she? As long as Yukiyasu's there, I'm unnecessary."
 
-　I’d heard Yukiyasu-san was your childhood friend — yet the anger in Kitakami-san’s voice when he spoke his name made me suspect he regarded him as an enemy.
+　I’d heard Yukiyasu-san was his childhood friend — yet the anger in Kitakami-san’s voice when he spoke his name made me suspect he regarded him as an enemy.
 
 “Because of you, Yui changed. She developed her own will. But don’t think I’ll back down so easily. I’ve staked my life on this company too.”
 

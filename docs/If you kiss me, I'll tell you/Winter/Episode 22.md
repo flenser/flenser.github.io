@@ -101,7 +101,7 @@ I couldn't understand it at all.
 It wasn't a bad offer, I thought.\
 She said it was just for a year while Manager Yamazato was away, but gaining experience as deputy manager here could mean she'd be the obvious choice for manager in the next personnel reshuffle.
 
-　She's obsessed with money, so why would she turn down a promotion? What on earth is he thinking?
+　She's obsessed with money, so why would she turn down a promotion? What on earth is she thinking?
 
 Sure, the workload would get heavier and challenges would pile up, but I'd give her my full support.
 

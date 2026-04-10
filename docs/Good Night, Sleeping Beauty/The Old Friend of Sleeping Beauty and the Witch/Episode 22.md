@@ -41,10 +41,10 @@ Impressive, as always. Since his student days, Haru had never picked a bad spot.
 "Hey."
 
 Haru was already seated in the semi-private booth we were shown to.\
-　Having just finished work, he wasn't wearing jeans, thankfully. Smart trousers instead. Though the bold inner colour remained unchanged – perhaps that's just accepted in his line of work.\
+　Having just finished work, she wasn't wearing jeans, thankfully. Smart trousers instead. Though the bold inner colour remained unchanged – perhaps that's just accepted in her line of work.\
 Ideally, I'd have savoured the Italian fare while catching up leisurely over old times...\
 But the glass in Haru's hand (a mojito) was already more than half empty.\
-His cheeks flushed slightly as he grinned.
+Her cheeks flushed slightly as she grinned.
 
 "Right then. Shall we get straight to it? That business you can't discuss sober."
 

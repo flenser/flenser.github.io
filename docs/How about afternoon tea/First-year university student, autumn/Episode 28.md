@@ -43,7 +43,7 @@ Still, there are plenty of people who are fine with that, so I suppose women are
 
 　I'm selfish, so I absolutely cannot accept being just one of the crowd.
 
-If I actually saw her doing the things he usually does for me with another woman right in front of me, I'd definitely feel awful.
+If I actually saw her doing the things she usually does for me with another woman right in front of me, I'd definitely feel awful.
 
 We're often alone together, so it's easy to forget.
 
@@ -78,7 +78,7 @@ Looking up at Yui-san, wondering if I'd been a bit of a nuisance, she narrowed h
 
 "It's that sort of thing that makes you cute, you know."
 
-Avoiding her gaze as if to hide his embarrassment, he tugged her hand.\
+Avoiding her gaze as if to hide my embarrassment, I tugged her hand.\
 That ability to say such things so casually was one of Yui-san's rather cunning traits.
 
 "So, where did you want to go again?"

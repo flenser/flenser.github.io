@@ -114,7 +114,7 @@ I used to think it was better not to ask for details, but I can’t help but won
 　My heart ached.\
 　I’d cooked a meal with Endo-san before. It had left such an indelible impression on me that I’d never forget it, so I suppose it must have been fun. Apparently, she does that sort of thing with Hikari-san as a matter of course.
 
-　What’s more, whilst we hardly ever did anything other than study at Endo-san’s house, it seems Hikari-san does play with her. I could tell from Endo-san’s face that he’d had a good time, and the dark mist in my chest grew thicker.
+　What’s more, whilst we hardly ever did anything other than study at Endo-san’s house, it seems Hikari-san does play with her. I could tell from Endo-san’s face that she’d had a good time, and the dark mist in my chest grew thicker.
 
 I don’t want to see or even imagine Endo-san having fun with someone else or doing things together. I want her to treat everyone else with that fake smile she used to give my friends back in our second year.
 

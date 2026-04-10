@@ -177,11 +177,11 @@ A violent storm with heavy rain and strong winds, lashing sideways. She sweeps e
 
 "Excuse me, I need to drop this person off at their house and come back, so could you wait here for me?"
 
-When I told the taxi driver this,
+When I told the taxi driver this, he said,
 
 "It's fine to wait, but I'll need you to settle the fare first, you see."
 
-He said. So, reluctantly, I paid by credit card and dragged Seno-san out of the taxi by her arm.\
+So, reluctantly, I paid by credit card and dragged Seno-san out of the taxi by her arm.\
 　I don't know how taxi fares are calculated, but I felt like I'd lost out on the initial fare. Bloody hell.
 
 "Right, let's go."

@@ -199,7 +199,7 @@ This feeling for her must be real, yet the self-defence mechanisms honed over tw
 
 Trying harder is pointless. Because Seno-san never had any intention of dating me in the first place.\
 Just a fuck buddy. No role beyond that is expected.\
-　Seno-san said it's easier to just date men, didn't he?
+　Seno-san said it's easier to just date men, didn't she?
 
 Back off before you get hurt any more. No matter how much you struggle, it's pointless. We can't be anything more than physical.\
 Why not just date Kurosaki-kun? It'd be easier than chasing someone who won't look your way. You might even grow to like him if you gave it a go.

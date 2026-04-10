@@ -163,9 +163,9 @@ She pressed further, saying that if I lived alone, it wouldn't have been strange
 
 "Hmm..."
 
-It wasn't a date. That was true. Because they hadn't even held hands.
+It wasn't a date. That was true. Because we hadn't even held hands.
 
-They'd just gone to the zoo together and looked at the pandas. That was all. Nothing special happened, and she'd have been troubled if it had.
+We'd just gone to the zoo together and looked at the pandas. That was all. Nothing special happened, and she'd have been troubled if it had.
 
 The only miscalculation was lending him Yui-san's umbrella because of the rain.\
 I didn't like the thought that it had created some sort of opening for something to happen next.

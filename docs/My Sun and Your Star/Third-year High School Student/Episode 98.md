@@ -199,7 +199,7 @@ Yamamoto-san seemed like the quiet type to begin with, but the two in front of m
 　We reached Endo-san’s house in no time. In the end, we didn’t talk about anything, and I still didn’t understand Endo-san at all.
 
 “Well, see you tomorrow.”\
-This time, when I said my goodbyes, Endo-san’s face, which had looked grumpy the whole time, became even more stern as he looked at me.
+This time, when I said my goodbyes, Endo-san’s face, which had looked grumpy the whole time, became even more stern as she looked at me.
 
 “The promise…”\
 “Hmm…?”\

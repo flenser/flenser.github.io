@@ -76,7 +76,7 @@ I undid just two buttons on my shirt.
 
 With that, Endo-san looked satisfied and pressed her lips against my collarbone. Where her lips touched, I felt a tingling pain, but the heat spread and gradually became pleasant.
 
-　As Endo-san ran her finger over the mark he’d left, I tensed up.
+　As Endo-san ran her finger over the mark she’d left, I tensed up.
 
 ‘We’re a matching pair, aren’t we?’\
 ‘You can’t call this a matching pair.’

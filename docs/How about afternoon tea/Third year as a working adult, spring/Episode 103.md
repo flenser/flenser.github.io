@@ -45,7 +45,7 @@ Seno-san, who seemed to have returned from lunch, was carrying a cute floral-pat
 
 "Yes. Thought we'd take a little break."
 
-He put the tea leaves and hot water into the teapot and set the timer.\
+I put the tea leaves and hot water into the teapot and set the timer.\
 Seno-san, humming thoughtfully as she washed the lunchbox with the lathered sponge, said in a calm voice.
 
 "...I'm relieved to see you're alright, Aosawa-san. I was a bit worried, you know."
@@ -59,7 +59,7 @@ Tilting my head, unsure what she meant, Seno-san curved her full lips into a thi
 My eyes widened in shock. My heart leapt as if seized, and I stared intently into her eyes.\
 As I froze, unable to say either YES or NO, Seno-san continued, "Don't worry."
 
-"I haven't told anyone, and I don't intend to. Kaori hasn't noticed at all either. I just thought it must have been tough for her. Things have calmed down recently, but all sorts of rumours were flying around. Still, Aosawa-san is a strong girl, isn't she?"
+"I haven't told anyone, and I don't intend to. Kaori hasn't noticed at all either. I just thought it must have been tough for you. Things have calmed down recently, but all sorts of rumours were flying around. Still, Aosawa-san you're a strong girl, aren't you?"
 
 The rinsed-off foam flowed down the drain. Realising she was speaking without any malice, I gradually regained my composure.
 

@@ -137,7 +137,7 @@ As soon as I said that and stood up briskly from the sofa, she grabbed my arm.
 “Why?”\
 “……”
 
-Endo-san looks as though he’s deep in thought, her brow furrowed—which is quite unusual for her.
+Endo-san looks as though she’s deep in thought, her brow furrowed—which is quite unusual for her.
 
 “I’ll do whatever you say, Takizawa. I want you to stay tonight.”\
 “Why do you want me to stay so badly?”\
