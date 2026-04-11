@@ -1,7 +1,6 @@
 ---
 parent: "The Colourless Purist"
 title: "Episode 2"
-nav_order: 2
 ---
 Episode 2
 
