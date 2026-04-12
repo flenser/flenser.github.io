@@ -1,5 +1,5 @@
 ---
-parent: "Broken Heart"
+parent: "Two with Broken Distance"
 title: "Episode 9"
 nav_order: 9
 ---
