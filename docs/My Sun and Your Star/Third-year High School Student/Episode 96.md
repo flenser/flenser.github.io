@@ -11,7 +11,7 @@ Ever since that day when Mai-senpai said she’d make me happy, nothing much has
 
 Does Mai-senpai really like me…? Even though we’re together, I still can’t help feeling anxious like this.
 
-　Hoshizora-sensei and Hina-senpai, who were behind us just a moment ago, have gone off to buy some food.
+　Sora-sensei and Hina-senpai, who were behind us just a moment ago, have gone off to buy some food.
 
 ‘Miumi, there’s somewhere I want to go, so come with me.’
 

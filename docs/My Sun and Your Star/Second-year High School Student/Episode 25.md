@@ -53,7 +53,7 @@ Is this how owners feel when bitten by dogs that were once obedient? It hurts so
 I replied with a rather grim expression.\
 Then Endo-san happily released my arm.
 
-"I think I understand a little of how you feel, Takizawa, wanting to get your own back like this sometimes."
+"I think I understand a little of how you feel, Takisawa, wanting to get your own back like this sometimes."
 
 Endo-san was beaming with delight, looking happier than ever.
 
@@ -204,7 +204,7 @@ Each one twinkled, as if saying, "I'm here."
 
 I doubt I'll see such a beautiful sight again anytime soon.
 
-Starry Sky (Hoshizora)
+Starry Sky (Sora)
 
 I wonder what my parents were thinking when they gave me this name.
 

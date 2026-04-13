@@ -9,7 +9,7 @@ For a little while now, I’ve been clutching the teddy bear keychain in my hand
 
 Even so, I couldn’t bring myself to let go.
 
-‘Why is Takizawa the one who’s so stiff?’
+‘Why is Takisawa the one who’s so stiff?’
 
 Endo-san spoke cheerfully, her voice tinged with laughter.
 
@@ -47,7 +47,7 @@ I spoke in a voice so soft that even Endo-san, standing beside me, couldn’t he
 
 I was anxious that my return might be an inconvenience to my parents.
 
-‘Hoshizora, welcome home—. We’ve been waiting for you.’
+‘Sora, welcome home—. We’ve been waiting for you.’
 
 Startled by those words, I looked up to see my mother, with the gentle face I’d seen so often when I was little.
 
@@ -63,7 +63,7 @@ Reassured by my mother’s attitude, I took off my shoes and headed for the livi
 
 Sunlight streamed into the living room, making it a little bright. It was a cold day, but the weather was fine.
 
-“Hoshizora, welcome home.”
+“Sora, welcome home.”
 
 A deep voice, one I wasn’t used to hearing, echoed in my ears. Being timid, I looked down again and said in a small voice, “I’m home…”
 
@@ -75,11 +75,11 @@ A silence fell that made the sound of the television seem almost deafening.
 
 Glancing sideways at Endo-san, her expression was her usual self, but the hand resting on her thigh was clenched into a tight fist.
 
-‘So, Hina-chan, that’s it, isn’t it? You’re living with Hoshizora now, aren’t you? Thank you for taking such good care of her.’
+‘So, Hina-chan, that’s it, isn’t it? You’re living with Sora now, aren’t you? Thank you for taking such good care of her.’
 
 I had told my parents that I was living with a girl named Endo Hina. That must be why they recognised the name immediately.
 
-‘Likewise, Hoshizora-san always takes such good care of me.’
+‘Likewise, Sora-san always takes such good care of me.’
 
 She was smiling, but this wasn’t the Endo-san I usually knew.
 
@@ -89,7 +89,7 @@ However, Endo-san seemed to be saying my worries were unnecessary; after giving 
 
 She took such a deep, obvious breath that I felt everyone except Endo-san had actually held their breath.
 
-“I’m in a relationship with Takizawa Hoshizora. I want to be with her forever.”
+“I’m in a relationship with Takisawa Sora. I want to be with her forever.”
 
 Her blunt confession made my heart race and my breathing go haywire.
 
@@ -109,7 +109,7 @@ Thoughts of them telling me to stop living with her, or to cut ties with Endo-sa
 
 But, paying no heed to my feelings, Endo-san continued speaking.
 
-‘I’ve come today to ask for Hoshizora’s hand in marriage—’
+‘I’ve come today to ask for Sora’s hand in marriage—’
 
 As soon as she finished speaking, the tension drained from Endo-san’s hands, and her expression softened.
 
@@ -134,7 +134,7 @@ He has always been a father of great dignity.
 
 Yet there he was, making a clumsy smile as he looked at Endo-san.
 
-‘I’m not in a position to say anything so presumptuous, but… please look after Hoshizora.’
+‘I’m not in a position to say anything so presumptuous, but… please look after Sora.’
 
 He bowed deeply, his head remaining lowered for a while. My mother bowed her head in unison.
 
@@ -154,7 +154,7 @@ Before leaving, Endo-san went to the loo.
 
 　Once Endo-san was gone, the conversation stopped abruptly, and the silence that had hung in the air earlier spread once more.
 
-‘Hoshizora—’
+‘Sora—’
 
 My father spoke to me in a slightly heavy tone, causing my body to tense up. When I turned to look at him, I saw a small red parcel sitting on the table.
 
@@ -179,7 +179,7 @@ Just as I was vigorously wiping the tears welling up in my eyes, Endo-san return
 
 My mother said this to Endo-san in a gentle voice. Endo-san replied happily, ‘Yes.’
 
-‘Hoshizora, take care of yourself. If anything happens, please don’t hesitate to get in touch.’
+‘Sora, take care of yourself. If anything happens, please don’t hesitate to get in touch.’
 
 My mother spoke to me in a firm voice this time, so I stood up straight and replied simply, ‘Yes.’
 

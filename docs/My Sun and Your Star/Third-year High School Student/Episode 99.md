@@ -21,14 +21,14 @@ Endo-san was sitting next to me.
 
 I couldn’t quite understand Mai’s behaviour; surely she could have just swapped with Endo-san?
 
-‘Takizawa, what happened?’\
+‘Takisawa, what happened?’\
 ‘Mai said she wanted a window seat, so she asked me to swap with her.’
 
 　I sat down next to Endo-san. I sat down so abruptly that my shoulder bumped into hers.
 
 ‘It’s a long journey; shall we do something?’\
 ‘What do you mean, “do something”? What can we do?’\
-‘Takizawa, do you watch anime or anything?’\
+‘Takisawa, do you watch anime or anything?’\
 ‘I don’t watch much anime, but I do watch films.’\
 ‘Right, shall we watch a film then?’
 
@@ -37,7 +37,7 @@ I couldn’t quite understand Mai’s behaviour; surely she could have just swap
 　The film Endo-san played was set in the Warring States period. I’d always imagined Endo-san as the type who’d like romantic dramas or something like that, so this was a surprise.
 
 “So you watch this sort of thing, Endo-san?”\
-“Ever since Takizawa helped me with my studies, I’ve come to like films like this that feature historical figures.”
+“Ever since Takisawa helped me with my studies, I’ve come to like films like this that feature historical figures.”
 
 　I glanced sideways at Endo-san and saw her smiling happily.\
 　Seeing that, I felt a little relieved and watched the video she’d put on. She didn’t seem to have the same expression she’d had during our last homeroom period.
@@ -57,7 +57,7 @@ I couldn’t quite understand Mai’s behaviour; surely she could have just swap
 ‘It really does make you a bit more interested when you see it in person, doesn’t it?’\
 Mai said this cheerfully, though I’m a bit suspicious as to whether she really meant it.
 
-‘That’s true. There are loads of things here that make you realise the stories Takizawa told us were actually true.’\
+‘That’s true. There are loads of things here that make you realise the stories Takisawa told us were actually true.’\
 ‘Does that mean you didn’t believe what I said?’
 
 When I asked that half-jokingly, Mai and Endo exchanged glances and burst out laughing.
@@ -142,11 +142,11 @@ There were plenty of other empty spots, so why did she go out of her way to stan
 
 　And yet, even though I knew I shouldn’t look, I couldn’t take my eyes off Endo-san. When I looked at Endo-san’s body, my heart pounded so loudly it echoed in my head.
 
-“Takizawa, you pervert. You’re staring too much.”
+“Takisawa, you pervert. You’re staring too much.”
 
 　Saying that, she suddenly pretended to cover himself, which made me feel even more embarrassed, so I aimed the shower at Endo-san to avoid looking at her face.
 
-“Takizawa, you do things like that?”
+“Takisawa, you do things like that?”
 
 　She looked really surprised, but there was a hint of amusement in her expression. Somehow, I felt like I was the only one who wasn’t keeping my cool, and I began to hate being here.
 
@@ -157,9 +157,9 @@ There were plenty of other empty spots, so why did she go out of her way to stan
 As the bath had an open-air section, we decided to make the most of it. By then, other students were starting to trickle in.
 
 ‘Blimey, this open-air bath is brilliant, isn’t it?’\
-‘It feels lovely. What do you think, Takizawa?’\
+‘It feels lovely. What do you think, Takisawa?’\
 ‘It feels lovely. It’s making me sleepy.’\
-‘Hoshizora, if you fall asleep here, you’ll die.’\
+‘Sora, if you fall asleep here, you’ll die.’\
 ‘I won’t fall asleep.’\
 ‘Hehe, you and Mai really are close, aren’t you?’
 
@@ -194,7 +194,7 @@ Endo-san was using her signature tactic of turning the question back on her.
 “huh?” “What?”\
 Once again, our voices harmonised.
 
-“Eh, Miumi? The junior in the basketball club who Takizawa tutors?”\
+“Eh, Miumi? The junior in the basketball club who Takisawa tutors?”\
 “Yeah.”\
 “Since when? Why? Who made the first move?”\
 Endo-san was asking the questions with a rare look of seriousness on her face.
@@ -247,7 +247,7 @@ My heart started pounding at those words.\
 　It felt similar to the anxiety you get when you’ve done something wrong and are worried you’ll get caught.\
 For some reason, Mai was grinning from ear to ear.
 
-“Now, now, don’t pick on Takizawa too much.”\
+“Now, now, don’t pick on Takisawa too much.”\
 Endo-san said that and came to my rescue.\
 For that moment, she looked like a goddess to me.
 
@@ -260,7 +260,7 @@ She looked straight at me, giving me a peace sign. I’ve known Mai since our fi
 “Well… why are you so cute?”\
 　Mai threw herself into my arms with gusto. Then she looked at me with a slightly serious expression.
 
-“Let me know when you’ve found someone you like too, Hoshizora?”\
+“Let me know when you’ve found someone you like too, Sora?”\
 “……Yeah.”\
 　As soon as Mai finished speaking, Endo-san tugged at my arm. I wonder if she’s in such a hurry to get to dinner.
 

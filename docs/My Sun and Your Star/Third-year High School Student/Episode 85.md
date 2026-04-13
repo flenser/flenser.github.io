@@ -29,7 +29,7 @@ I just wanted to do something only I could do for her. I thought that if I did, 
 　Whilst we were preparing to lay out the food Mayo-nee and the others had bought, Hikari-san spoke up. Neither of us said a word, and an even more tense atmosphere began to hang in the room.
 
 “Let’s have a party! A party!”\
-“I’ll get the cups, chopsticks and plates ready. Takizawa, will you help?”
+“I’ll get the cups, chopsticks and plates ready. Takisawa, will you help?”
 
 　At times like this, Hikari-san’s cheerfulness manages to shift the mood. As if in response, Endo-san returned to her usual self and spoke to us.
 
@@ -64,7 +64,7 @@ I just wanted to do something only I could do for her. I thought that if I did, 
 “Why do you want to do it?”\
 “It doesn’t matter, does it?”\
 “Pervert…”\
-“I don’t want to hear that, especially since Takizawa did it just now.”
+“I don’t want to hear that, especially since Takisawa did it just now.”
 
 My heart was pounding, as if pleading with me. Endo-san has never left a hickey on me before. Just hearing her say that for the first time made it hard to breathe.
 
@@ -91,7 +91,7 @@ With that, Endo-san looked satisfied and pressed her lips against my collarbone.
 
 　Saying that, Endo-san wrapped her arm around the back of my head and pulled me closer. That ‘one more thing’ must be the time I bit her neck.
 
-‘Takizawa, your cheeks are red… you’re so cute…’
+‘Takisawa, your cheeks are red… you’re so cute…’
 
 　She whispered in my ear.\
 　I’m not cute. They’re not red at all.\

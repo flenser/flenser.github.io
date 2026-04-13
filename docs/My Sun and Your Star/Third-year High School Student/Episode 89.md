@@ -24,7 +24,7 @@ Just as I was wondering why Endo-san was fidgeting whilst studying, she suddenly
 
 　I brushed Endo-san’s hand away coldly. Normally, if someone did that to me, I’d be hurt or sad, but she was just smiling as if to say she didn’t care.
 
-“I’ve cast a spell so you can do your best tomorrow. You’ll be fine, Takizawa.”
+“I’ve cast a spell so you can do your best tomorrow. You’ll be fine, Takisawa.”
 
 　Does she think I’m a kindergarten kid or something, that I’d be happy just because she patted my head? Endo-san has this strange confidence in the oddest places; I just don’t get her.
 
@@ -39,7 +39,7 @@ Yet, those foolish words warm my heart. I’m always troubled by this conflict o
 　It feels warm, or cold, or suffocating, or irritating at times, but all of it accumulates in my chest, shaping me into the person I am.
 
 ‘You don’t need to wait for me.’\
-‘I’ll wait. Whatever the outcome, I’ll be by your side, Takizawa.’
+‘I’ll wait. Whatever the outcome, I’ll be by your side, Takisawa.’
 
 　Endo-san said whatever she fancied and went back to her studies.\
 I clenched my eyes shut, trying to stop the warm liquid from succumbing to gravity. I’m glad Endo-san went back to studying. I don’t want her to see my face right now.
@@ -55,12 +55,12 @@ The next morning, though I’d steeled myself for it, I dragged my body out of b
 The sun began to set, and the light streaming through the window gradually took on a reddish hue.\
 I heard a knock, knock on the door.
 
-‘Hoshizora? Can I come in?’\
+‘Sora? Can I come in?’\
 ‘Yeah…’
 
 　As soon as Mayo-nee came in, she gave me a wry smile and rubbed my back.
 
-‘You’ve got quite a terrible look on your face, Hoshizora.’\
+‘You’ve got quite a terrible look on your face, Sora.’\
 ‘Honestly, I'm suspicious of your nerves for being able to look normal right now.’
 
 　Mayo-nee smiled this time and gave my back a few firm pats. It hurt, but it felt as though the lump in my chest and throat had eased just a little.
@@ -76,7 +76,7 @@ I heard a knock, knock on the door.
 
 I couldn’t help but feel anxious, wondering why I was here, or whether they were treating me as if I weren’t even there. I was curious to see the expressions on their faces, but my fear got the better of me, and I couldn’t bring myself to look up.
 
-‘Dad, Mum, thank you for making time for us today, even though it’s your day off. Hoshizora and I have something to tell you.’
+‘Dad, Mum, thank you for making time for us today, even though it’s your day off. Sora and I have something to tell you.’
 
 　My older sister Mayo looked at me. It was a signal to take over, and her face sent me a look of encouragement, urging me on.
 
@@ -97,7 +97,7 @@ I spoke whilst looking firmly into Mum and Dad’s faces. When I did, their expr
 
 　My turn was over, and I passed the baton to my older sister, Mayo. She took it, patted me on the back, and continued the conversation.
 
-‘Dad, Mum, I’m sorry. I can’t take over Dad’s practice either. My dream of becoming a doctor hasn’t changed, but I want to study more extensively in a larger institution so I can save as many people as possible. You can abandon me if you must, but please, not Hoshizora…’
+‘Dad, Mum, I’m sorry. I can’t take over Dad’s practice either. My dream of becoming a doctor hasn’t changed, but I want to study more extensively in a larger institution so I can save as many people as possible. You can abandon me if you must, but please, not Sora…’
 
 Mayo’s voice was trembling, and I couldn’t hide my surprise. Even for someone who seemed to fear nothing, being abandoned by her parents must be terrifying.
 
@@ -109,13 +109,13 @@ Saying this, Mayo looked straight at our parents, her expression showing that sh
 
 　The faint ticking of the clock’s hands was the only sound echoing through the room. I had no idea how much time had passed, but my father took off his glasses and took a deep breath, mixed with a sigh. My ears began to focus on the sound of his breathing.
 
-‘—Hoshizora, I’m sorry for everything up until now. It’s not something that can be undone with an apology, so I don’t intend to beg for your forgiveness at this late stage. As for Touko and me, we’ve been treating our own children all wrong this whole time.’
+‘—Sora, I’m sorry for everything up until now. It’s not something that can be undone with an apology, so I don’t intend to beg for your forgiveness at this late stage. As for Touko and me, we’ve been treating our own children all wrong this whole time.’
 
 ‘Dear—!’
 
 　Mum shouted, trying to stop Dad from speaking, and I flinched in fear. Dad grabbed Mum’s shoulders and tried to sit her down.
 
-‘Touko… it’s about time we admitted it. We’ve never tried to change ourselves, nor have we tried to change things. We’ve never tried to get involved or face up to things. I think we’ve become pathetic adults… and yet, even so, Hoshizora is still here, trying to face things with us.’
+‘Touko… it’s about time we admitted it. We’ve never tried to change ourselves, nor have we tried to change things. We’ve never tried to get involved or face up to things. I think we’ve become pathetic adults… and yet, even so, Sora is still here, trying to face things with us.’
 
 My father looked at me with an expression so wretched I could hardly believe it. That makes me feel as though I’m the one at fault, so I don’t want him to look at me like that. Yet Dad continued speaking, his expression unchanged.
 
@@ -123,7 +123,7 @@ My father looked at me with an expression so wretched I could hardly believe it.
 
 　My father breathed in and out, and as he did, the strength drained from his neck and shoulders all at once. He went on speaking with his head bowed.
 
-“By the time I realized that was the wrong path, I no longer knew how to be involved with Hoshizora. I pushed all of my responsibilities onto Mayo. I took out my frustrations on Touko every day. Our family was falling apart — because of me. It's all my fault... It cannot be forgiven. But please, let me say this…”
+“By the time I realized that was the wrong path, I no longer knew how to be involved with Sora. I pushed all of my responsibilities onto Mayo. I took out my frustrations on Touko every day. Our family was falling apart — because of me. It's all my fault... It cannot be forgiven. But please, let me say this…”
 
 　Father stepped down from his chair, turned to face us, and prostrated himself on the floor, his forehead pressed against the ground.
 
@@ -137,7 +137,7 @@ Whilst everyone remained frozen in this situation, my older sister Mayo spoke ca
 
 　This time, unlike his expression just moments before, he looked me straight in the eye as she spoke.
 
-‘Hoshizora, thank you for facing us properly, even though we’re such hopeless parents. And I’m glad you’ve found what you truly want to do.’
+‘Sora, thank you for facing us properly, even though we’re such hopeless parents. And I’m glad you’ve found what you truly want to do.’
 
 　I felt a warmth welling up in my eyes, but I held it back, gave a slight nod, and looked down. I’d always hated my parents, yet now that feeling had vanished somewhere.
 
@@ -174,11 +174,11 @@ I simply said, ‘Thank you.’ I didn’t think any further words were necessar
 
 　Mum hadn’t spoken a word since earlier. She showed no reaction to Father’s words either.
 
-“Mayo, Hoshizora, thank you for making time for me today.”
+“Mayo, Sora, thank you for making time for me today.”
 
 Father bowed his head deeply once more.
 
-And so, our Takizawa family meeting came to an end.
+And so, our Takisawa family meeting came to an end.
 
 * * *
 
@@ -203,7 +203,7 @@ I smiled slightly as I chatted with Mayo-nee and headed for the front door.
 
 　I suppose that’s how I look to her, too.
 
-“Hoshizora, thank you for doing your best. It was because you were there that we could all talk as a family.”
+“Sora, thank you for doing your best. It was because you were there that we could all talk as a family.”
 
 　Mayo-nee gave me a gentle hug. No matter how many years pass, my sister’s warmth never changes; it calms me and makes me realise just how much I love her.
 

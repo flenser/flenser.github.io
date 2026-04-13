@@ -104,7 +104,7 @@ Scarf and all, I was drawn into her arms, and she pressed her lips to mine.
 
 　As the heat I didn’t want to let go of receded, Endo-san’s face, which had been blurred until just a moment ago, came into clear view. Tears were welling up in Endo-san’s eyes too, hovering on the very brink of spilling over. When she smiled slowly and gently, they fell all at once.
 
-‘I love you too, Takizawa—’
+‘I love you too, Takisawa—’
 
 At those words, my heart began to beat so fast and fiercely that it felt as though it might burst right out of my chest.
 
@@ -119,7 +119,7 @@ I thought it was a rather well-made dream.
 
 Endo-san held me tight and gently, tears spilling from her eyes in an unstoppable stream. Her warmth reached me, and the body that had been cold and numb just moments before was now pulsing with heat from head to toe.
 
-‘I’ve finally said it. It was so painful not being able to say it for so long. I was scared that if I told you, Takizawa might just disappear.’
+‘I’ve finally said it. It was so painful not being able to say it for so long. I was scared that if I told you, Takisawa might just disappear.’
 
 Does Endo-san feel the same way as me?
 

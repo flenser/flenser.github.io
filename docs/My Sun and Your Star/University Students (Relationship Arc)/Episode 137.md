@@ -15,7 +15,7 @@ The day before Endo-san's birthday, I finished the shopping I needed and walked 
 I walked the familiar road home, those thoughts held close.
 
 "I'm home."\
-"Takizawa, welcome back. I was waiting."
+"Takisawa, welcome back. I was waiting."
 
 Endo-san came to meet me the moment I got in.\
 She was wearing her indoor clothes, but her hair was half-up — different from usual — and my heart made itself heard.
@@ -23,7 +23,7 @@ She was wearing her indoor clothes, but her hair was half-up — different from 
 Without my saying it was alright, she clung to me of her own accord and looked delighted.\
 Like a dog that had been waiting all day for its owner to come home. I could practically see the tail wagging.
 
-"It's alright, isn't it, Takizawa?"\
+"It's alright, isn't it, Takisawa?"\
 "What is."\
 "Coming into your room this afternoon."\
 "We can just spend time on the sofa, can't we."\
@@ -57,7 +57,7 @@ I'd practised with Ranka's help for this, so I thought it would be alright. I'd 
 
 When I arranged the food on the table, Endo-san's face was one of disbelief.
 
-"Takizawa made this?"\
+"Takisawa made this?"\
 "If you don't want it I'll eat it all myself."\
 "I'm absolutely not giving it up."
 
@@ -104,13 +104,13 @@ Being with Endo-san wrapped me in an unbelievable happiness — and right beside
 
 We cleaned up too, and then the hour I'd been quietly dreading arrived.
 
-"It's alright, isn't it, Takizawa?"\
+"It's alright, isn't it, Takisawa?"\
 "You're the one who said you wanted to come in."\
 "Excuse me for intruding..."
 
 The moment she entered, Endo-san walked around my not-especially-small room with sparkling eyes. She always does that when she comes to my room — moves happily around it.
 
-"Takizawa, let's get into bed together?"
+"Takisawa, let's get into bed together?"
 
 Endo-san pulled my arm and I had no choice but to get in.
 
@@ -180,7 +180,7 @@ If she knew my true feelings — would she find them repulsive and leave?
 
 *I just want her to wear this and let me feel that she's* mine *for as long as she's willing to be with me.* That was my wish.
 
-"Takizawa, that tickles. I want to see it in a mirror — can I get out of bed for a second?"
+"Takisawa, that tickles. I want to see it in a mirror — can I get out of bed for a second?"
 
 Endo-san made some excuse and tried to move away from me. But right now I didn't want to let her go.
 
@@ -215,7 +215,7 @@ Endo-san's cheeks were flushed and she was pretending to be cross — and yet he
 
 She had no idea what was really in my heart. That's why she could be so genuinely happy. If she knew my true feelings — would she find them disgusting and pull away?
 
-"Takizawa, why did you choose a necklace?"\
+"Takisawa, why did you choose a necklace?"\
 "I'm not telling."\
 "Tell me."\
 "...You won't hate me?"

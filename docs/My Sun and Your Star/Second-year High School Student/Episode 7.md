@@ -36,7 +36,7 @@ Her voice startled me, and I quickly shifted my gaze back to my notebook.
 
 I'd braced myself, expecting her to bring up the rooftop incident or the handkerchief. But, as if to defy my expectations, Endo-san barely made small talk and just studied.
 
-"I suppose I want to grow up quickly. But I'm happier that Takizawa took an interest in me."
+"I suppose I want to grow up quickly. But I'm happier that Takisawa took an interest in me."
 
 She said this with a shy smile. Her expression made it hard to tell if she was joking or serious.
 
@@ -69,7 +69,7 @@ No matter what I said, her smile didn't falter. Though I'd spent more time with 
 
 She should at least make a displeased face, or look distressed... Perhaps I was a bit strange for thinking such things. But it was precisely because I sensed no humanity in her that I felt this way. Endo-san was always like a smiling doll.
 
-"Exams are in a week, aren't they? Think you'll top the class again, Takizawa?"\
+"Exams are in a week, aren't they? Think you'll top the class again, Takisawa?"\
 "Who knows. Anyway, how long are you going to keep following me?" "\
 "I told you my house is this way."
 
@@ -81,7 +81,7 @@ Early June, just before the rainy season, the air was already muggy though the r
 
 　Sitting on a park bench, Endo-san sat down beside me, and an unspoken silence stretched on.
 
-"Takizawa, you really don't remember anything?"\
+"Takisawa, you really don't remember anything?"\
 "What are you talking about?"\
 "This park, for example..."
 
@@ -89,11 +89,11 @@ Endo-san started talking about something baffling again. This park is one I ofte
 
 　If you asked if I liked it, I wouldn't say I did. It felt more like a dumping ground for my negative emotions.
 
-"This handkerchief... Takizawa gave it to me here."
+"This handkerchief... Takisawa gave it to me here."
 
 "Eh?"
 
-"Huh. You really don't remember? You idiot, Takizawa!"
+"Huh. You really don't remember? You idiot, Takisawa!"
 
 It was a story I had absolutely no recollection of. And being called an idiot was deeply unfair. I'm smarter than Endo-san, after all.
 
@@ -105,7 +105,7 @@ She started running and left the park. I thought about chasing after her, but my
 
 I stood there helplessly, unable to do anything, and could only go home quietly.
 
-'This handkerchief... Takizawa gave it to me here.'
+'This handkerchief... Takisawa gave it to me here.'
 
 　That phrase kept nagging at me. I got into bed but couldn't sleep at all. It really was something I had no recollection of... Still, it bothered me, so I decided to ask.
 

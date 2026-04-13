@@ -5,7 +5,7 @@ nav_order: 69
 ---
 Episode 69: Bonus – The Switch
 
-‘Takizawa, sorry, I’ve forgotten my textbook. Can I see yours…?’
+‘Takisawa, sorry, I’ve forgotten my textbook. Can I see yours…?’
 
 Endo-san speaks to me in a low voice.\
 We’re in a modern Japanese literature lesson right now, and everyone looks sleepy.

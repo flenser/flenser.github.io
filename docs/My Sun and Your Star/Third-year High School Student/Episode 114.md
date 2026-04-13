@@ -23,7 +23,7 @@ Knock knock
 
 　There was a knock at the door, and I was so startled I bumped my foot against the desk.
 
-‘Hoshizora, would you like to have some New Year’s Eve soba with us tonight?’
+‘Sora, would you like to have some New Year’s Eve soba with us tonight?’
 
 　My father spoke to me through the door. I thought to myself, he could just open the door and talk to me.
 
@@ -34,7 +34,7 @@ Knock knock
 　I’m very happy about it, and I’m sure that’s what I’d wished for, but I’ve been unable to shake this nagging sense of unease, and I’ve often found it hard to accept their efforts wholeheartedly.
 
 ‘Could you give me a moment to think about it…?’\
-‘Of course. I’ve already prepared a portion for you, Hoshizora, so don’t feel you have to turn it down.’
+‘Of course. I’ve already prepared a portion for you, Sora, so don’t feel you have to turn it down.’
 
 　My father simply went downstairs.
 

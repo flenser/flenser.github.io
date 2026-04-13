@@ -27,7 +27,7 @@ Endo-san looks a bit thinner… I wonder if she’s eating properly.
 
 Perhaps because I was staring too intently, our eyes met, so I quickly looked away.
 
-‘Hoshizora, aren’t you staring at Hina a bit too much?’\
+‘Sora, aren’t you staring at Hina a bit too much?’\
 ‘Not at all.’\
 ‘Oh, right, right. It’s already November, isn’t it? Time flies. Next year we’ll be sitting our entrance exams, it’s a bit of a drag, isn’t it?’
 
@@ -97,13 +97,13 @@ Well then, I suppose I can give it to her now.
 I don’t know what Endo-san actually wants.\
 But she did say the pencil case we were looking at earlier was cute, so I reckon that’ll be fine, and well, the handkerchief is just a bonus, so it doesn’t matter if she doesn’t like it.
 
-“Is this the one from earlier…? And the handkerchief? It looks a bit like the yellow one Takizawa gave me before, doesn’t it?”\
+“Is this the one from earlier…? And the handkerchief? It looks a bit like the yellow one Takisawa gave me before, doesn’t it?”\
 “My big sister taught me how to embroider, so I had a go at making it. I practised, but it’s not cute at all, so if you don’t want it, you can just throw it away.”\
 “I definitely won’t throw it away, I’ll treasure it.”
 
 Saying that, Endo-san clutched the handkerchief tightly.
 
-‘When’s Takizawa’s birthday?’\
+‘When’s Takisawa’s birthday?’\
 ‘I’m not telling you. I don’t want any thanks or anything.’\
 ‘Then why did you give it to me?’\
 ‘Just on a whim.’
@@ -121,7 +121,7 @@ It was amusing in its own way, so I thought, ‘Oh well,’ but I’d have liked
 
 Ever since we started studying at Endo-san’s house, she’s been acting strangely restless for some reason. I feel like she keeps glancing over at me.
 
-‘Takizawa, are you busy in December?’\
+‘Takisawa, are you busy in December?’\
 ‘Do you think I’ll be busy?’
 
 Endo-san is being mean. I’m not in any clubs and I don’t have many friends, so there’s no way I’d have plans like that, yet she brings it up.

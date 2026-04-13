@@ -7,7 +7,7 @@ Episode 87: Preparing for the Family Meeting (4)
 
 The preparations were successfully completed, and everyone decided to have a bath. Hikari-san and Mayo-nee rushed into the bathroom and came straight back out. Apparently, it was because they wanted to talk to Endo-san. I felt a bit miffed, wondering if there was nothing they wanted to say to me.
 
-‘Takizawa, you can go in first.’
+‘Takisawa, you can go in first.’
 
 With Endo-san telling me that, I headed for the bathroom, still feeling a bit put out. As I undressed, thinking about all that had happened today, there was a knock at the bathroom door, and my sister asked if she could come in.
 
@@ -41,7 +41,7 @@ Did my sister look at my body?　I think she grabbed the shampoo straight away a
 
 　I wanted to ask my sister about the hickey, but I knew it would be asking for trouble, and I was nervous that she might ask me about it in return.
 
-‘Hoshizora-chan, you’ve really changed, haven’t you? It’s like you used to be all floppy, but now you’ve got a real spring in your step.’
+‘Sora-chan, you’ve really changed, haven’t you? It’s like you used to be all floppy, but now you’ve got a real spring in your step.’
 
 　Hikari-san’s comment instantly deflated the tension that had been building. I didn’t understand her onomatopoeia at all, but I knew full well that the ‘past me’ she was referring to wasn’t exactly being praised.
 
@@ -54,13 +54,13 @@ Did my sister look at my body?　I think she grabbed the shampoo straight away a
 　I knew answering that would probably lead to more troublesome questions, but it was the truth. My life began to change from the day I met Endo-san on the rooftop.\
 　I can’t help but be grateful, even if I don’t want to.
 
-‘What does Hina-chan mean to you, Hoshizora?’\
+‘What does Hina-chan mean to you, Sora?’\
 ‘……Someone important.’\
 ‘That is…’
 
 　Mayo-nee looked troubled after I answered that far. As soon as her questions stopped, Hikari-san’s began.
 
-‘Hoshizora-chan, what sort of relationship do you want to have with Hina-chan?’\
+‘Sora-chan, what sort of relationship do you want to have with Hina-chan?’\
 ‘What sort of relationship?’\
 ‘Hmm, for example, do you want to go out and have fun together a lot, like friends…?’
 
@@ -99,7 +99,7 @@ That question made my heart clench. We’re at the same high school now, and sin
 
 “Where are the other two?”\
 “Hikari-san looked like she’d had enough, so they went to the bedroom.”\
-“I see. Are you going to bed too, Takizawa?”
+“I see. Are you going to bed too, Takisawa?”
 
 When I glanced over at Endo-san, I could see, now that she'd had a bath, what I had left on her neck, no longer hidden.
 
@@ -113,7 +113,7 @@ When I glanced over at Endo-san, I could see, now that she'd had a bath, what I 
 
 The thought that Endo-san might have a friend she sleeps this close to made me feel a little irritated, and I ended up saying something so childish.
 
-“Sorry, I lied. I don’t sleep with my friends. But… I want to sleep with Takizawa.”
+“Sorry, I lied. I don’t sleep with my friends. But… I want to sleep with Takisawa.”
 
 　It’s always like this. She says embarrassing things like that with a completely serious expression. Why does she say things like that? I never really understand how Endo-san feels.
 
@@ -131,13 +131,13 @@ The thought that Endo-san might have a friend she sleeps this close to made me f
 
 　I tried to shake off Endo-san’s hand, but she wouldn’t let go.
 
-‘Takizawa, I have to hold you like this or you’ll run away.’
+‘Takisawa, I have to hold you like this or you’ll run away.’
 
 　I wouldn’t run away even if she didn’t do that, and having my hand held made my face flush, making me want to move away even more.
 
-‘Takizawa, what’s your question?’\
+‘Takisawa, what’s your question?’\
 ‘……Which prefecture are you going to university in?’\
-‘……I can’t answer that right now. But I’ll tell you properly, Takizawa.’\
+‘……I can’t answer that right now. But I’ll tell you properly, Takisawa.’\
 “Why can’t you tell me now?”
 
 　…………
@@ -156,14 +156,14 @@ I actually wanted to ask if she’d still want to see me even after she went to 
 
 In fact, the only reason Endo-san needs me is because I can help her with her studies. I can’t think of any other reason why she needs me.
 
-“Well then, even if you go to university, Takizawa, you’ll have to teach me…”
+“Well then, even if you go to university, Takisawa, you’ll have to teach me…”
 
 　Endo-san let go of my hand and pulled me into a hug.\
 　The suddenness of it made me hold my breath. As I held my breath, I suddenly began to hear the sound of my heart beating, and my consciousness gathered at the centre of my body.
 
 　I don’t know how long we stayed like that, but Endo-san spoke.
 
-‘About that question earlier… actually, I’d like to go to a university near the one you want to attend, Takizawa. That way, I can get closer to what I want to do in the future, and you can still help me with my studies, right? It’s just that my grades aren’t nearly good enough at the moment, so I couldn’t bring myself to say it. I was planning to tell you once I’d reached a level where I could get in.’
+‘About that question earlier… actually, I’d like to go to a university near the one you want to attend, Takisawa. That way, I can get closer to what I want to do in the future, and you can still help me with my studies, right? It’s just that my grades aren’t nearly good enough at the moment, so I couldn’t bring myself to say it. I was planning to tell you once I’d reached a level where I could get in.’
 
 ‘…Even if you did get in there, once we’re at university, if we’re in different faculties, we’ll be studying different subjects, so I won’t be able to help you with your studies.’
 
@@ -176,13 +176,13 @@ In other words, I’m not needed.
 
 As she said that, Endo-san hugged me tightly. Her grip was stronger than usual, and it felt a little suffocating.
 
-‘I want to go there because I want to see you, Takizawa, even after I start university…’
+‘I want to go there because I want to see you, Takisawa, even after I start university…’
 
 　I could hardly believe my ears when I heard Endo-san’s words. Does Endo-san want to see me too? Why? How come? There are so many things I want to ask.
 
 ‘Why is that? Is it because we’re friends?’
 
-‘It’s because it’s you, Takizawa.’
+‘It’s because it’s you, Takisawa.’
 
 　My heart was pounding so loudly that my concentration on the conversation with Endo-san was fading fast.
 
@@ -204,7 +204,7 @@ It’s all because Endo-san says so many strange things.
 
 　I pushed Endo-san’s body away from mine and looked at her. It was dark, with only the night light on, but my eyes had adjusted enough for me to make out her face. I stroked her slightly flushed cheeks. her soft cheeks felt cold, so I pressed my warm hand against them.
 
-‘Takizawa, won’t you want to see me after you finish high school?’
+‘Takisawa, won’t you want to see me after you finish high school?’
 
 That’s a sneaky question… I didn’t want to answer, so I leaned over her and stole a kiss.
 
@@ -217,9 +217,9 @@ When our lips parted, a wave of loneliness washed over me, and I found myself cr
 
 I ask Endo-san the very same question my sister asked me a moment ago.
 
-‘What do I mean to you, Takizawa?’\
+‘What do I mean to you, Takisawa?’\
 ‘No answering a question with a question.’\
-‘But you, Takizawa, asked me a question without answering mine.’
+‘But you, Takisawa, asked me a question without answering mine.’
 
 　She’s right, of course. I can’t even bring myself to say the simple words ‘I want to see you’.
 
@@ -237,7 +237,7 @@ I regretted saying it. I was so embarrassed I felt like my face was on fire. End
 
 Feeling embarrassed, I turned my back on Endo-san. But, as always, Endo-san acted as if my embarrassment didn’t exist.
 
-“Takizawa, if what you just said is true, stay with me even when we’re at university.”
+“Takisawa, if what you just said is true, stay with me even when we’re at university.”
 
 Hearing those words, I felt a slow, warm sensation in my chest. For me, those words were the happiest thing of all.\
 　Perhaps the time I spend with Endo-san might continue even after I start university. Just thinking that warms my heart and puts me at ease.

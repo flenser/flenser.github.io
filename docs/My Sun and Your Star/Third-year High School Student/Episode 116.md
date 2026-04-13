@@ -16,7 +16,7 @@ Episode 116: New Year’s Shrine Visit
 ‘Endo-san, did you manage to get any sleep?’\
 ‘Not a bit.’\
 ‘Why not?’\
-‘It’s all Takizawa’s fault.’
+‘It’s all Takisawa’s fault.’
 
 　Ever since yesterday, Endo’s been blaming everything on me. Yet, even this little exchange feels pleasant to me right now. When did I become such a strange person?
 
@@ -50,9 +50,9 @@ I've never seen Endo-san match with anyone else — which means this is only for
 　I spoke to her in a slightly annoyed tone, fed up with her constant chatter, but Endo-san simply pulled the scarf closer, drew my face towards hers, and pressed her lips against mine.
 
 ‘Don't do things without asking…’\
-‘This is the best way to shut me up, isn’t it? When I’m being a nuisance, Takizawa should just shut me up like this.’\
+‘This is the best way to shut me up, isn’t it? When I’m being a nuisance, Takisawa should just shut me up like this.’\
 ‘You just want to kiss me, don’t you? You perverted kiss-fiend.’\
-‘It’s because it’s you, Takizawa, that I want to…’
+‘It’s because it’s you, Takisawa, that I want to…’
 
 　At those words, I caught my breath. My chest tightened and pounded. Without understanding why it had to be me, or why my chest felt so tight, I ignored her and went outside.
 
@@ -81,7 +81,7 @@ Endo-san was hiding her face in her scarf just like me. Just when I thought she 
 
 I was out of breath, and as I climbed higher, I found myself struggling to breathe, yet my body remained cold - a strange sensation had taken hold of me. When I reached the top of the stairs, the entrance to the shrine came into view straight ahead.
 
-‘Puff, puff… Takizawa, you’re surprisingly fit, aren’t you? Let’s do some sport together next time.’\
+‘Puff, puff… Takisawa, you’re surprisingly fit, aren’t you? Let’s do some sport together next time.’\
 ‘No way, I’m rubbish at exercise.’\
 ‘Well then, just watch me do sport.’\
 “Why?”\
@@ -116,7 +116,7 @@ Still, I simply couldn’t help but make the wish.
 
 　I bowed politely and stepped out of the queue.
 
-‘Takizawa, that took a while. What did you ask for?’\
+‘Takisawa, that took a while. What did you ask for?’\
 ‘If I say, it won’t come true.’
 
 　Endo-san looked a little surprised. Had I said something odd?
@@ -135,7 +135,7 @@ Still, I simply couldn’t help but make the wish.
 
 　I didn’t have the confidence that I could stay by Endo’s side on my own, so I asked for a little help, even if just a bit.
 
-‘Once the national exams are over, there’s somewhere I want to take you, Takizawa. Could you keep half a day free?’\
+‘Once the national exams are over, there’s somewhere I want to take you, Takisawa. Could you keep half a day free?’\
 ‘Where are we going?’\
 ‘I’ll tell you then.’
 
@@ -161,7 +161,7 @@ The unusually subdued way Endo-san said it made it impossible to refuse. Once th
 
 As soon as I said that, Endo shook her head vigorously and hurriedly went and got the same charm.
 
-‘Here, this is for Takizawa.’
+‘Here, this is for Takisawa.’
 
 I don’t really believe in charms, but the one Endo gave me felt just a little bit warm.
 
@@ -169,7 +169,7 @@ Endo kept looking at the charm I’d given her with a delighted expression. It w
 
 “Ouch, my cheek!”\
 “It’s your own fault for pulling a funny face.”\
-“Takizawa! Let’s go to that stall over there! I’ve only just eaten soba, but I’m already hungry again. I want to try some ohayaki and candy floss, and there’s a shooting gallery too!”\
+“Takisawa! Let’s go to that stall over there! I’ve only just eaten soba, but I’m already hungry again. I want to try some ohayaki and candy floss, and there’s a shooting gallery too!”\
 “Endo-san, you really are like a child when it comes to food stalls, aren’t you?”
 
 Her face had returned to its cheerful expression, as if my cheek-pulling attack had never happened. Watching her like that, I couldn’t help but let out a laugh.
@@ -192,7 +192,7 @@ We waited at a spot where the first sunrise was said to be particularly beautifu
 
 ‘It’s beautiful, isn’t it…’\
 ‘Yeah.’\
-‘Takizawa… shall we watch the first sunrise together again next year?’\
+‘Takisawa… shall we watch the first sunrise together again next year?’\
 ‘Then don't become anyone else's——’\
 ‘Hmm?? What did you say?’
 

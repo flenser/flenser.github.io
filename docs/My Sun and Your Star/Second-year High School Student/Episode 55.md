@@ -33,7 +33,7 @@ Even though I’d told myself not to get involved, I found myself wanting to spe
 
 Mai is all excited, but I’m not looking forward to it and haven’t decided on a present yet, so I’m feeling a bit conflicted.
 
-‘Hoshizora, aren’t you looking forward to it?’
+‘Sora, aren’t you looking forward to it?’
 
 Mai peered at me anxiously. Thinking she might have somehow sensed my thoughts, which surely shouldn’t have been visible, I panicked and answered her question.
 
@@ -78,7 +78,7 @@ She seemed to be looking forward to starting at my high school, and she was abso
 
 She has the sort of small-animal charm that makes her the type everyone would love. Her expressions change constantly, which I find easy to read.
 
-‘Hoshizora-san, do you enjoy school?’
+‘Sora-san, do you enjoy school?’
 
 I can’t exactly say that I wanted to die from the first year right up until halfway through the second… but I do enjoy it now.
 
@@ -105,13 +105,13 @@ So, with whom…?
 
 Just as I was thinking that, someone called out to me from behind.
 
-‘Takizawa…?’
+‘Takisawa…?’
 
 It was a familiar voice.\
 When I turned round, there was Endo-san, looking pale as a ghost and shivering with the cold.
 
 ‘What’s the matter, Endo-san?’\
-‘Never mind me, what were you doing out at this time of night, Takizawa?’\
+‘Never mind me, what were you doing out at this time of night, Takisawa?’\
 ‘It doesn’t matter, does it?’
 
 With that, Endo-san said nothing and headed straight for her house. Perhaps I phrased it badly, but she didn’t seem like her usual self.

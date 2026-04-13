@@ -31,13 +31,13 @@ Human memory is full of vague parts; forgetting is overwhelmingly more common. M
 
 　＊＊＊
 
-"Hoshizora, you don't look well. Are you alright?"
+"Sora, you don't look well. Are you alright?"
 
 Mai looked concerned, so feeling apologetic, I forced a smile.
 
 "I was just surprised by how delicious it was."
 
-"Getting so surprised your face goes pale? That's so like you, Hoshizora."
+"Getting so surprised your face goes pale? That's so like you, Sora."
 
 Mai chuckled softly.
 

@@ -12,7 +12,7 @@ I was taken aback by where we’d ended up.
 
 ‘This place…’
 
-“That’s right. I thought I’d like to go to the zoo with Takizawa today.”\
+“That’s right. I thought I’d like to go to the zoo with Takisawa today.”\
 “I didn’t ask for that, and I’m not a child.”\
 “I didn’t say that, and I don’t think of you as a child.”
 
@@ -22,7 +22,7 @@ Since I’d already come this far, I figured I had no choice but to give in, so 
 Perhaps because winter is over and it’s getting warmer, there are quite a few people here.
 
 ‘Why the zoo?’\
-‘I’ve been thinking for ages about what Takizawa likes. You know, it’s been nearly a year since I started talking to Takizawa, but I realised I don’t know anything about her. I tried really hard to remember everything that’s happened between us so far, and I thought, “Maybe she likes animals?”, so I chose this place.’
+‘I’ve been thinking for ages about what Takisawa likes. You know, it’s been nearly a year since I started talking to Takisawa, but I realised I don’t know anything about her. I tried really hard to remember everything that’s happened between us so far, and I thought, “Maybe she likes animals?”, so I chose this place.’
 
 Since I don’t talk about myself, Endo-san really shouldn’t be worrying about that. I don’t quite understand why Endo-san is so considerate in such odd ways.
 
@@ -54,7 +54,7 @@ The zoo became fun right from the start.\
 As soon as we entered, penguins and swans welcomed us.
 
 ‘Penguins swim so smoothly, it’s amazing.’\
-‘Takizawa doesn’t look like she’s very good at swimming, does she?’\
+‘Takisawa doesn’t look like she’s very good at swimming, does she?’\
 ‘That’s rude, I’m probably better than Endo-san.’
 
 No, I’m definitely worse than Endo-san.\
@@ -65,14 +65,14 @@ The audience gets all excited and makes a racket whenever the gorillas throw som
 
 “Gorillas have good control, don’t they? They’re throwing things right where they aim.”\
 “It’s just like Endo-san when she’s playing basketball.”\
-“Eh… does Takizawa think I look like that gorilla?”\
+“Eh… does Takisawa think I look like that gorilla?”\
 “Yeah.”\
 “Eh…”\
 “I’m joking.”
 
 Endo-san was so entertaining that I couldn’t help but crack a joke.
 
-“Takizawa actually tells jokes? I didn’t think you were the type, so for a moment I thought you were serious and considered taking a long, hard look at myself.”\
+“Takisawa actually tells jokes? I didn’t think you were the type, so for a moment I thought you were serious and considered taking a long, hard look at myself.”\
 “Of course I tell jokes. But Endo-san, perhaps you really should take a long, hard look at yourself.”\
 “Eh?”
 
@@ -92,7 +92,7 @@ The moment our eyes met, I burst out laughing. It had been ages since I’d made
 As if to cover it up, I carried on talking.
 
 “I’m going to tell Mai on you. I’ll tell her you were making fun of her.”\
-“Go on then, I’ll make Takizawa an accomplice too.”\
+“Go on then, I’ll make Takisawa an accomplice too.”\
 “That’s a bit of a problem.”
 
 I think I’m talking more today than I’d expected, even by my own standards. But it’s so much fun I can’t help but keep chatting.
@@ -107,7 +107,7 @@ We arrived at the area where the pandas and bears are.\
 The panda was rolling about looking rather listless.
 
 ‘That panda looks just like Endo-san when she’s just woken up.’\
-‘No, if anything, it’s more like Takizawa, isn’t it?’\
+‘No, if anything, it’s more like Takisawa, isn’t it?’\
 ‘I wake up straight away and I’m always in a good mood when I get up.’\
 ‘Ugh, you’re right…’
 
@@ -124,7 +124,7 @@ A little further on, a red panda greets us.
 
 ‘Apparently, red pandas have such cute faces but they’re actually quite feisty.’\
 ‘Oh, really?’\
-‘It’s so obvious what Takizawa isn’t interested in, isn’t it? You were really excited about the pandas, weren’t you?’\
+‘It’s so obvious what Takisawa isn’t interested in, isn’t it? You were really excited about the pandas, weren’t you?’\
 ‘I wasn’t excited; I was just watching them because I thought it was funny how much they looked like Endo-san.’
 
 Oh no… I regretted my words the moment I’d spoken them.
@@ -183,7 +183,7 @@ I felt as though I’d been just like this on the day my parents abandoned me. I
 
 I picked the girl up and decided to take her to the lost children’s centre for the time being.
 
-‘Takizawa!’\
+‘Takisawa!’\
 　I heard a voice from behind and saw Endo-san running towards me.
 
 ‘What’s wrong with her?’\
@@ -247,13 +247,13 @@ Children are so pure.\
 I found myself envying her ability to express her feelings so honestly.
 
 “Thank you for your help, Endo-san.”\
-“Takizawa wouldn’t have been able to talk to her parents properly on her own; they’d probably have suspected her of being a kidnapper or something.”\
+“Takisawa wouldn’t have been able to talk to her parents properly on her own; they’d probably have suspected her of being a kidnapper or something.”\
 Endo-san can be a bit rude at times.\
 　No, actually, I think she’s quite rude.
 
 It’s true I’m not very good at talking to people, but I do believe I possess a certain degree of common sense.
 
-“Takizawa, you’re surprisingly strong, aren’t you?”\
+“Takisawa, you’re surprisingly strong, aren’t you?”\
 “Well, I suppose I’m strong enough to carry the heavy Endo-san home.”\
 “‘Heavy’ is unnecessary.”\
 Since Endo-san had been rude, I decided to return the favour. Even though she’d brought up the topic herself, perhaps she wasn’t satisfied, because she started tugging at my cheek.
@@ -261,7 +261,7 @@ Since Endo-san had been rude, I decided to return the favour. Even though she’
 ‘That hurts.’\
 It didn’t actually hurt, but I wanted her to let go, so I just blurted something out.
 
-‘Takizawa’s really kind, isn’t she?’\
+‘Takisawa’s really kind, isn’t she?’\
 Endo-san looked straight at me with a serious expression as she said that, so I felt embarrassed and looked away.
 
 ‘I'm just normal, aren’t I?’

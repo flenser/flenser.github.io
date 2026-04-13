@@ -26,7 +26,7 @@ I’m putting in the effort too, so as not to be outdone.
 
 However, the sheer volume of Hina-senpai’s effort far surpasses my own.
 
-　I realise that Hoshizora-san, who drives Hina-senpai like that, must be deeply loved.
+　I realise that Sora-san, who drives Hina-senpai like that, must be deeply loved.
 
 She won’t give me the slightest opening, will she…?
 
@@ -45,8 +45,8 @@ After the match, Mai-senpai ruffled my hair.
 
 Saying that, Mai-senpai ruffled my hair again.
 
-“Hoshizora was here, but are you sure you don’t want to say hello?”\
-“Hoshizora-sensei wouldn’t give me the time of day anyway.”
+“Sora was here, but are you sure you don’t want to say hello?”\
+“Sora-sensei wouldn’t give me the time of day anyway.”
 
 I felt like letting out a sigh.\
 Seeing me like that, Mai-senpai gave me a hug.
@@ -57,13 +57,13 @@ Seeing me like that, Mai-senpai gave me a hug.
 “Mai-senpai, you’re saying something nice, but you’re reading it flatly.”
 
 It was a huge shock to be shown the gap in ability between me and Hina-senpai. And, as promised, I have to keep Hina-senpai’s promise…\
-I wonder what Hina-senpai is going to say to me. Will she tell me to stop getting involved with Hoshizora-san?
+I wonder what Hina-senpai is going to say to me. Will she tell me to stop getting involved with Sora-san?
 
 A promise is a promise, so I have to keep it.
 
 Perhaps because I looked so gloomy, Mai-senpai looked at me with a serious expression, which was unusual for her.
 
-‘Why don’t you just do it for me instead of Hoshizora-san?’
+‘Why don’t you just do it for me instead of Sora-san?’
 
 Huh????\
 I reckon about thirty question marks popped into my head.
@@ -95,7 +95,7 @@ We moved to a quieter spot.
 
 “Since I won, it’s okay for me to ask Miumi-chan, isn’t it?”\
 “Yes…”\
-“Right, then, just carry on treating Takizawa as you always have. Also, when it comes to confessing your feelings, do it whenever you feel like it, at the moment you choose.”\
+“Right, then, just carry on treating Takisawa as you always have. Also, when it comes to confessing your feelings, do it whenever you feel like it, at the moment you choose.”\
 “Eh?”\
 “No, I mean exactly what I said.”
 
@@ -103,12 +103,12 @@ What on earth is she on about?\
 Is she that confident in herself, or is there some other reason?
 
 “Why is that…?”\
-“As I said before, Takizawa is working really hard because she finds teaching you so much fun. I have no right to take that away from her, and I certainly don’t have the right to dictate how you feel or when you want to confess your feelings. I just want you to choose your own path as you see fit.”
+“As I said before, Takisawa is working really hard because she finds teaching you so much fun. I have no right to take that away from her, and I certainly don’t have the right to dictate how you feel or when you want to confess your feelings. I just want you to choose your own path as you see fit.”
 
 Hina-senpai smiled, saying something I couldn’t tell if she meant sincerely or not.
 
 “You seem so calm about it.”\
-“Of course I’m not calm. No one’s going to just leave someone like Takizawa alone. In fact, Miumi-chan is a rival too.”
+“Of course I’m not calm. No one’s going to just leave someone like Takisawa alone. In fact, Miumi-chan is a rival too.”
 
 Me, a rival…?\
 When I’m nowhere near Hina-senpai’s level…?
@@ -119,11 +119,11 @@ When I’m nowhere near Hina-senpai’s level…?
 
 With that, Hina-senpai walked off.
 
-I couldn’t help but smile a little, thinking that both Hina-senpai and Hoshizora-san were rather clumsy people.
+I couldn’t help but smile a little, thinking that both Hina-senpai and Sora-san were rather clumsy people.
 
 The thought that things could stay just as they were made my heart feel all warm and fuzzy.
 
 I’d started to like Hina-senpai a little.\
-I absolutely adore Hoshizora-san.
+I absolutely adore Sora-san.
 
 So, I found myself hoping that the two of them would be happy.

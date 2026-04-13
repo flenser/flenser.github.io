@@ -7,7 +7,7 @@ Episode 46: Winter Arrives (2)
 
 When I rang the doorbell, Endo-san looked at me with a puzzled expression.
 
-‘Are you staying the night too, Takizawa?’\
+‘Are you staying the night too, Takisawa?’\
 ‘I’ve come to keep an eye on Hikari-san.’
 
 Without even looking at Endo-san, I strode straight inside. I hadn’t done anything wrong, so I didn’t like the way she was giving me that ‘what’s this all about?’ look. I’d simply come to keep an eye on Hikari-san.
@@ -36,7 +36,7 @@ They often say that once someone has won your heart through your stomach, it’s
 
 Hikari-san is tucking into Endo-san’s twice-cooked pork with gusto, and as it looks like there won’t be any left for me, I try to keep up by eating just as eagerly, only to choke.
 
-‘Takizawa, are you alright?’
+‘Takisawa, are you alright?’
 
 Endo-san rubs my back gently, looking concerned.
 
@@ -77,7 +77,7 @@ Saying that, she sniffed Endo-san’s hair. ‘Oh, really?’ Endo-san said, sta
 My body moved without my realising it.\
 I think I was gripping Hikari-san’s arm quite tightly. At that, Hikari-san looked taken aback and opened her mouth.
 
-‘Hoshizora-chan, do you want to hug me like this?’
+‘Sora-chan, do you want to hug me like this?’
 
 ‘That’s exactly what I mean.’
 
@@ -89,7 +89,7 @@ When I pressed myself against Endo-san, I could feel the parts touching growing 
 
 However, I couldn’t quite forgive Hikari-san for burying her face in Endo-san’s body, so I wrapped my arms tightly around her.
 
-‘Hoshizora-chan, you’re squeezing me too tight!’
+‘Sora-chan, you’re squeezing me too tight!’
 
 I lifted the small, light-weight Hikari-san up in one swift motion and carried her into the bathroom.
 
@@ -113,7 +113,7 @@ My mood soured instantly.
 
 I undid the top button of Endo-san’s shirt.
 
-“Takizawa—? We haven’t been studying today, have we?”
+“Takisawa—? We haven’t been studying today, have we?”
 
 I know that.
 
@@ -138,7 +138,7 @@ The spot where my lips had touched turned a deep red, a clear sign that I’d be
 
 I moved downwards and left a similar red mark on her chest.
 
-‘Takizawa… that hurts…’
+‘Takisawa… that hurts…’
 
 I suppose it hurt because I bit her.
 
@@ -176,7 +176,7 @@ I’d always thought so, but Endo-san smells of lovely flowers. It makes me feel
 
 Endo-san turned away and buttoned her coat all the way up.
 
-“—You pervert, Takizawa.”
+“—You pervert, Takisawa.”
 
 Having said that, Endo-san—who’s usually so noisy—has gone quiet. I heard a noise coming from the bathroom, and as it was my turn to have a bath, I decided to head there.
 

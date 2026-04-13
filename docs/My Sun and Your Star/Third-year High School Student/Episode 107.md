@@ -44,7 +44,7 @@ My mother picked up the potato that had rolled into the sink and stared at it wi
 
 I didn’t know what to say and found myself at a loss for words. I wanted nothing more than to gather up everything I’d spread out in the kitchen and go back to my room right then and there.
 
-‘Hoshizora, come here.’
+‘Sora, come here.’
 
 I looked up in surprise to see my mother beckoning me over with a look of deep concentration on her face. I stood beside her as she told me to, and though she said very little, she began to show me how to chop the vegetables.
 
@@ -61,7 +61,7 @@ I couldn’t see my mother’s face, but her voice was as warm and full of kindn
 
 No matter how clumsy I was, how slow I was, or how little I could say, my mother stayed by my side right until the end.
 
-It seems that the Takizawa family’s dinner that day was the first curry rice I’d ever made.
+It seems that the Takisawa family’s dinner that day was the first curry rice I’d ever made.
 
 My father went out of his way to come to my room “The curry was delicious. Thank you,” he told me.
 
@@ -100,7 +100,7 @@ I used to be so self-absorbed, when did I become the sort of person who acts for
 
 I’ve changed so much recently that I find myself wondering if this is really me.
 
-It seems that the person known as Takizawa Hoshizora has been profoundly transformed by the girl standing before me.
+It seems that the person known as Takisawa Sora has been profoundly transformed by the girl standing before me.
 
 　Just thinking back on yesterday makes my ears burn.
 
@@ -175,7 +175,7 @@ Even though I know she might leave one day, the thought of that moment fills me 
 
 　Yesterday’s questions swirled round and round inside my head, giving me a headache.
 
-“Takizawa, good morning.”\
+“Takisawa, good morning.”\
 “You idiot, Endo-san.”\
 “What about ‘good morning’?”\
 “Good morning…”

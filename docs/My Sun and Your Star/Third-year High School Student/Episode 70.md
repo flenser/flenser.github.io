@@ -26,9 +26,9 @@ Sometimes I’m even a bit exasperated with myself for feeling that way.
 　Endo-san gently strokes my cheek.
 
 ‘That tickles.’\
-‘Takizawa’s cheeks are so soft, I just want to touch them.’\
+‘Takisawa’s cheeks are so soft, I just want to touch them.’\
 ‘Do you like kissing and touching people’s bodies, Endo?’\
-‘I like doing it with Takizawa.’\
+‘I like doing it with Takisawa.’\
 ‘Oh.’\
 ‘You asked, but you don’t seem the least bit interested.’
 
@@ -37,7 +37,7 @@ Endo-san’s expression turned serious, and she began speaking again.
 
 ‘I’d like you to tutor me on any days you’re free during Golden Week. I might not have much time because of club activities, though.’\
 ‘Sure.’\
-‘Takizawa, which university are you going to?’\
+‘Takisawa, which university are you going to?’\
 ‘Do I really need to tell you that, Endo-san?’\
 ‘You don’t have to, but please tell me.’
 
@@ -62,7 +62,7 @@ And, whether it’s because of her busy schedule or because she’s worrying abo
 
 　I felt sorry if she’d been worrying about it because of me and had gone on a diet.
 
-‘You were actually worried about that? You’re so kind, Takizawa. It’s fine, I’ve just lost some excess fat from training.’
+‘You were actually worried about that? You’re so kind, Takisawa. It’s fine, I’ve just lost some excess fat from training.’
 
 She gave a little smile.\
 That’s the face Endo-san makes when she’s forcing herself a bit.
@@ -81,7 +81,7 @@ I wonder why she's become such a spoilt brat.
 “Why should I?”\
 “I’m asking because I want you to. By the way, our school’s record of making it to the prefectural championships is practically non-existent, so I reckon it’s quite a tall order.”\
 “Fine, then.”\
-“Saying ‘fine’ just because it’s difficult, you really are a bit of a tease, aren’t you, Takizawa?”\
+“Saying ‘fine’ just because it’s difficult, you really are a bit of a tease, aren’t you, Takisawa?”\
 “Say what you like.”
 
 　Saying that, I went back to my studies.\
@@ -112,7 +112,7 @@ Then I could hear Endo grumbling ‘boo-boo’ beside me, but I decided to ignor
 
 During Golden Week, my older sister and Hikari-san came back. Apparently, they’d told my parents in advance this time, so Hikari-san was staying at my house quite openly.
 
-“Hello there, Hoshizora-chan, have you been keeping well?”
+“Hello there, Sora-chan, have you been keeping well?”
 
 Hikari-san spoke to me in that sort of high-spirited tone. She was as cheerful and noisy as ever, but that’s what makes her so lovely, so I somehow found myself feeling reassured by it.
 
@@ -122,7 +122,7 @@ Hikari-san spoke to me in that sort of high-spirited tone. She was as cheerful a
 
 However, it’s an undeniable fact that the thought of another rowdy few days ahead gives me a headache. When my sister, Hikari-san and I gathered in my sister’s room, Mayo-nee began speaking with a serious expression.
 
-‘Hoshizora, I’m sorry to spring this on you straight away, but we need to talk about what’s going to happen next. If we talk here, our parents might overhear, so I’d like to discuss it at Hina-chan’s house. What do you think?’
+‘Sora, I’m sorry to spring this on you straight away, but we need to talk about what’s going to happen next. If we talk here, our parents might overhear, so I’d like to discuss it at Hina-chan’s house. What do you think?’
 
 　Come on, Endo-san’s house isn’t our meeting room, you know. Just as I thought that, I checked my phone and saw a message from Endo-san saying, ‘Come over soon!’
 
@@ -136,7 +136,7 @@ More than anything, when on earth did she swap contact details with Endo-san? I 
 “I told Endo-san about myself.”\
 “...What?”\
 “I mean, about how things aren’t going well with my parents, and what I'm planning to do going forward.”\
-“You told her yourself, Hoshizora?”\
+“You told her yourself, Sora?”\
 “Who else would have told her?”
 
 Mayo-nee looked completely taken aback.\

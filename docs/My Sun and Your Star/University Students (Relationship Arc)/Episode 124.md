@@ -5,12 +5,12 @@ nav_order: 124
 ---
 Episode 124: A New Life (1)
 
-‘Hoshizora, you’d better hurry or we’ll miss your next lecture.’\
+‘Sora, you’d better hurry or we’ll miss your next lecture.’\
 ‘Sorry, I’m on my way.’
 
 I rush off in the direction she called from.
 
-‘University life is completely different from high school, isn’t it? Have you got used to it yet, Hoshizora?’\
+‘University life is completely different from high school, isn’t it? Have you got used to it yet, Sora?’\
 ‘Not at all. What about you, Ranka?’\
 ‘Me neither. I’m just barely managing to get through each day.’
 
@@ -21,7 +21,7 @@ She spoke to me on the day of the entrance ceremony. Ranka was in the same class
 Ranka has exactly the same mature personality I remembered from our high school days. Her personality is the complete opposite of Mai and Endo-san’s; if anything, I think she’s more like me, someone who prefers to live a quiet, peaceful life.\
 Because of that, I feel quite at ease around Ranka and can spend time with her without getting too tired.
 
-‘Are you joining any clubs, Hoshizora?’\
+‘Are you joining any clubs, Sora?’\
 ‘I don’t particularly plan to. What about you, Ranka?’\
 ‘I have kendo practice, so I was thinking of joining a club that wouldn’t clash with that. “Fancy having a quick look at some clubs after class today?”\
 “Sure. I’ll need to head home around six, though.”\
@@ -32,7 +32,7 @@ Because of that, I feel quite at ease around Ranka and can spend time with her w
 “Yeah.”\
 “Right, let’s have a look until then. Come to think of it…”\
 “……?”\
-“Oh, never mind. It’s nothing. Anyway, I’m looking forward to checking out the clubs with Hoshizora.”
+“Oh, never mind. It’s nothing. Anyway, I’m looking forward to checking out the clubs with Sora.”
 
 　Ranka seemed to have something on her mind but swallowed it down, simply saying ‘I’m looking forward to it’ in a matter-of-fact tone before focusing on her next class.
 
@@ -54,7 +54,7 @@ The photograph of the stars on the poster that caught my eye was absolutely beau
 
 I think I’ve lived my life looking down all this time, so I’ve gone through life without realising such beautiful sights existed.
 
-‘Hoshizora? Are you interested in that club?’
+‘Sora? Are you interested in that club?’
 
 Ranka’s voice startled me, snapping me back to reality.
 
@@ -74,7 +74,7 @@ Once inside, the walls were covered with posters of various constellations and p
 
 　A crowd of people who looked like senior members gathered around us. The woman who introduced herself as Sazaki was very gentle and approachable. The other seniors were all kind too, and my first impression was that it was a really welcoming club. After the introductions, the conversation really got going.
 
-“Hoshizora-chan, what made you interested in our club?”
+“Sora-chan, what made you interested in our club?”
 
 I couldn't say because someone I love taught me how beautiful the stars are — so I answered honestly but vaguely.
 
@@ -94,18 +94,18 @@ Ranka was the one who reacted most enthusiastically to that.
 
 Ranka, who rarely showed emotion openly, had eyes sparkling. The feeling of I want to go, I want to go was radiating off her.
 
-“What about Hoshizora?”
+“What about Sora?”
 
 It’s so hard to turn them down…
 
 It’s hard to turn them down, but I really can’t make it today.
 
 “I’m really sorry, but can we do it another time? You don’t need to worry about me, feel free to go without me.”\
-"It won't be as much fun without Hoshizora, so another time works for me."
+"It won't be as much fun without Sora, so another time works for me."
 
 Ranka gave up more easily than I’d expected and turned down the seniors’ invitation. We decided to put joining the club on hold for now and left the clubroom.
 
-“What did you think, Hoshizora?”\
+“What did you think, Sora?”\
 “The atmosphere’s really great, isn’t it? I didn’t join any clubs in high school, but I think I'd want to join that one.”\
 “I agree. Shall we sort out the membership formalities next time?”
 
@@ -139,7 +139,7 @@ I inserted the key into the lock of Room 302 and opened the door.
 
 The lights were on in the flat, and a young woman came running towards me from further in the room.
 
-‘Takizawa, welcome home.’
+‘Takisawa, welcome home.’
 
 The person standing before me looked absolutely delighted. As I tried to walk past her to head for the bathroom, she gave me a look of utter displeasure.
 

@@ -73,7 +73,7 @@ It looked just like two dogs rolling around and playing together.
 
 After school, I’m supposed to be helping Miumi-chan with her studies.
 
-‘Hoshizora-san, did you enjoy the school trip?’\
+‘Sora-san, did you enjoy the school trip?’\
 ‘Yes, I did.’\
 ‘How lovely.’\
 ‘You’ll be able to go too when you’re in Year 13, Miumi.’\
@@ -112,7 +112,7 @@ After school, I’m supposed to be helping Miumi-chan with her studies.
 
 Why does the door always open at the worst possible moment…?
 
-‘Takizawa, what’s the matter? Isn’t today your tutoring day?’
+‘Takisawa, what’s the matter? Isn’t today your tutoring day?’
 
 Endo-san walked towards me. Perhaps because I’d come without thinking, or perhaps simply because I’d suddenly run into her, I wasn’t quite sure, but my heart was pounding.
 

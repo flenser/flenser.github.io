@@ -159,7 +159,7 @@ Having a finger in someone's mouth isn't exactly pleasant. Yet Endo-san glared a
 She glared at me even more fiercely than before. Right now, Endo-san seems quite human. A hundred times better than her usual plastered-on smile.
 
 She must have thought I was enjoying myself,\
-because she called me "Takizawa the pervert". Considering what I was doing, I don't think that reaction was wrong.
+because she called me "Takisawa the pervert". Considering what I was doing, I don't think that reaction was wrong.
 
 　Endo-san was still coughing, looking uncomfortable.
 

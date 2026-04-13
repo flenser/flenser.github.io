@@ -13,14 +13,14 @@ Today is the day I have to tell Ranka something important.
 
 "Sorry for making you wait. Did you wait long?"\
 "Not at all. Your makeup looks good, Ranka."\
-"Hehe, thank you. You've gotten much better too, Hoshizora."\
+"Hehe, thank you. You've gotten much better too, Sora."\
 "Because you've been teaching me things. Thank you."
 
 I had no interest in fashion, and even less in makeup. But thinking that even a small improvement might catch Endo-san's eye — I'll keep that to myself.
 
 We went into a calm café where we could talk properly.
 
-"So — it's unusual for you to be the one inviting me out, Hoshizora. You have something you want to talk about, don't you?"
+"So — it's unusual for you to be the one inviting me out, Sora. You have something you want to talk about, don't you?"
 
 I gave a small nod.
 
@@ -43,7 +43,7 @@ I was so struck by this bombshell that my face felt like it might catch fire.
 
 Just confessing that I was going out with Endo-san had felt enormously embarrassing — but the thought that the whole situation between Endo-san and me back in third year had been witnessed made me want to flee the café entirely.
 
-"Sorry, sorry. I just happened to see it. Thank you for telling me, Hoshizora."
+"Sorry, sorry. I just happened to see it. Thank you for telling me, Sora."
 
 Ranka, sitting across from me, squeezed my hand firmly. My heart slowly recovered its calm, and I was able to let out a breath.
 
@@ -55,7 +55,7 @@ Ranka, sitting across from me, squeezed my hand firmly. My heart slowly recovere
 
 Ranka works at the same part-time job as Endo-san. It wasn't that I suspected Ranka or Endo-san of anything — I just had this feeling of not wanting anyone to know Endo-san's good qualities. They were mine to know.
 
-"You're so cute, Hoshizora. People must tell you that all the time."\
+"You're so cute, Sora. People must tell you that all the time."\
 "They don't."
 
 Being told that, I found myself suddenly wondering — how does Endo-san actually see me? Does she think I'm cute?
@@ -98,7 +98,7 @@ As soon as she noticed me, she came right over with a very displeased expression
 
 "What were you doing with Yamamoto-san?"\
 "We went to a café."\
-"I want to go to a café with you too, Takizawa."\
+"I want to go to a café with you too, Takisawa."\
 "Some other time."\
 "Is that a promise?"
 

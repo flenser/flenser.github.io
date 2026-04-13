@@ -21,24 +21,24 @@ School is about a thirty-minute walk away.
 
 As I neared the school, I saw more and more people in the same uniform. I stopped there and buttoned up the top button and tightened my tie.
 
-Ever since I started getting involved with Takizawa, I'd become more conscious of my appearance.
+Ever since I started getting involved with Takisawa, I'd become more conscious of my appearance.
 
 I didn't think this was like me at all.
 
 My friends Nao and Akari were surprised too, asking what had suddenly made me so serious.
 
-　I want to know more about Takizawa.
+　I want to know more about Takisawa.
 
-Takizawa has the top grades in the year, yet she keeps studying. I'm sure there's a reason for that. Maybe there's a university she wants to get into, or something she wants to do.
+Takisawa has the top grades in the year, yet she keeps studying. I'm sure there's a reason for that. Maybe there's a university she wants to get into, or something she wants to do.
 
-　I don't want to get in Takizawa's way.
+　I don't want to get in Takisawa's way.
 
 But I want to become closer to her.\
-It might be selfish, but I'm prioritising my own feelings. So, I've decided that even if someone sees me interacting with Takizawa, I'll make sure it doesn't have a negative impact on her.
+It might be selfish, but I'm prioritising my own feelings. So, I've decided that even if someone sees me interacting with Takisawa, I'll make sure it doesn't have a negative impact on her.
 
 Tightening my tie properly makes it hard to breathe.
 
-I'm amazed Takizawa can study in this state.
+I'm amazed Takisawa can study in this state.
 
 Entering the school gates, I spotted Nao and Akari.
 
@@ -51,7 +51,7 @@ After everything that happened on Saturday, I hadn't slept properly for two days
 "Feeling lively today too, y'know."\
 I forced my usual smile.
 
-I remembered Takizawa telling me, "Stop that fake smile."
+I remembered Takisawa telling me, "Stop that fake smile."
 
 Is my smile unnatural?\
 Am I managing it properly?
@@ -72,17 +72,17 @@ I chanted that to myself.
 
 　After school, they invited me to a café, but I declined because of club activities. Saying no was tough, once you refuse, you have to find somewhere else to go with them next time. Pointless outings weren't allowed for them.
 
-Strolling aimlessly around town with Takizawa had been fun.
+Strolling aimlessly around town with Takisawa had been fun.
 
-Come to think of it, I hadn't seen Takizawa today.
+Come to think of it, I hadn't seen Takisawa today.
 
 I think Mai was alone too.
 
 During club time after school, I tried talking to Mai.
 
-"I thought it was unusual to see Mai alone today. What about Takizawa-san?"
+"I thought it was unusual to see Mai alone today. What about Takisawa-san?"
 
-"Hina being interested in Hoshizora? That'll be the day."
+"Hina being interested in Sora? That'll be the day."
 
 She looked at me suspiciously.
 
@@ -90,9 +90,9 @@ She looked at me suspiciously.
 
 "Wow, Hina-chan, you're so kind. An angel."
 
-I wanted her to stop this charade and tell me about Takizawa already.
+I wanted her to stop this charade and tell me about Takisawa already.
 
-"Hoshizora took the day off today, which is unusual. She's skipped now and then since first year, but never taken a whole day off before, so it was a surprise. After club, I'll take her homework over. I love my friends, but it's tough when we live in opposite directions."
+"Sora took the day off today, which is unusual. She's skipped now and then since first year, but never taken a whole day off before, so it was a surprise. After club, I'll take her homework over. I love my friends, but it's tough when we live in opposite directions."
 
 Mai said this jokingly.
 
@@ -100,17 +100,17 @@ If she's genuinely unwell, that's fine... No, being unwell isn't fine, but maybe
 
 　A sigh threatened to escape me.
 
-That was Takizawa who brought up the subject; I merely agreed to it. Perhaps she didn't expect me to agree, but I think that's her fault.
+That was Takisawa who brought up the subject; I merely agreed to it. Perhaps she didn't expect me to agree, but I think that's her fault.
 
 "I'll take that homework for you. My house is close by."
 
 "Eh, really!? Hina, you're practically an angel today. This is such a help!"
 
-Takizawa handed me her homework and handouts.
+Takisawa handed me her homework and handouts.
 
-　Takizawa might not want to see me, but I want to see her, so just for today, I decided to be grateful to Mai.
+　Takisawa might not want to see me, but I want to see her, so just for today, I decided to be grateful to Mai.
 
-I arrive in front of Takizawa's house.
+I arrive in front of Takisawa's house.
 
 What will she say?
 
@@ -121,18 +121,18 @@ She might hate me for just turning up like this. Or rather, she'll probably ask 
 Summoning my courage, I pressed the intercom button.
 
 "Hello?"\
-A voice, higher-pitched than Takizawa's, answered.
+A voice, higher-pitched than Takisawa's, answered.
 
-"Um, I'm here to deliver some handouts because Takizawa Hoshizora-san took the day off."
+"Um, I'm here to deliver some handouts because Takisawa Sora-san took the day off."
 
 "Ah..."
 
-The tone of the woman's voice on the other end of the intercom clearly dropped. The door opened, and a woman who looked exactly like Takizawa appeared.
+The tone of the woman's voice on the other end of the intercom clearly dropped. The door opened, and a woman who looked exactly like Takisawa appeared.
 
-"She's upstairs," she said simply, before disappearing. Presumably Takizawa's mother.\
+"She's upstairs," she said simply, before disappearing. Presumably Takisawa's mother.\
 It seemed I wasn't welcome.
 
-Come to think of it, Takizawa had never once mentioned her family. I hadn't pried, as I knew she probably didn't want to talk about it, but perhaps I should have asked more.
+Come to think of it, Takisawa had never once mentioned her family. I hadn't pried, as I knew she probably didn't want to talk about it, but perhaps I should have asked more.
 
 　Perhaps I'd done something her mother disliked or found unpleasant.
 
@@ -140,9 +140,9 @@ I resolved to be more careful next time.
 
 I climb the stairs one step at a time, a little slowly, to mentally prepare myself.
 
-On the room doors hung nameplates with the names '星空 (Hoshizora)' and '真夜 (Mayo)' written on it.
+On the room doors hung nameplates with the names '星空 (Sora)' and '真夜 (Mayo)' written on it.
 
-I knocked on Takizawa's door.
+I knocked on Takisawa's door.
 
 No reply.
 
@@ -163,19 +163,19 @@ Her voice sounded terribly displeased. Her face clearly showed she was angry.
 
 "I came to deliver the printouts."
 
-As I said this, a noise came from below, and Takizawa's shoulders seemed to tense.
+As I said this, a noise came from below, and Takisawa's shoulders seemed to tense.
 
 "Come inside for a bit."
 
-I entered the room as Takizawa instructed.
+I entered the room as Takisawa instructed.
 
-Takizawa's room was, simply put, a room with nothing but the essentials.
+Takisawa's room was, simply put, a room with nothing but the essentials.
 
 　A study desk lined with school textbooks and reference books, a bed with a thick mattress, a bookshelf holding novels and such.\
 In the middle of the room stood a small desk with a reference book open on it.
 
 Nothing else. Pardon me, but it hardly looked like a high school girl's room.
 
-Takizawa remained silent.
+Takisawa remained silent.
 
-Just as I opened my mouth to say something, Takizawa spoke up, cutting me off.
+Just as I opened my mouth to say something, Takisawa spoke up, cutting me off.

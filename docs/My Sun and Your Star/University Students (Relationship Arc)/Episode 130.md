@@ -11,7 +11,7 @@ The rainy season was drawing to a close and summer arrived in no time at all. Su
 
 When I got home, Endo-san was already back, and the apartment smelled delicious. I hurried to set down my bag, wash my hands, and rushed to the living room. I went over to Endo-san, who was humming to herself as she got things ready, and held her tight.
 
-"Takizawa...? What's the matter?"\
+"Takisawa...? What's the matter?"\
 "Endo-san, I'm home."\
 "Welcome back."
 
@@ -66,7 +66,7 @@ The soft sensation landed not on my lips but on my cheek. The fact of that — I
 
 "I have something to tell you too."\
 "What?"\
-"During summer break I'm going to the beach with Mai and a girl I got to know at university called Saaya — will you come too, Takizawa?"\
+"During summer break I'm going to the beach with Mai and a girl I got to know at university called Saaya — will you come too, Takisawa?"\
 "I'd just be in the way if I came — no."\
 "It'll be fine. If anything, it was Mai and I who wanted to go somewhere, and Saaya joined in."\
 "I'd just make the atmosphere awkward."
@@ -85,7 +85,7 @@ I let out a sigh large enough to echo around the room. Endo-san looked delighted
 
 "Let's look on our phones now and see what kind of swimsuits to get."\
 "I'm not wearing a swimsuit."\
-"No. I want to see Takizawa in a swimsuit."\
+"No. I want to see Takisawa in a swimsuit."\
 "That makes no sense. You can just wear one yourself."\
 "No. Wear one."\
 "No."\

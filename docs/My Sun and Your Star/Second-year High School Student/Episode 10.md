@@ -29,7 +29,7 @@ Endo-san peered at my face with a forced smile.
 
 Her features were regular, but I didn't like that doll-like, artificial expression. It was frightening not knowing what lay behind it.
 
-"Takizawa, if I finish within the top thirty in this test, I want a reward."
+"Takisawa, if I finish within the top thirty in this test, I want a reward."
 
 Endo-san had the audacity to demand a reward on top of me tutoring her. I couldn't help thinking she was utterly shameless.
 
@@ -37,7 +37,7 @@ Endo-san had the audacity to demand a reward on top of me tutoring her. I couldn
 
 I knew I looked thoroughly displeased. Ignoring my reaction, Endo-san rattled on.
 
-"Honestly, without some kind of reward, I just can't get motivated, can I? You're giving up your own time to teach me, Takizawa. Surely you want me to get good results?"
+"Honestly, without some kind of reward, I just can't get motivated, can I? You're giving up your own time to teach me, Takisawa. Surely you want me to get good results?"
 
 Admittedly, she had a point. Teaching someone and seeing it put to good use would make me feel useful, at least a little. She was trying hard, and maybe I could grant her one small request.
 
@@ -62,7 +62,7 @@ The unexpected request made me freeze slightly. I didn't mind tutoring her, but 
 
 　When I replied coldly, Endo-san looked troubled. Seeing that expression made something stir deep within me.
 
-"Then, on the days you tutor me, I'll grant one of Takizawa's requests."
+"Then, on the days you tutor me, I'll grant one of Takisawa's requests."
 
 Endo-san flashed her usual fake smile again. I didn't have any particular request I wanted her to grant, and it still felt like I'd gain nothing. I figured I'd just say something unpleasant to make her give up.
 
@@ -82,7 +82,7 @@ Why was Endo-san standing right in front of me?
 
 She was smiling brightly at me, interrupting my studying.
 
-"I came twenty-fourth. Best score I've ever got. Thanks, Takizawa."\
+"I came twenty-fourth. Best score I've ever got. Thanks, Takisawa."\
 "That's good."
 
 I replied curtly, hoping to keep her at bay, but my efforts seemed futile. This situation wasn't changing.
@@ -92,7 +92,7 @@ I replied curtly, hoping to keep her at bay, but my efforts seemed futile. This 
 How could I forget? That promise had made me dread the test period and ruined my concentration.
 
 "I don't remember."\
-"Eh? Are you the type to break promises, Takizawa?"\
+"Eh? Are you the type to break promises, Takisawa?"\
 "I said I'd think about it. After thinking, that's off the table."
 
 I desperately wished this situation would end. I didn't want anything more to do with this person.
@@ -113,7 +113,7 @@ Fundamentally, I'm not friends with Endo-san, nor do I wish to be. I'm not keen 
 
 When I said that, the smile vanished from Endo-san's face, which had been beaming no matter what I said until then.
 
-"I've been to cram school before, and I've studied with other friends too, but my marks never changed. Takizawa's explanations were really easy to understand, and studying was fun. That's why I want you to teach me again. I'd be happy to pay you, even if it's just as a tutor."
+"I've been to cram school before, and I've studied with other friends too, but my marks never changed. Takisawa's explanations were really easy to understand, and studying was fun. That's why I want you to teach me again. I'd be happy to pay you, even if it's just as a tutor."
 
 　I didn't understand why Endo-san was pushing herself so hard with her studies, wanting to grow up so quickly, but with her pleading like this, I couldn't find a reason to refuse. Reluctantly, I replied.
 
@@ -121,7 +121,7 @@ When I said that, the smile vanished from Endo-san's face, which had been beamin
 
 My tone might have sounded cold, but I was only stating facts and what I could actually do. Glancing at Endo-san, her eyes were sparkling brightly.
 
-"I'll make sure I can come even on club activity days! And I'll do whatever Takizawa says!"\
+"I'll make sure I can come even on club activity days! And I'll do whatever Takisawa says!"\
 "No, you don't have to come. And I don't really have anything specific to ask of you, Endo-san."
 
 And so, our study arrangement was settled.

@@ -19,7 +19,7 @@ I wish it were more murky...
 
 Living feels like a bother. When did I start thinking that?
 
-I (Takizawa Sora) am a second-year high school student, attending school as usual today. If you asked me if I had any particular strengths, I wouldn't say so. The only thing I can really praise myself for is being somewhat good at studying.
+I (Takisawa Sora) am a second-year high school student, attending school as usual today. If you asked me if I had any particular strengths, I wouldn't say so. The only thing I can really praise myself for is being somewhat good at studying.
 
 　The new term has started, my class has changed, and so has the classroom. Since the classroom is now one floor higher, the schoolyard visible from the window seems far away. Before, it was too close, and the noise from PE made me irritable during lessons, so this distance is just right.
 
@@ -27,7 +27,7 @@ The one thing that hasn't changed is being in the same class as Sato Mai, who I 
 
 During lunch break, Mai came over to me and started talking in her usual high-energy way.
 
-"Hoshizora, you skipped first period again, didn't you? Where were you? I want to skip with you next time!"
+"Sora, you skipped first period again, didn't you? Where were you? I want to skip with you next time!"
 
 She said it casually. She always wears her long hair in a bun on top of her head. She looks bright, and I think she's a bit scatterbrained and a bit of a joker. She seems the type who'd skip even if she wasn't with someone else.
 
@@ -47,7 +47,7 @@ The reason teachers don't get angry when I skip class is because my grades are t
 
 ＊＊＊
 
-"Takizawa-san, aren't you being a bit stuck-up? Everyone else is taking the lesson seriously, yet you just stroll back in like nothing's happened. What are you playing at?"
+"Takisawa-san, aren't you being a bit stuck-up? Everyone else is taking the lesson seriously, yet you just stroll back in like nothing's happened. What are you playing at?"
 
 "Could it be you're meeting someone? You look like the type who'd have a forbidden romance with a school teacher."
 
@@ -95,7 +95,7 @@ I spoke up, trying not to show my fluster.
 
 The arm holding me released, freeing the spot that had been pressed. I wanted to ask why she'd helped, but an awkward atmosphere made it hard to speak.
 
-"—Takizawa-san, right?"
+"—Takisawa-san, right?"
 
 Hearing her call my surname made my heart skip a beat. Why would Endo-san, famous at school, witness the bullying, help me, and call my surname?
 
@@ -103,7 +103,7 @@ Hearing her call my surname made my heart skip a beat. Why would Endo-san, famou
 
 Don't remember...?
 
-Was she mistaking me for someone else? No, she definitely called my surname. There must be others named Takizawa at school... As I pondered this, Endo-san spoke in a slightly lower tone.
+Was she mistaking me for someone else? No, she definitely called my surname. There must be others named Takisawa at school... As I pondered this, Endo-san spoke in a slightly lower tone.
 
 "People who do things like that are absolutely despicable! I couldn't stand watching, so I just had to say something. Sorry? Was it none of my business?"
 

@@ -77,7 +77,7 @@ Feeling uneasy in this unfamiliar situation, I decided to wait for everyone to c
 
 "Welcome home...?"
 
-The three of them beamed, not even glancing my way. As I stood frozen for a moment, Mum said, "Hoshizora, have you eaten? It's late now, you should go to bed." She was her usual smiling self. But something felt off.
+The three of them beamed, not even glancing my way. As I stood frozen for a moment, Mum said, "Sora, have you eaten? It's late now, you should go to bed." She was her usual smiling self. But something felt off.
 
 "Um... where were you all?"
 

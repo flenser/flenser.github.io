@@ -10,7 +10,7 @@ The person who introduced herself as Abe Hikari was absolutely radiant.
 She seemed to be glowing from within. She sparkled so brightly, I almost thought she was a firefly or something.
 
 ‘Sis, what’s with this person who looks like a living fluorescent lamp?’\
-‘That’s rude, Hoshizora!’
+‘That’s rude, Sora!’
 
 Hikari replied, looking very cheerful.\
 In response, my sister clutched her head.\
@@ -42,7 +42,7 @@ And so, that’s how I ended up taking her to the flat where I live on my own.
 
 We chatted about all sorts of things whilst on the Shinkansen.
 
-It’s not so much that Hikari has some mysterious powers, but she’s a good listener, I ended up telling her everything: the situation at home, my current circumstances, my relationship with my younger sister Hoshizora, and even how my feelings were starting to change because of what Hina-chan had said.
+It’s not so much that Hikari has some mysterious powers, but she’s a good listener, I ended up telling her everything: the situation at home, my current circumstances, my relationship with my younger sister Sora, and even how my feelings were starting to change because of what Hina-chan had said.
 
 ‘So, shall we run away together tonight? I’ve fallen for you at first sight, Mayo-nee-san.’
 
@@ -122,7 +122,7 @@ Yeah. Hikari-san’s lifestyle is exactly like mine.
 
 That’s probably why Mayo-nee is so soft on Hikari-san. Even so, she’s far too soft on her.
 
-“I brought her here, but she’s so noisy I’m worried my parents will find out. It almost came out yesterday. So, Hoshizora, I’ve got a favour to ask… Could you ask Hina-chan if Hikari could stay at her place tonight or tomorrow? If it’s not possible, I’ll find somewhere else, so please!”
+“I brought her here, but she’s so noisy I’m worried my parents will find out. It almost came out yesterday. So, Sora, I’ve got a favour to ask… Could you ask Hina-chan if Hikari could stay at her place tonight or tomorrow? If it’s not possible, I’ll find somewhere else, so please!”
 
 Mayo-nee bowed her head and pleaded with me.
 
@@ -137,7 +137,7 @@ Sigh… Why does she always get dragged into these incidents?
 
 Endo-san picked up after about three rings.
 
-“——Takizawa? What’s up? Has something happened?”
+“——Takisawa? What’s up? Has something happened?”
 
 After explaining the situation in detail, she agreed straight away.
 

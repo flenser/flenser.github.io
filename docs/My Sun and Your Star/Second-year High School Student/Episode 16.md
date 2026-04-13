@@ -49,13 +49,13 @@ As we were fumbling through that exchange, I felt eyes on us. Looking in that di
 　Mai must have noticed too, because she loosened the arms wrapped around my neck and gave a silly greeting:\
 "Hina-ya-poo!" When Mai said that, Endo-san, unusually, looked slightly awkward.
 
-"Takizawa-san looks troubled, so let go,"\
+"Takisawa-san looks troubled, so let go,"\
 Endo-san's slightly cold voice reached us.
 
 "Hina-san, aren't you being a bit cold today?"\
 Mai said cheerfully, releasing her hold on me. As soon as Endo-san confirmed that, she disappeared from the spot immediately.
 
-"Hoshizora-san, do you know Hina?"
+"Sora-san, do you know Hina?"
 
 Mai's sudden question nearly made me jump out of my skin.
 
@@ -96,7 +96,7 @@ She asked, her eyes sparkling.
 
 Perhaps because I answered in such an obviously displeased tone, the conversation ended there.
 
-"—So, what was Takizawa going to say?"
+"—So, what was Takisawa going to say?"
 
 What I was about to say wasn't very pleasant. I took a deep breath, exhaled, and opened my mouth.
 
@@ -108,7 +108,7 @@ Right now, our relationship is based on me teaching and her learning, so I'm try
 
 "I don't mind what people think of me, but what do you mean by 'don't really want to be involved with someone like me'?"\
 "You're so dazzlingly bright, I feel like I'd get burnt and vanish if I stayed near you."\
-"Are you some sort of vampire, Takizawa?"
+"Are you some sort of vampire, Takisawa?"
 
 I'd tried to phrase it carefully so Endo-san wouldn't be hurt, but she just replied with that joking tone.
 

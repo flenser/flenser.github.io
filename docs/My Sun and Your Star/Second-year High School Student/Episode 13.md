@@ -31,7 +31,7 @@ I've started to find her stories a little interesting.
 
 "Ehh..."
 
-"Don't make such a blatantly disgusted face! Basketball's fun!　If you come, Hoshizora, it'll really motivate us!"
+"Don't make such a blatantly disgusted face! Basketball's fun!　If you come, Sora, it'll really motivate us!"
 
 "Well, I don't know the rules of basketball or anything..."
 
@@ -40,7 +40,7 @@ Even saying that, I do feel like I want to go. Because Endo-san is in the basket
 "Well, if I don't have plans, I'll think about it."\
 "Really! I'm looking forward to it!"\
 "I haven't decided I'm going yet, you know."\
-"You cheapskate, Hoshizora!"
+"You cheapskate, Sora!"
 
 Maybe it wouldn't hurt to take a break from studying and go along just for a change of pace.
 
@@ -49,7 +49,7 @@ Lately, Mai seems to be smiling at me more often.
 "Is there something on my face?"\
 I ask, trying to sound annoyed.
 
-"Nah, it's just that Hoshizora seems to be enjoying herself more lately. Not long ago, she looked so serious I thought she might suddenly disappear, so it makes me a bit happy."
+"Nah, it's just that Sora seems to be enjoying herself more lately. Not long ago, she looked so serious I thought she might suddenly disappear, so it makes me a bit happy."
 
 　True enough, I'd hardly been going up to the roof lately. Perhaps I'd been too busy to even have time to think about dying or such things.
 
@@ -62,7 +62,7 @@ I looked up to see Endo-san greeting Mai.
 
 Still, realising it wasn't directed at me left me feeling a bit complicated.
 
-"Hoshizora, are you interested in Hina?"\
+"Sora, are you interested in Hina?"\
 "Eh...?"\
 "Well, you keep staring at her whenever you pass her in school or she's nearby. You never seemed interested in anyone before, but now you're always looking at Hina."
 
@@ -81,7 +81,7 @@ Endo-san is very conscientious; on days I teach her, she'll buy dinner for me. I
 
 As planned, Endo-san came to the library.
 
-"I haven't been studying at all lately, and the other day I couldn't keep up in class. Takizawa, help me."
+"I haven't been studying at all lately, and the other day I couldn't keep up in class. Takisawa, help me."
 
 "It's not because you haven't been studying. You were just tired and asleep, weren't you?"
 

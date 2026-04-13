@@ -50,14 +50,14 @@ Do your best too, Endo-san—.
 
 We waved Mai off as she went, and then Endo-san and I walked the familiar road home side by side.
 
-‘How did Takizawa do?’\
+‘How did Takisawa do?’\
 ‘Fine.’\
 ‘Just as I thought. You were always top of the year in exams like that, so I don’t think you’ve got anything to worry about!’
 
 Endo-san is clearly not herself. I don't like that version of her. When she's with me, I want her to just be herself. I found my mood dipping a little, wondering when she'd ever break that bad habit of hers.
 
 “Come on, Mai’s not here, so you don’t need to force yourself to be cheerful.”\
-“Haha, I guess Takizawa always sees right through me.”
+“Haha, I guess Takisawa always sees right through me.”
 
 I wondered when I’d started noticing straight away when Endo-san was putting on a front, and when I’d become able to tell the difference between her truth and her lies. Endo-san gave a slight wry smile. And though her voice wasn’t sad or pained, it wasn’t a cheerful one either.
 
@@ -76,14 +76,14 @@ Endo-san was looking fondly at the good luck charm we’d swapped. I responded w
 
 ‘No. It made a world of difference whether I had it or not.’\
 ‘Is that so.’\
-‘Weren’t you nervous, Takizawa?’\
+‘Weren’t you nervous, Takisawa?’\
 ‘……’\
 ‘Ah! So you were nervous after all. That’s unusual.’\
 ‘Shut up.’
 
 I couldn’t bring myself to say that I’d kept the charm Endo-san gave me in my pocket the whole time. Still, it was true that thanks to Endo-san’s charm, my nerves had settled. Unlike during my high school entrance exams, my fingers gripping the pencil hadn't been slick with an unbelievable amount of sweat, and I hadn't broken into that strange cold sweat across my back despite the winter cold.
 
-“It’s not over yet, so let’s both keep going until the very end. Takizawa, do you remember our promise?”\
+“It’s not over yet, so let’s both keep going until the very end. Takisawa, do you remember our promise?”\
 “Yeah.”
 
 I reckon she’s talking about going somewhere once the national exams are over.
@@ -96,7 +96,7 @@ Her expression was very serious, though different from the somber mood of a mome
 
 When we reached the front of Endo-san’s house and were about to part ways, she grabbed my arm tightly.
 
-“Takizawa, kiss me.”\
+“Takisawa, kiss me.”\
 “Huh?”\
 “We can't?”\
 “We’re outside.”\
@@ -112,7 +112,7 @@ She gripped my arm tightly and pulled me into the entrance hall of her house. Th
 Endo-san always springs out with things I don’t understand, but today it feels even more baffling. Perhaps she’s anxious that her exam results might be worse than she imagined, and she won’t get into the university she’s aiming for? It’s true that if she fails and I pass, we’ll end up separated. I don’t want that. But with the results not out yet, I don’t think there’s any point in discussing it now.
 
 “If it’s about the exams, there’s plenty of time to turn things around, so let’s work hard together, shall we?”\
-“That’s true, but that’s not it. Takizawa, you really are an idiot, aren’t you?”
+“That’s true, but that’s not it. Takisawa, you really are an idiot, aren’t you?”
 
 An idiot…? What on earth was so idiotic about what I just said? As I was lost in thought, she gently pulled me close and her soft lips touched mine.
 

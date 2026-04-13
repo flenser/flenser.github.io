@@ -39,11 +39,11 @@ Ever since that day she saved me, I'd wondered why she did it. Passing her class
 
 　Because Endo-san reminded me of my utterly detestable sister.
 
-My sister would always hold my hand and say, "It's alright. I'm on your side, Hoshizora." Even that day when the other three family members went out for dinner without me, she came to my room while I was crying, saying "I'm sorry, I'm sorry..." over and over, stroking my head until I fell asleep.
+My sister would always hold my hand and say, "It's alright. I'm on your side, Sora." Even that day when the other three family members went out for dinner without me, she came to my room while I was crying, saying "I'm sorry, I'm sorry..." over and over, stroking my head until I fell asleep.
 
 　That day, after crying so much I was exhausted and sleepy, I still can't forget what she said and the look on her face.
 
-"I'll sort things out in this house. I'll always be on Hoshizora's side," she said with a smile. But it didn't seem like a genuine smile to me; it looked like a forced smile, suppressing her pain.
+"I'll sort things out in this house. I'll always be on Sora's side," she said with a smile. But it didn't seem like a genuine smile to me; it looked like a forced smile, suppressing her pain.
 
 What kind of ally is she if she's suffering herself?
 

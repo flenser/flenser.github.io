@@ -9,7 +9,7 @@ Looking out the window, rain is falling in a steady drizzle. The rainy season ma
 
 Two months have passed since starting university, and I think I've gotten quite used to student life. Ranka and I ended up joining the stargazing club and look at the stars a few times a month. It's more enjoyable than I imagined, and I've been learning about space and constellations. It's become one of the pleasures of university life.
 
-"Hoshizora, you've always spent a lot of time gazing out windows, even back in high school."
+"Sora, you've always spent a lot of time gazing out windows, even back in high school."
 
 I thought it was impressive she'd noticed that. For Ranka — who we weren't that close with — to think that, I must have been spacing out quite a lot even back then.
 
@@ -38,7 +38,7 @@ I still haven't told Ranka that I live with Endo-san. I haven't even told her we
 
 "Well, think about it."\
 "Yeah, alright."\
-"Oh — did you sort out a part-time job, Hoshizora?"\
+"Oh — did you sort out a part-time job, Sora?"\
 "Yeah. I decided to work as a cram school tutor, once or twice a week. At first it'll just be administrative work, but apparently I'll be able to teach groups eventually — it seems like it'll be great experience. You were looking for work too, Ranka — did you find anything?"
 
 "Actually — it turned out to be the same workplace as Hina-san."
@@ -77,12 +77,12 @@ The sound of the front door opening. Just that was enough to ease something of t
 
 I should have said *welcome back* — but today I had no room for that.
 
-"Something smells good. Did you make something, Takizawa?"\
+"Something smells good. Did you make something, Takisawa?"\
 "Yeah. Eat it if you want."
 
 I said just that and turned to head to my room. But Endo-san caught my arm.
 
-"Have you eaten, Takizawa?"\
+"Have you eaten, Takisawa?"\
 "No."\
 "I haven't either — let's eat together?"\
 "Why. I don't want to."\
@@ -94,7 +94,7 @@ I said *I don't want to* and Endo-san sat me down in a chair anyway. She served 
 
 Endo-san, looking somewhat tired, began eating the soup. I brought the hot milk to my mouth. The milk seeped warmly into my body, which had been cold until just a moment ago.
 
-"Takizawa, it's delicious. I'm genuinely moved by how well you can cook now."\
+"Takisawa, it's delicious. I'm genuinely moved by how well you can cook now."\
 "Don't say things that make you sound like my mother."\
 "Fair enough."
 
@@ -113,7 +113,7 @@ I made it exactly the way Endo-san taught me — so why does her consommé soup 
 
 Endo-san reached up and put her hand to my forehead, so I brushed it away. My reaction seemed to strike her as strange, and she wore a stern expression.
 
-"What's wrong, Takizawa?"\
+"What's wrong, Takisawa?"\
 "Nothing."\
 "It's clearly not nothing. Did something happen? I'll listen if you want to talk."
 

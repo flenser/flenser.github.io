@@ -65,7 +65,7 @@ Endo-san snapped out of it and hurriedly forced a smile in our direction.
 
 　As she said that, Mai tried to throw her arms around me, so I pushed her away gently with my hand.
 
-“Hehe, Takizawa really is cute, isn’t she?”
+“Hehe, Takisawa really is cute, isn’t she?”
 
 　Endo-san, who had been looking gloomy just a moment ago, was now smiling.\
 　Neither of their reactions was what I’d expected, but I figured it was fine as long as Endo-san looked happy.
@@ -118,17 +118,17 @@ I’ve come to think that Endo-san’s genuine expression, the one she shows onl
 
 Just as I was thinking that, Yamamoto-san spoke to me in a quiet voice, low enough that the others couldn’t hear.
 
-“Takizawa-san, are you okay with the rides? You don’t have to go along with everyone else, you know?”\
+“Takisawa-san, are you okay with the rides? You don’t have to go along with everyone else, you know?”\
 Yamamoto-san must be being kind to say that to me. I was a little taken aback, and Yamamoto-san looked a bit flustered.
 
-‘Er, you are Takizawa Hoshizora, aren’t you?’\
+‘Er, you are Takisawa Sora, aren’t you?’\
 ‘Yeah, sorry, I was a bit startled and didn’t react straight away. I’m fine with anything. Thanks.’\
 When I told her that, Yamamoto-san looked relieved and went back to chatting with the others.
 
-‘Aah! Ranka-chan, that’s not fair! I want to be friends with Hoshizora-chan too!’\
+‘Aah! Ranka-chan, that’s not fair! I want to be friends with Sora-chan too!’\
 Omiya-san puffed out her cheeks in a way that was impossible to miss and pushed her way between Yamamoto-san and me.
 
-“Hoshizora-chan is really clever, isn’t she! You get nearly full marks in every test, don’t you? I’d love it if you could teach me next time.”\
+“Sora-chan is really clever, isn’t she! You get nearly full marks in every test, don’t you? I’d love it if you could teach me next time.”\
 Omiya-san looked at me with such sparkling eyes that it was almost blinding; I couldn’t bear to look directly at her and lowered my gaze.
 
 “If you’d like, I’d be happy to teach you anytime.”\
@@ -137,7 +137,7 @@ For some reason, Endo-san reacted to those words faster than anyone else.
 
 　I reckon I’ve gotten better at chatting with people than I used to be. If this had been me back in Year 1, I’d have just stammered my way through Omiya-san’s comment and that would’ve been the end of it.
 
-“Yay! Thanks, Hoshizora-chan!”\
+“Yay! Thanks, Sora-chan!”\
 “Right then, let’s all study together after school today, it’ll be a chance to get to know each other better too.”\
 It was Ando-san, the girl who least of all seems like the type to say the word ‘study’, who made the suggestion.
 
@@ -148,7 +148,7 @@ At this rate, I reckon Endo-san would be all for it too! Or so I thought. Howeve
 
 Come to think of it, I’d promised to study with Endo-san today. Well, since we’re all doing it together, I suppose it’s fine.
 
-‘Hoshizora, are you free today?’\
+‘Sora, are you free today?’\
 ‘Yeah.’\
 ‘Yay! It’s a done deal!’\
 Mai, Ando and Omiya were all buzzing with excitement.
@@ -158,7 +158,7 @@ Mai, Ando and Omiya were all buzzing with excitement.
 After school, we decided to study in the school library.\
 For some reason, Omiya and Ando had taken up positions right next to me. Mai, Endo and Yamamoto were sitting opposite.
 
-“Hoshizora, I’ve got this bit wrong, how can I make sure I don’t get it wrong next time?”
+“Sora, I’ve got this bit wrong, how can I make sure I don’t get it wrong next time?”
 
 　Omiya must be someone who likes to get quite close to people, because she was practically pressed up against me as she asked. When I looked to the side, her face was right there. She had long eyelashes, big, round eyes, and a perfectly shaped nose and eyebrows. She smelled of delicate flowers, and I thought she was the sort of girl who would be popular with all sorts of people.
 
@@ -172,7 +172,7 @@ I explained it to her in the same way I usually teach Endo-san and Miumi-chan.
 ‘Right then. I’ll call you Izumi-chan.’\
 Izumi-chan looked delighted as she got back to her studies.
 
-‘Takizawa-san really is the best in the year, isn’t she?’\
+‘Takisawa-san really is the best in the year, isn’t she?’\
 ‘I told you so!’\
 For some reason, Mai replied to Ando-san with a touch of pride.
 
@@ -203,7 +203,7 @@ This time, when I said my goodbyes, Endo-san’s face, which had looked grumpy t
 
 “The promise…”\
 “Hmm…?”\
-“I had a promise to study with Takizawa today…”\
+“I had a promise to study with Takisawa today…”\
 “But we did study together, didn’t we?”
 
 I didn’t understand what was wrong, and when I replied so matter-of-factly, Endo-san looked terribly sad.
@@ -225,7 +225,7 @@ I didn’t understand what was wrong, and when I replied so matter-of-factly, En
 　Endo-san, standing right in front of me, wore an expression that was a mixture of confusion, sadness and something else I couldn’t quite place.
 
 ‘Friends don’t do things like that.’\
-‘We’ve done this sort of thing before, and even if we do this, Takizawa and I are still friends.’
+‘We’ve done this sort of thing before, and even if we do this, Takisawa and I are still friends.’
 
 　As she said that, her arms tightened around me.
 
@@ -235,12 +235,12 @@ I didn’t understand what was wrong, and when I replied so matter-of-factly, En
 
 ‘And call me Hina.’\
 “Why?”\
-“actually, why am I the only one being called ‘Endo-san’? I hate that way of addressing me, it feels distant. Call me by my first name, Hoshizora.”
+“actually, why am I the only one being called ‘Endo-san’? I hate that way of addressing me, it feels distant. Call me by my first name, Sora.”
 
 Hearing Endo-san call my name made my heart ache. Because she was pressing so close, my whole body was burning up, and I wanted to run away from this place.
 
 “Don’t call me by my name.”\
-“I’ll keep calling you until you call me by my name. Hoshizora, please.”
+“I’ll keep calling you until you call me by my name. Sora, please.”
 
 　It didn’t look like Endo-san was going to let go.\
 　My heart didn’t think it could take any more.\
@@ -259,7 +259,7 @@ Just as I was struggling to breathe and looked like I was in distress, Endo bit 
 
 ‘That hurts…’
 
-‘You idiot, Takizawa. If you break our promise to study together, I’ll do it again.’
+‘You idiot, Takisawa. If you break our promise to study together, I’ll do it again.’
 
 Endo went inside, her face still looking sulky.
 

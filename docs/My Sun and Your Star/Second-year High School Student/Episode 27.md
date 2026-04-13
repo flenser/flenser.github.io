@@ -15,11 +15,11 @@ As usual, Endo-san was sitting right in front of me.
 
 The problem, however, was the person sitting beside me.
 
-"Takizawa, why did you invite someone else when today was supposed to be our study session?"
+"Takisawa, why did you invite someone else when today was supposed to be our study session?"
 
 Endo-san's face was smiling cheerfully, but her tone was low and rather frightening.
 
-"Hoshizora said she was studying with friends, so I tagged along. And look, I got to meet this gorgeous lady. Lucky you, sis!"
+"Sora said she was studying with friends, so I tagged along. And look, I got to meet this gorgeous lady. Lucky you, sis!"
 
 The woman next to me was spouting incomprehensible nonsense.
 
@@ -27,7 +27,7 @@ Yeah. I wanted to get out of there immediately.
 
 　Lately, I've been worrying so much I feel like I'm going bald. And today, things have turned particularly troublesome.
 
-"What exactly are you to Takizawa?"
+"What exactly are you to Takisawa?"
 
 Endo-san's expression changed.\
 It was the face of a dog about to bite someone approaching its owner.
@@ -36,7 +36,7 @@ It was the face of a dog about to bite someone approaching its owner.
 
 　The woman beside me was so practised at asking for names, I wondered if she was some new kind of pick-up artist.
 
-"Endo Hina. But why are you here? What are you to Takizawa?"\
+"Endo Hina. But why are you here? What are you to Takisawa?"\
 "Her lover."
 
 Mayo-nee suddenly pulled me close, her arm tight around my shoulder.\
@@ -63,7 +63,7 @@ I tugged at her cheek.
 
 Endo-san's angry expression turned to one of annoyance.
 
-"Takizawa, what are you doing?"
+"Takisawa, what are you doing?"
 
 Seeing Endo-san wasn't calming down, I removed my hand from her face and decided to explain.
 
@@ -92,7 +92,7 @@ I believe I'll never surpass my sister academically.
 
 "Calling me 'sister' is so formal. Usually you call me 'Mayo-nee, Mayo-nee' in that spoiled way, don't you?"
 
-"I want Takizawa to teach me."
+"I want Takisawa to teach me."
 
 Yeah... Nothing in this conversation is connecting, and I can't even tell who's talking to whom.
 
@@ -161,7 +161,7 @@ I glared at Mayo-nee. Completely unfazed, she didn't even flinch and just stroke
 
 The atmosphere turned incredibly awkward. This was all my sister's fault. Ever since we were kids, nothing good ever happened when Mayo-nee got involved.
 
-"Takizawa, explain this part."
+"Takisawa, explain this part."
 
 Unable to bear the tension any longer, I was about to leave when Endo-san spoke to me in her usual manner.
 

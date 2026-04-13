@@ -42,7 +42,7 @@ I intended to reply, but there was something I needed to do first. It wasn't dif
 
 Endo-san's eyes widened, as if surprised, and then, though I couldn't tell what was amusing, she let out a soft chuckle and smiled.
 
-"Takizawa, you're too stiff. You look like someone who's come to make a marriage proposal."
+"Takisawa, you're too stiff. You look like someone who's come to make a marriage proposal."
 
 Endo-san chuckled softly.
 
@@ -77,7 +77,7 @@ At times like this, I never know what to think, so I could only offer trite wish
 
 As I sat quietly contemplating before the Buddhist altar, Endo-san came to place tea and sweets as offerings.
 
-"I've put Takizawa's tea on the table for you," she said.
+"I've put Takisawa's tea on the table for you," she said.
 
 Her voice seemed less tense than usual, somehow softer.
 
@@ -139,7 +139,7 @@ And the fact she didn't invite friends suggests she doesn't see me as one. I sho
 
 I'm surprised by the words that come out of my own mouth. I hadn't meant to say them.
 
-"No, it's not like that, but what do you think our relationship is, Takizawa?"
+"No, it's not like that, but what do you think our relationship is, Takisawa?"
 
 "The person teaching and the person being taught. I think it's nothing more and nothing less than that."
 
@@ -185,7 +185,7 @@ Endo-san looked slightly puzzled.\
 
 "Today marks the end of our involvement. We're simply returning to our normal lives."
 
-"I still want you to teach me, and I'd like to ask Takizawa to do it."
+"I still want you to teach me, and I'd like to ask Takisawa to do it."
 
 As expected, Endo-san wouldn't budge.
 
@@ -229,13 +229,13 @@ I don't know how much time passed, but the soft thing left my lips and I returne
 
 Before me stood Endo-san, her cheeks flushed red.
 
-"I've kept my promise now, so you keep yours too, Takizawa."
+"I've kept my promise now, so you keep yours too, Takisawa."
 
 I couldn't make head nor tail of the situation.
 
 　I grabbed my bag and hurried outside.
 
-I heard Endo-san call out, "Takizawa!" but there was no way I was turning back.
+I heard Endo-san call out, "Takisawa!" but there was no way I was turning back.
 
 My lips were burning, my cheeks were burning, my whole body was burning.
 

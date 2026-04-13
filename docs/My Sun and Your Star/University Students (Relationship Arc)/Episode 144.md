@@ -70,7 +70,7 @@ I'd been so absorbed in making the soba I hadn't noticed.
 
 It was hard to tell if she was angry or happy.
 
-"Takizawa, Happy New Year. Looking forward to this year too."\
+"Takisawa, Happy New Year. Looking forward to this year too."\
 "Yeah."
 
 I brought the soba to my mouth immediately.\
@@ -98,7 +98,7 @@ Our stomachs full, the two of us were taking it easy when Endo-san began moving 
 "What is it?"\
 "I was thinking..."\
 "Yeah?"\
-"I want to meet Takizawa's mom and dad."\
+"I want to meet Takisawa's mom and dad."\
 "What...?"
 
 Endo-san's unexpected words squeezed at my heart. The soba I'd just eaten felt like it might come back up.

@@ -36,11 +36,11 @@ I took a breath and knocked on the door.
 
 "Haaai?"
 
-"...Um, it's Hoshizora."
+"...Um, it's Sora."
 
 I heard the sound of hurried footsteps, and the door opened.
 
-"What's got into you, Hoshizora, knocking on my door!?"\
+"What's got into you, Sora, knocking on my door!?"\
 "You're being noisy this morning."\
 "Sorry, sorry. Standing here's no good, come inside."
 
@@ -110,7 +110,7 @@ I headed towards the shopping centre without looking back at Endo-san. Even thou
 
 No matter how I reacted, Endo-san just kept smiling and following along.
 
-"Conversely, what's it like when you come with friends, Takizawa?"
+"Conversely, what's it like when you come with friends, Takisawa?"
 
 When I came with Mai, she'd take me all sorts of places, and I tried to enjoy myself a little, but I wasn't really interested in much, so I don't have many happy memories.
 
@@ -130,7 +130,7 @@ But the shopping was more fun than I expected. I tagged along with Endo-san when
 
 We went to a variety store, a sweet shop, a clothes shop – all sorts of places. Before we knew it, it was well past lunchtime.
 
-"I'm starving. Is there anything you fancy eating, Takizawa?"
+"I'm starving. Is there anything you fancy eating, Takisawa?"
 
 The only food I could think of that I liked was omelette rice.
 
@@ -138,7 +138,7 @@ The only food I could think of that I liked was omelette rice.
 
 When I answered that, Endo-san looked at me with her usual fake smile.
 
-"I'm glad you seem a bit happier today, Takizawa. You usually look so stern, with all these wrinkles here."
+"I'm glad you seem a bit happier today, Takisawa. You usually look so stern, with all these wrinkles here."
 
 She said that and touched my brow.
 
@@ -164,7 +164,7 @@ I found myself feeling disappointed in her, assuming she was just like my sister
 
 The place Endo-san took me to was an omelette rice restaurant. I thought to myself, Endo-san's homemade version was delicious though... as I entered the shop.
 
-"The only thing I know you like eating, Takizawa, is omelette rice,"\
+"The only thing I know you like eating, Takisawa, is omelette rice,"\
 Endo-san said, chuckling softly.
 
 　Her reaction, as if she hadn't cared about what I'd said earlier, annoyed me a little.
@@ -195,7 +195,7 @@ If I could, I'd rather come home late at night when everyone's asleep.
 
 I don't want to see anything.
 
-"Takizawa, don't you have anywhere you want to go?"\
+"Takisawa, don't you have anywhere you want to go?"\
 Endo-san's voice startled me.
 
 Somewhere I want to go... I want to go to a craft shop and buy embroidery materials. But I'd be embarrassed if Endo-san asked me lots of questions.

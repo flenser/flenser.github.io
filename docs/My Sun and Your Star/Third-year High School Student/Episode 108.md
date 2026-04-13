@@ -5,7 +5,7 @@ nav_order: 108
 ---
 Episode 108: What Has Changed
 
-‘Good morning, Takizawa.’
+‘Good morning, Takisawa.’
 
 　I heard Endo-san’s voice as soon as I stepped through the school gates.
 
@@ -31,7 +31,7 @@ Nothing changing should be the most settled and reassuring feeling — and yet t
 
 　I’m not very good at sports, so I take part in PE without drawing too much attention to myself.
 
-‘Hoshizora, come and join us!’
+‘Sora, come and join us!’
 
 　Mai called out to me from a distance, but I ignored her.
 
@@ -39,7 +39,7 @@ Nothing changing should be the most settled and reassuring feeling — and yet t
 
 　I sat down quietly next to him and skipped the lesson too.
 
-‘—My impression of you has changed, Takizawa-san.’
+‘—My impression of you has changed, Takisawa-san.’
 
 　I was so startled by the sudden address that I nearly jumped to my feet.
 
@@ -53,14 +53,14 @@ Nothing changing should be the most settled and reassuring feeling — and yet t
 　But isn’t that a bit rude……?\
 　No, that thought is rude to Wakase-kun.
 
-“You know, I’ve always wanted to talk to you, Takizawa-san. I couldn’t pluck up the courage to speak to you before. Since Year One, you’ve been so serious, always careful not to cause trouble for others, and surprisingly kind to everyone, haven’t you?”\
+“You know, I’ve always wanted to talk to you, Takisawa-san. I couldn’t pluck up the courage to speak to you before. Since Year One, you’ve been so serious, always careful not to cause trouble for others, and surprisingly kind to everyone, haven’t you?”\
 “Isn’t ‘surprisingly kind’ a bit rude?”\
 “You don’t exactly look like the kind of person who’d be kind, do you?”\
 “……”
 
 　I couldn’t think of a retort. It’s true, I might not be kind. I’m always cold towards Endo-san, too.
 
-“I like people like you, Takizawa-san.”\
+“I like people like you, Takisawa-san.”\
 “Huh…?”\
 “Ah, as a person.”\
 “Oh, thank you.”\
@@ -78,9 +78,9 @@ Nothing changing should be the most settled and reassuring feeling — and yet t
 
 　I said that to hide my embarrassment.
 
-“It’s because you’ve changed, Takizawa-san, that I’ve wanted to change too.”\
+“It’s because you’ve changed, Takisawa-san, that I’ve wanted to change too.”\
 “Eh?”\
-“Is there someone who’s influenced you as well, Takizawa-san?”
+“Is there someone who’s influenced you as well, Takisawa-san?”
 
 　The reason I’ve become this sort of person is surely because of Endo-san’s influence.
 
@@ -102,11 +102,11 @@ Nothing changing should be the most settled and reassuring feeling — and yet t
 
 　After PE, Mai and Endo-san kept pestering me.
 
-‘This is the first time I’ve ever seen Hoshizora talking to a boy in our class. What were you and Wakase talking about?’
+‘This is the first time I’ve ever seen Sora talking to a boy in our class. What were you and Wakase talking about?’
 
 　Mai was leaning in closer than usual to ask, so I found it a bit annoying and looked away.
 
-“Eh… even I, Mai, who’s been in the same class for three years, have never seen Takizawa talking to a boy before…? What were you talking about? Tell me.”
+“Eh… even I, Mai, who’s been in the same class for three years, have never seen Takisawa talking to a boy before…? What were you talking about? Tell me.”
 
 　Endo-san leaned in even closer, really digging in.
 
@@ -123,7 +123,7 @@ Nothing changing should be the most settled and reassuring feeling — and yet t
 
 　As I didn’t fancy being grilled for details later, I told him everything without holding anything back. When I’d finished, Endo-san looked utterly despondent.
 
-“Oh dear, Hoshizora, you really are the clueless one, aren’t you?”
+“Oh dear, Sora, you really are the clueless one, aren’t you?”
 
 What do you mean, ‘the clueless one’?\
 I think they’re all being rather rude.
@@ -142,7 +142,7 @@ I feel my heart is much lighter than it was back then, and I feel I’m living m
 
 I managed a clumsy smile and conveyed my deepest feelings to them.
 
-‘Hoshizora’s “thank you” is devastatingly powerful.’\
+‘Sora’s “thank you” is devastatingly powerful.’\
 ‘I couldn’t agree more… I feel like I’m going to get a nosebleed…’
 
 Endo-san responded to Mai’s joke with an even sillier one. It shouldn’t be funny, but whenever I’m talking with the two of them, my heart seems to dance.

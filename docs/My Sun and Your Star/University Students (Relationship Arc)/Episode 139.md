@@ -36,7 +36,7 @@ I can't imagine going back to the version of myself who was pessimistic about ev
 I have nothing but gratitude for Endo-san.
 
 "Thank you, Endo-san——"\
-"Takizawa, good morning~"
+"Takisawa, good morning~"
 
 She sat up and greeted me suddenly, and my body gave a little jolt.
 
@@ -75,7 +75,7 @@ But I wanted nineteen-year-old Endo-san's first name call to be mine. When she t
 
 A childish, selfish wish — and I was making Endo-san indulge it. But she was the only person I could be this selfish with.
 
-"*Hoshizora*. *Hoshizora*——"
+"*Sora*. *Sora*——"
 
 Endo-san leaned in close and called my name at my ear. Her pleasant voice reached my eardrum there and spread through my whole body. I had unconsciously stopped breathing.
 
@@ -90,7 +90,7 @@ We finished getting ready, and decided to go back to our hometown for the first 
 The start of our first year of university had been so hectic there'd been no chance to go back, so it had been quite some time.
 
 "It'll be about a year since we last saw Mom and Dad."\
-"It will. Takizawa, you don't have to come with me, you know?"\
+"It will. Takisawa, you don't have to come with me, you know?"\
 "I'm coming because I want to."
 
 Endo-san sometimes tries to push me away like that. A mix of sadness and irritation rises up at it.
@@ -134,7 +134,7 @@ People who had raised someone that wonderful.
 
 Looking at Endo-san, I thought I could understand a little of what they must have been like.
 
-"Takizawa, you were at it a long time?"\
+"Takisawa, you were at it a long time?"\
 "Yeah."\
 "What were you talking to Mom and Dad about?"\
 "It's a secret."\
@@ -156,7 +156,7 @@ Endo-san's father seemed like the type who would spoil her utterly, so there'd p
 
 Thinking that, a smile came to my face naturally.
 
-"You look happy, Takizawa."\
+"You look happy, Takisawa."\
 "Yeah. It's a day when I get to meet the family of someone precious to me."
 
 Saying that, Endo-san's face went completely soft and dopey.
