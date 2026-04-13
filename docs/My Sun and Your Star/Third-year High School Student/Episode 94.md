@@ -203,5 +203,3 @@ I pulled the hand intertwined with mine toward me, rose up just a little on my t
 　Truth be told, I wanted to run away from there right then and there; I was so embarrassed I wanted to vanish.
 
 　But that day, I held Endo-san’s hand the whole time and looked up at the sky until the fireworks stopped.
-
-![fireworks](/assets/images/sun-star-fireworks.jpg)

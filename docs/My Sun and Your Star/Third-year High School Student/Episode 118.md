@@ -167,6 +167,4 @@ I could hear Endo-san calling after me from behind, but I ignored her and kept r
 
 　Breathing so hard my lungs felt like they were freezing, I ran on in a daze. Before I knew it, I found myself in bed at home, crying — more tears than I could count.
 
-![confession](/assets/images/sun-star-confession.jpg)
-
 [^sora]: Takisawa's given name Sora, written with the kanji 星空, means "starry sky". Endo-san's love of the starry sky could be interpreted as a love of the vast, beautiful expanse of the sky, but we know it primarily means Endo-san's love for Sora.

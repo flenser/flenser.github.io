@@ -181,5 +181,3 @@ Looking towards the sound, I saw Mai and Miumi-chan peering delightedly at a pho
 "Got a great shot."
 
 Looking at the screen, there I was — smiling from the heart — and beside me, Takisawa, smiling her awkward smile.
-
-![blossoms](/assets/images/sun-star-blossoms.jpg)
