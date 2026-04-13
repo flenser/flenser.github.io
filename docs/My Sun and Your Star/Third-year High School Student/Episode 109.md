@@ -14,7 +14,7 @@ Ah, I see, Endo-san looks as though she’s understood. Mai must be planning to 
 
 ‘So, shall we have a Christmas party at my place on the 26th?’\
 ‘Is that OK with you, Hina-san!?’\
-‘Of course. Takizawa, too?’\
+‘Of course. Takisawa, too?’\
 ‘U-um…’
 
 With the two of them creating an atmosphere that made it hard to refuse, my Christmas plans are filled up again this year.
@@ -52,9 +52,9 @@ If I’m going to hang out with Mai on the twenty-sixth, I feel all the more com
 　I don’t understand why Endo-san is so insistent on spending Christmas with me. She’s got plenty of friends she could ask out…
 
 ‘Why that day?’\
-‘Because I want to be with Takizawa.’\
+‘Because I want to be with Takisawa.’\
 ‘It doesn’t have to be that day, does it?’\
-‘I want to be with Takizawa on Christmas.’
+‘I want to be with Takisawa on Christmas.’
 
 　Endo tells me things with such a straight, serious face that I would be far too embarrassed to say them myself. It makes me feel embarrassed just listening to her.
 
@@ -81,7 +81,7 @@ If I’m going to hang out with Mai on the twenty-sixth, I feel all the more com
 
 　I was about to do that for no reason at all. Lately, there are times when I can’t make sense of my own behaviour.
 
-‘Takizawa, are you teasing me?’
+‘Takisawa, are you teasing me?’
 
 　As Endo-san tried to do what I’d just been about to do, I covered her mouth with my hand.
 
@@ -99,12 +99,12 @@ Seeing her like that, I decided to accept her proposal for a sleepover study ses
 “But in return, we’ll be studying the whole time we’re awake.”\
 “Huh?”\
 “I won’t do it if you don’t want to.”\
-“I don’t mind. Will you concentrate, Takizawa-chan?”\
+“I don’t mind. Will you concentrate, Takisawa-chan?”\
 “Is Endo-san the one telling me that?”
 
 　I don’t know what Endo-san found so funny, but she was chuckling quietly to herself. Seeing her like that, I suppose the corners of my mouth naturally turned upwards too.
 
-“Takizawa, you’ve started laughing a lot more, haven’t you?”\
+“Takisawa, you’ve started laughing a lot more, haven’t you?”\
 “That’s because you’re pulling a silly face, Endo-san.”\
 “Isn’t that a bit rude? I do actually make an effort with my appearance, you know.”
 
@@ -116,7 +116,7 @@ She said that with a look that seemed to say, ‘How about that!’
 
 　Endo-san’s eyes widened, then she looked away from me and muttered something under her breath. A faint blush spread across her cheeks, and I found myself admiring her, thinking, ‘So she can make that sort of expression too.’
 
-‘What sort of person is your type, Takizawa? In terms of looks or personality?’
+‘What sort of person is your type, Takisawa? In terms of looks or personality?’
 
 　Endo-san’s unexpected question started to give me a headache.\
 　To begin with, I’ve never actually fallen for anyone romantically, so I feel rather out of my depth when it comes to those kinds of feelings.
@@ -130,7 +130,7 @@ She said that with a look that seemed to say, ‘How about that!’
 
 Being with someone who makes my heart race and keeps me on edge just wears me out. I hate feeling tired, so that’s the only reason I answered that way.
 
-“Takizawa, if you ever have something worrying you, tell me, okay? I'll listen to anything.”\
+“Takisawa, if you ever have something worrying you, tell me, okay? I'll listen to anything.”\
 “O-okay...?”
 
 　What on earth has got into her all of a sudden?

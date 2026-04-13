@@ -108,7 +108,7 @@ Before I could finish saying I'd been trying to kiss her, something soft floated
 
 Endo-san looked at me with a bashful smile. My heart beat steadily at that smile, and warmth spread through my whole body.
 
-"Takizawa, have you had chocolate? I can smell cacao."
+"Takisawa, have you had chocolate? I can smell cacao."
 
 At those words I startled and quickly took the sweet I'd made from my bag.
 
@@ -131,7 +131,7 @@ Endo-san's expression was a mixture of surprise and mild dissatisfaction. That s
 At that, Endo-san's expression broke into a full beaming smile — she sat on the sofa and photographed the gateau chocolat I'd given her.
 
 "What are you doing?"\
-"Commemorating receiving Valentine's chocolate from Takizawa."\
+"Commemorating receiving Valentine's chocolate from Takisawa."\
 "You’re silly."\
 "I'm just so happy!"
 
@@ -172,12 +172,12 @@ Her voice suddenly turned sombre from the cheerful tone of a moment ago, making 
 
 I wanted to make her happy with something I’d worked hard on and made with my own hands. Not that I could honestly say such a thing, though…
 
-“I want to watch you make it too, Takizawa.”\
+“I want to watch you make it too, Takisawa.”\
 “I don’t want Endo-san to see.”
 
 I didn’t want her to see my shortcomings. I was afraid she’d be disappointed in me. I’d come to feel that way at some point.
 
-“You’re being mean. Oh, I made something for Takizawa too.”
+“You’re being mean. Oh, I made something for Takisawa too.”
 
 She scampered off to the kitchen and brought back a cute little parcel, inside which was a fluffy, cream-coloured cake.
 
@@ -206,7 +206,7 @@ It looked like she was seeing something frightening — so, a little puzzled, I 
 Her cheek was as soft as the chiffon cake from a moment ago.
 
 "Why are you making such a strange face."\
-"I was just dazzled by Takizawa's smile."
+"I was just dazzled by Takisawa's smile."
 
 *Smile...?*\
 Had I actually been smiling just now?
@@ -225,12 +225,12 @@ I didn't want it to always be me on the receiving end.
 
 "Just getting a Valentine's gift from you is enough."\
 "Is there really nothing?"\
-"Oh — then please introduce me to Takizawa's mom and dad."\
+"Oh — then please introduce me to Takisawa's mom and dad."\
 "That again? Why do you want to meet them so badly?"
 
 I didn't understand why she'd want to meet my parents that much. Endo-san had been on about this since last time.
 
-"I want to greet Takizawa's parents. Just like Takizawa did for my mum and dad——"
+"I want to greet Takisawa's parents. Just like Takisawa did for my mum and dad——"
 
 At those words, my chest tightened. What she was saying was probably right. But I didn't want anything to happen.
 
@@ -246,7 +246,7 @@ Maybe I was overthinking it — but their past behaviour toward me made me feel 
 "My parents might say something awful to Endo-san."\
 "Don’t worry about that."\
 "What?"\
-"No matter what awful things are said — I have no intention of ever leaving you, Takizawa."
+"No matter what awful things are said — I have no intention of ever leaving you, Takisawa."
 
 I was suddenly pulled close, my chest tightened, and the chiffon cake I'd eaten a moment ago seemed to turn slowly inside me.
 

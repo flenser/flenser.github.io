@@ -30,7 +30,7 @@ And it wasn't the face she used to wear around Akari-san and Nao-san — it was 
 
 Whilst I’m glad I get to see that every day, for some reason I don’t really like the idea of everyone seeing Endo’s candid expression.
 
-‘Hoshizora? Are you alright? You’re spacing out a bit too much.’\
+‘Sora? Are you alright? You’re spacing out a bit too much.’\
 Mai peered at my face with concern.
 
 ‘I’m fine. I was just blown away by how delicious the bread was.’\
@@ -41,17 +41,17 @@ What on earth am I saying…?
 
 Whenever I think about Endo, I become so foolish it surprises even myself. Realising I need to pull myself together, I focus my attention on reality.
 
-“Shall I make Takizawa’s lunch every day from tomorrow?”\
+“Shall I make Takisawa’s lunch every day from tomorrow?”\
 “Eh?”\
 It was Mai, not me, who reacted.
 
-“Takizawa just eats convenience store rice balls and bread every day. They’re full of additives. I was thinking I’d make lunch for her because it’s bad for her health.”
+“Takisawa just eats convenience store rice balls and bread every day. They’re full of additives. I was thinking I’d make lunch for her because it’s bad for her health.”
 
 Once again, it was Mai who jumped at Endo-san’s suggestion.
 
-‘You’re acting like Hoshizora’s mum. If that’s the case, make one for me too!’\
+‘You’re acting like Sora’s mum. If that’s the case, make one for me too!’\
 ‘No way.’\
-‘It’s not fair that you only make them for Hoshizora, Hoshizora’s mum, make one for me too!’\
+‘It’s not fair that you only make them for Sora, Sora’s mum, make one for me too!’\
 ‘But you bring a delicious packed lunch every day, don’t you?’\
 ‘I just want to try a different flavour once in a while.’
 
@@ -63,16 +63,16 @@ I’d love to try Endo-san’s packed lunch, but I know it would be a bother for
 
 As I stood there watching the two of them bicker, a classmate approached me.
 
-‘Someone’s calling for you, Takizawa.’
+‘Someone’s calling for you, Takisawa.’
 
 When I looked down the corridor after being told that, I saw a cute little girl whose uniform was a bit too big for her, looking around nervously.
 
-‘Hoshizora, what’s with that cute little girl who looks like a small animal! I want to have a bit of a go with her.’\
+‘Sora, what’s with that cute little girl who looks like a small animal! I want to have a bit of a go with her.’\
 ‘Don’t say such silly things. Just wait a moment.’\
 Saying that, I left my seat.
 
 ‘Miumi-chan, what’s the matter?’\
-‘I’ve finally got into the same high school as you, Hoshizora-sensei, so I came to meet you!’
+‘I’ve finally got into the same high school as you, Sora-sensei, so I came to meet you!’
 
 Oh, what a lovely girl.\
 She’s so honest, it’s quite heart-warming.
@@ -93,16 +93,16 @@ I couldn’t say that, though, so I gave the standard answer to make sure she co
 ‘Yes!’\
 Miumi-chan walked away looking satisfied.
 
-‘Welcome back, Hoshizora. A friend?’\
+‘Welcome back, Sora. A friend?’\
 ‘No. A pupil from my tutoring job.’\
-‘Eh! You’re working part-time, Hoshizora?’\
+‘Eh! You’re working part-time, Sora?’\
 ‘Sort of.’
 
 I’m planning to go to university next year. However, rather than the medical school my parents want me to attend, I’m aiming for the Faculty of Education. My older sister arranged this part-time job for me so that I can prepare now to ensure I can go to university, come what may.
 
 ‘What’s that in your hand?’\
 ‘She made it, so she told me to eat it.’\
-“You know, Hoshizora, you’re surprisingly popular. You’re the type who gets spoiled.”\
+“You know, Sora, you’re surprisingly popular. You’re the type who gets spoiled.”\
 “What are you on about?”\
 Since Mai was saying something completely nonsensical, I pinched her cheek.
 
@@ -113,7 +113,7 @@ When I looked at her face, she looked a bit sad?
 　After school, Endo-san and Mai went for some extra practice, even though they didn’t have any club activities. Apparently, they’re putting a lot of effort into training because their final tournament as third-years is in June.\
 I had my tutoring job, so I headed over to Miumi-chan’s house.
 
-“Hoshizora-sensei, are you close with that girl with the long, brown hair you were with?”\
+“Sora-sensei, are you close with that girl with the long, brown hair you were with?”\
 “Hmm, I suppose we’re just on normal terms.”
 
 I think the ‘girl with the long, brown hair’ Miumi-chan is referring to is Endo-san.
@@ -123,7 +123,7 @@ I think the ‘girl with the long, brown hair’ Miumi-chan is referring to is E
 
 I don’t know why Miumi-chan is asking this. I don’t know, but I can’t very well ignore a question from such a cute pupil.
 
-‘I think the girl with the brown hair probably likes you, Hoshizora-sensei.’
+‘I think the girl with the brown hair probably likes you, Sora-sensei.’
 
 Hmm, it’s true that Endo-san is quite attached to me, and the other day when I asked her to be my friend, she accepted straight away, so I don’t think she dislikes me.
 
@@ -131,7 +131,7 @@ Hmm, it’s true that Endo-san is quite attached to me, and the other day when I
 
 Miumi-chan looks at me with an expression that suggests she isn’t convinced by that answer.
 
-“Do you have a crush on anyone, Hoshizora-sensei?”
+“Do you have a crush on anyone, Sora-sensei?”
 
 Why do people always want to know who others have a crush on?\
 Mai, Endo-san, my older sister and even Hikari have all asked me that.
@@ -141,7 +141,7 @@ At that, Miumi-chan reluctantly began to focus on her work.
 
 　Time flew by, and the tutoring session came to an end.
 
-‘Hoshizora-sensei, can I come to the classroom again, like today?’\
+‘Sora-sensei, can I come to the classroom again, like today?’\
 ‘You can come, but you’re not allowed to bring anything with you. If you can stick to that, then fine.’
 
 It must take quite a bit of courage to come to a third-year classroom, so I think she’s amazing. My part-time job finished without a hitch today, and I walked along the usual route.

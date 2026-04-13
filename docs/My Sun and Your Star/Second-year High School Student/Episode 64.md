@@ -14,7 +14,7 @@ It makes me worry that if she were to fall for someone, she’d end up working h
 
 　Endo-san sat down next to me and leaned back against the bed.
 
-‘It’s more like I’m the one who always gets too much from Takizawa.’
+‘It’s more like I’m the one who always gets too much from Takisawa.’
 
 Saying that, Endo-san rested her head on my shoulder. Normally, I’d tell her to stop and shoo her away, but her voice sounded a bit more subdued than usual, so I found myself unable to say a word.
 
@@ -25,7 +25,7 @@ Saying that, Endo-san rested her head on my shoulder. Normally, I’d tell her t
 Endo-san is stubborn at times like this.\
 When she’s like that, no matter how much I deny it, she won’t back down, so I have to give up trying to deny it.
 
-‘Takizawa might not remember, but the day you gave me that handkerchief in the park, I was on my way to see my mum and dad.’\
+‘Takisawa might not remember, but the day you gave me that handkerchief in the park, I was on my way to see my mum and dad.’\
 ‘Eh?’
 
 I was so taken aback that I couldn’t say a word. I feel like this is the first time I’ve heard Endo-san talk about such a sombre topic.
@@ -44,7 +44,7 @@ It’s not for that reason, but I take Endo-san’s hand. I know that doing this
 
 She tightens her grip on my hand and takes a deep breath.
 
-“But then Takizawa spoke to me. She spoke gently to me, even though I was a complete wreck. She was clumsy about it, but she handed me a handkerchief and comforted me. When I looked up at Takizawa, the sky behind her was full of incredibly beautiful stars. I don’t think I would have seen such a beautiful starry sky if Takizawa hadn’t spoken to me. And I thought I wanted to see that beautiful starry sky together with Mum and Dad. They were all feelings I hadn’t felt since I’d been alive, and I remembered the promise I’d made to be happy for Mum and Dad as well.”
+“But then Takisawa spoke to me. She spoke gently to me, even though I was a complete wreck. She was clumsy about it, but she handed me a handkerchief and comforted me. When I looked up at Takisawa, the sky behind her was full of incredibly beautiful stars. I don’t think I would have seen such a beautiful starry sky if Takisawa hadn’t spoken to me. And I thought I wanted to see that beautiful starry sky together with Mum and Dad. They were all feelings I hadn’t felt since I’d been alive, and I remembered the promise I’d made to be happy for Mum and Dad as well.”
 
 Endo-san lifted her head, which had been resting against me, and looked straight at me.
 
@@ -61,18 +61,18 @@ It really was just a coincidence that Endo-san was in the park and I spoke to he
 
 Ignoring my muddled emotions, Endo-san continued speaking.
 
-‘I like that about you, Takizawa. The way you’re unconsciously kind to people, or act for someone else’s sake. I think it’s really lovely.’
+‘I like that about you, Takisawa. The way you’re unconsciously kind to people, or act for someone else’s sake. I think it’s really lovely.’
 
 Endo-san is gentler than before, but she squeezes my hand back with a firm grip. Because of that, I find myself unable to say a word.
 
-‘That’s why I was so happy when I found Takizawa at high school. I made up all sorts of excuses just to get to know her, and finally we reached the point where we studied together. Being with Takizawa makes my heart feel all warm and cosy. It made me realise it’s okay to just be myself. You didn’t just help me back then; you’re still giving me so much now.’
+‘That’s why I was so happy when I found Takisawa at high school. I made up all sorts of excuses just to get to know her, and finally we reached the point where we studied together. Being with Takisawa makes my heart feel all warm and cosy. It made me realise it’s okay to just be myself. You didn’t just help me back then; you’re still giving me so much now.’
 
 Me…?
 
 I’d never even thought I was of any use to Endo-san.\
 　On the contrary, I thought I’d done nothing but terrible things and that she must hate me.
 
-“Takizawa, stay here tonight. Don’t go home.”
+“Takisawa, stay here tonight. Don’t go home.”
 
 I can start to hear my heartbeat.\
 It’s my own heartbeat.\
@@ -109,14 +109,14 @@ With that thought, I made my way to the family altar where Endo-san’s mother a
 
 I don’t know how long I stood there, but I could hear the sound of Endo-san walking hurriedly. She must have just got out of the bath.
 
-‘Takizawa, were you here? I panicked because you weren’t in my room and thought you’d gone home.’
+‘Takisawa, were you here? I panicked because you weren’t in my room and thought you’d gone home.’
 
 　Endo-san, her cheeks flushed perhaps from the bath, looked at me. Ignoring her, I stood up and went back to her room.
 
 ‘What were you doing?’\
 　I didn’t answer that question.
 
-‘Takizawa, you always say hello when you come to my house, don’t you? Thank you.’\
+‘Takisawa, you always say hello when you come to my house, don’t you? Thank you.’\
 “I’m just doing what anyone would do.”
 
 　Endo didn’t say anything else.\
@@ -263,7 +263,7 @@ I find being intimate with Endo-san feels good. I’m not quite sure why.
 　I could just let myself go with this comfort, but there’s something I simply have to know.
 
 ‘But I don’t do things like that with my friends. Do you do that sort of thing with your other friends too, Endo-san?’\
-‘No, I don’t. It’s only you, Takizawa. Cooking for you and letting you stay over is only for you. It’s fine, isn’t it? You and I can be that sort of friends.’
+‘No, I don’t. It’s only you, Takisawa. Cooking for you and letting you stay over is only for you. It’s fine, isn’t it? You and I can be that sort of friends.’
 
 Endo-san is saying something I don’t quite understand. Still, hearing that she doesn’t do that sort of thing with her other close friends, I feel a sense of relief.
 

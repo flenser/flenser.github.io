@@ -30,14 +30,14 @@ Episode 101: Bonus - A Dear Friend
 　Miumi spoke with a look of utter dissatisfaction on her face.\
 　I’d wanted to do it for a while, but I held back because I thought she might hate me if I went straight for it. That’s all.
 
-“If I get the chance, would it be okay if I told Hina and Hoshizora that we’re dating?”
+“If I get the chance, would it be okay if I told Hina and Sora that we’re dating?”
 
-　Partly because I wanted my two friends to know, and partly because, though I don’t suspect Miumi, I wanted to have proof that she has absolutely no feelings left for Hoshizora, I asked her.
+　Partly because I wanted my two friends to know, and partly because, though I don’t suspect Miumi, I wanted to have proof that she has absolutely no feelings left for Sora, I asked her.
 
 “Of course. I want them to know too.”
 
 　Hearing that answer, I felt relieved.\
-　There had been times when I wondered if she might still have feelings for Hoshizora, so I was really happy.
+　There had been times when I wondered if she might still have feelings for Sora, so I was really happy.
 
 　＊＊＊
 
@@ -47,15 +47,15 @@ Episode 101: Bonus - A Dear Friend
 
 　Hina told me who she likes. Well, I’d already heard things from Miumi, and Hina’s behaviour was pretty obvious, I could see everything clearly from my seat at the back during lessons, so I’d noticed, but I was glad to hear it from Hina herself for the first time.
 
-　And whilst I don’t know if Hoshizora likes her, I can tell from her behaviour that Hina is definitely special to her.
+　And whilst I don’t know if Sora likes her, I can tell from her behaviour that Hina is definitely special to her.
 
 　Well, I was a bit surprised to hear they’d been kissing even though they weren’t officially dating, but I have no intention of interfering in their relationship.
 
-I just want Hina and Hoshizora to be happy.
+I just want Hina and Sora to be happy.
 
-After finishing up with Ando and the others, I returned to the room where Hina and Hoshizora were, and a heart-warming scene unfolded before me.
+After finishing up with Ando and the others, I returned to the room where Hina and Sora were, and a heart-warming scene unfolded before me.
 
-Hina and Hoshizora were sleeping together, looking so happy.
+Hina and Sora were sleeping together, looking so happy.
 
 ‘Hehe, they look so happy…’
 
@@ -68,4 +68,4 @@ I hurried back to Ando-san and the others’ room.
 
 The three of them gladly accepted me.
 
-I closed my eyes in the slightly cramped futon, hoping that tomorrow I could have another casual chat with Hoshizora and Hina, and that these happy days would continue.
+I closed my eyes in the slightly cramped futon, hoping that tomorrow I could have another casual chat with Sora and Hina, and that these happy days would continue.

@@ -15,7 +15,7 @@ This makes it look like I’m looking forward to it, which is embarrassing…
 
 Just as I was about to head to our usual park to kill some time, the front door opened at just the right moment.
 
-　‘Takizawa? You’re here already?’
+　‘Takisawa? You’re here already?’
 
 I felt like running away right then and there.
 
@@ -33,7 +33,7 @@ Endo-san was just wearing her pyjamas with a coat thrown over the top, and she l
 Just as I’d expected, she’d caught a chill and was sneezing.
 
 “Endo-san, you’re such an idiot.”\
-“Takizawa, you’re always calling me an idiot…”
+“Takisawa, you’re always calling me an idiot…”
 
 　She was grumbling about something, but I didn’t pay any mind and wrapped my scarf around her mouth. Endo-san stared at me with a bewildered look on her face.
 
@@ -41,14 +41,14 @@ Just as I’d expected, she’d caught a chill and was sneezing.
 
 　I was wearing gloves and a thick coat, so I didn’t think I’d get cold just because I’d lost my scarf, and I wrapped it around Endo-san.
 
-“Takizawa, aren’t you cold…?”\
+“Takisawa, aren’t you cold…?”\
 “I’ve been walking, so it’s just right.”
 
 　We set off walking.
 
 　She was quiet for a while, so when I looked at her, her face was red. The cold wind must have hit her and made her face red from the chill. I was glad I’d come dressed warmly.
 
-“You smell nice, Takizawa.”
+“You smell nice, Takisawa.”
 
 　Endo-san was pressing the scarf I’d wrapped around her face tightly against her nose.
 
@@ -79,7 +79,7 @@ The supermarket was warm thanks to the heating. Reassured that Endo-san would pr
 
 　Before, she used to smile in a polite, constructed way, but now her expression is soft and natural. I’m so happy to see her like this that I find myself smiling too.
 
-‘Takizawa, thank you for always carrying my bags.’\
+‘Takisawa, thank you for always carrying my bags.’\
 ‘You’re the one cooking for me, so it’s only natural, isn’t it?’
 
 It’s not as if I’ve done anything particularly worthy of thanks.
@@ -106,7 +106,7 @@ With a deep sigh, Endo-san stretched. When you’re focused, time flies; we’d 
 
 Once she’d settled back down, Endo-san spoke to me with a rather heavy air about her.
 
-“Takizawa…”\
+“Takisawa…”\
 “Hmm?”\
 “I’ve been feeling scared lately. I’m worried I might fail my entrance exams…”
 
@@ -148,7 +148,7 @@ Because I met Endo-san—
 
 　I’d never seen her show any signs of weakness before, so I thought it was unusual and felt a little urge to encourage her.
 
-‘Takizawa patted my head, so I’ll do my best…’
+‘Takisawa patted my head, so I’ll do my best…’
 
 I thought, ‘What sort of reason is that?’, but seeing a little brightness return to her face, I decided it was fine.
 
@@ -205,7 +205,7 @@ I felt a bit self-conscious about setting them out on the table myself, so as I 
 　A wonderful aroma wafts from the kitchen. I’m completely taken aback by the dish she’s brought back.
 
 “Is this…”\
-“Takizawa said she wanted to eat this, so I’ve been practising.”
+“Takisawa said she wanted to eat this, so I’ve been practising.”
 
 　Endo-san replied with a smug look on her face.\
 　I never thought she’d actually remembered.

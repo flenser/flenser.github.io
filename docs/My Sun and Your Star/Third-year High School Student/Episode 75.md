@@ -20,50 +20,50 @@ Every year, I feel like this at the Sports Day, so I don’t remember ever reall
 
 ‘Endo-san, you’re looking pale. Are you alright?’
 
-Takizawa peered at me with concern.
+Takisawa peered at me with concern.
 
-　Seeing Takizawa’s face calmed me a little, and the anxiety I’d been feeling just a moment ago eased slightly.
+　Seeing Takisawa’s face calmed me a little, and the anxiety I’d been feeling just a moment ago eased slightly.
 
 At the sports day, each class was assigned a different coloured headband, and ours was blue.
 
-There’s a strange tradition at this school where, after the sports day is over, you swap headbands with your boyfriend or the person you like. I wasn’t going to follow that rule, but I found myself wanting a headband with Takizawa’s name on it.
+There’s a strange tradition at this school where, after the sports day is over, you swap headbands with your boyfriend or the person you like. I wasn’t going to follow that rule, but I found myself wanting a headband with Takisawa’s name on it.
 
 ‘Endo, are you nervous?’\
 ‘Yeah.’\
 ‘You’re fine just as you are, Endo-san.’
 
-Takizawa was being unusually kind. I’d recently learnt that the best way to get her attention was to act a bit spoiled when she was like that.
+Takisawa was being unusually kind. I’d recently learnt that the best way to get her attention was to act a bit spoiled when she was like that.
 
-‘If I manage to stick it out until the end of the sports day, can I have your headband, Takizawa?’
+‘If I manage to stick it out until the end of the sports day, can I have your headband, Takisawa?’
 
-I didn’t think she’d give it to me, but it didn’t cost anything to ask, so I decided to give it a go. The moment I said it, a frown creased Takizawa’s brow.
+I didn’t think she’d give it to me, but it didn’t cost anything to ask, so I decided to give it a go. The moment I said it, a frown creased Takisawa’s brow.
 
 ‘Why?’\
 ‘Because it’ll give me the motivation to keep going.’
 
-　I felt embarrassed by what I’d said and looked down, and Takizawa gave my head a gentle pat.
+　I felt embarrassed by what I’d said and looked down, and Takisawa gave my head a gentle pat.
 
 “If you’re going to enjoy yourself rather than just trying hard, I might consider it.”
 
-With that, Takizawa walked off somewhere.
+With that, Takisawa walked off somewhere.
 
-The spot where Takizawa had patted me began to throb with warmth.
+The spot where Takisawa had patted me began to throb with warmth.
 
-Takizawa hadn’t said ‘do your best’ but ‘enjoy yourself’.
+Takisawa hadn’t said ‘do your best’ but ‘enjoy yourself’.
 
-　And apparently, if I managed to enjoy myself, Takizawa would give me a headband.
+　And apparently, if I managed to enjoy myself, Takisawa would give me a headband.
 
 At those words, the anxiety I’d been feeling until just a moment ago vanished, and I felt ready to give my all to the event ahead.
 
 I was determined to do my best………….
 
-Takizawa standing right in front of me was just too cute; I couldn’t focus on anything else.
+Takisawa standing right in front of me was just too cute; I couldn’t focus on anything else.
 
 I couldn’t even speak.
 
-Our class had chosen animals as the theme for the fancy dress relay. Mai was a monkey, and since Mai and Takizawa both said I looked like a dog, I ended up dressing as one.
+Our class had chosen animals as the theme for the fancy dress relay. Mai was a monkey, and since Mai and Takisawa both said I looked like a dog, I ended up dressing as one.
 
-I was the only one feeling embarrassed, so right up until the day of the event, I’d been begging Takizawa to please dress up as a polar bear, my absolute favourite.
+I was the only one feeling embarrassed, so right up until the day of the event, I’d been begging Takisawa to please dress up as a polar bear, my absolute favourite.
 
 I realised that hard work really does pay off.
 
@@ -73,17 +73,17 @@ There’s a polar bear right in front of me.
 
 This is unfair.\
 I didn’t ask for this.\
-　I never imagined Takizawa would actually dress up as a polar bear...
+　I never imagined Takisawa would actually dress up as a polar bear...
 
-Takizawa is wearing a fluffy white outfit with a white, round-eared headpiece.
+Takisawa is wearing a fluffy white outfit with a white, round-eared headpiece.
 
-“Cute Hoshizora!”
+“Cute Sora!”
 
-Mai immediately threw herself into Takizawa’s arms, so I hurriedly pulled her away from her.
+Mai immediately threw herself into Takisawa’s arms, so I hurriedly pulled her away from her.
 
-“We’ll never see Takizawa like this again, so let’s take a photo.”
+“We’ll never see Takisawa like this again, so let’s take a photo.”
 
-　When I said that to Mai, she agreed, and the two of us started snapping away at Takizawa. As we did, Takizawa looked incredibly angry.
+　When I said that to Mai, she agreed, and the two of us started snapping away at Takisawa. As we did, Takisawa looked incredibly angry.
 
 “Stop it, both of you. Delete the photos.”\
 “Sorry, sorry.”
@@ -92,26 +92,26 @@ Mai immediately threw herself into Takizawa’s arms, so I hurriedly pulled her 
 
 “Endo-san, if you don’t delete them, I’ll get angry.”
 
-　It seemed Takizawa simply wouldn’t rest until they were deleted. Being a bit of a schemer, I chose words that would leave Takizawa speechless.
+　It seemed Takisawa simply wouldn’t rest until they were deleted. Being a bit of a schemer, I chose words that would leave Takisawa speechless.
 
 ‘Thanks to this photo, I feel a lot better.’
 
-I told Takizawa that in a way only we would understand. I’d told her I wasn’t good at sports days. Takizawa’s clever, so she’d surely understand what I meant.
+I told Takisawa that in a way only we would understand. I’d told her I wasn’t good at sports days. Takisawa’s clever, so she’d surely understand what I meant.
 
 ‘You’re such an idiot, Endo.’\
 ‘Come on, come on, it’s fine. Let’s enjoy the sports day!’
 
-Thanks to Mai’s cheerful remark, we managed to get through that moment. I’d somehow managed to get my hands on a photo of Takizawa looking like a polar bear.
+Thanks to Mai’s cheerful remark, we managed to get through that moment. I’d somehow managed to get my hands on a photo of Takisawa looking like a polar bear.
 
 The fancy dress relay was over, and the sports day was finally getting underway.
 
-Next up after the centipede relay was Takizawa’s bread-eating race. I decided to get my camera ready and take some photos of Takizawa.
+Next up after the centipede relay was Takisawa’s bread-eating race. I decided to get my camera ready and take some photos of Takisawa.
 
-Whilst everyone else was desperately trying to catch the wobbling bread, Takizawa caught a cream bun in one go and took first place with flying colours.
+Whilst everyone else was desperately trying to catch the wobbling bread, Takisawa caught a cream bun in one go and took first place with flying colours.
 
-　Takizawa returned with the bun, a slight smile on her face.
+　Takisawa returned with the bun, a slight smile on her face.
 
-‘Hoshizora, you’ve discovered a new talent.’\
+‘Sora, you’ve discovered a new talent.’\
 ‘Shut up.’
 
 Mai was being told off, which was unusual. Or rather, perhaps she’s always being told off. But when it goes that far, I really do think it’s a talent. It was so funny I couldn’t help but laugh.
@@ -119,19 +119,19 @@ Mai was being told off, which was unusual. Or rather, perhaps she’s always bei
 ‘It’s annoying that even you’re making fun of me, Endo-san.’\
 “Sorry, sorry.”
 
-Following Mai, I ended up getting told off too. But I found this year’s sports day rather fun. Just having Takizawa by my side made the sports day, which had been so dreary, start to come alive.
+Following Mai, I ended up getting told off too. But I found this year’s sports day rather fun. Just having Takisawa by my side made the sports day, which had been so dreary, start to come alive.
 
-Takizawa really is amazing.
+Takisawa really is amazing.
 
-I’m struck by just how important Takizawa is to me.
+I’m struck by just how important Takisawa is to me.
 
 Next, it was Mai’s turn to compete in the obstacle course.
 
 　Mai breezed through the events, but then something unexpected happened. She seemed to have lost her balance on the balance beam and twisted her ankle.
 
-Takizawa and I rushed over.
+Takisawa and I rushed over.
 
-Takizawa hoisted Mai onto her back and carried her to the infirmary. As Mai is slender and petite, it didn’t look like it was much of a struggle for her.\
+Takisawa hoisted Mai onto her back and carried her to the infirmary. As Mai is slender and petite, it didn’t look like it was much of a struggle for her.\
 Even though Mai was injured, I found myself feeling a bit annoyed about it.
 
 ‘Ouch, ouch. It’s not that bad, but I don’t think I can compete today…’
@@ -152,29 +152,29 @@ Faced with that reality, I felt a bit breathless and my breathing grew shallow.
 
 “I’ll do it.”
 
-Whilst everyone looked taken aback, and in the middle of it all, Takizawa grabbed my hand somewhat forcefully and brought me around to the back of the school building.
+Whilst everyone looked taken aback, and in the middle of it all, Takisawa grabbed my hand somewhat forcefully and brought me around to the back of the school building.
 
 “Endo-san, what are you spacing out for?”
 
 Her voice snaps me back to reality.
 
-“Don’t you hate standing out, Takizawa?”\
+“Don’t you hate standing out, Takisawa?”\
 “I can't afford to worry about that. Cleaning up Mai's messes — I've been used to that since first year.”
 
-　Saying that, Takizawa tied our legs together with a cloth band.
+　Saying that, Takisawa tied our legs together with a cloth band.
 
 ‘I’m slow, and it’s my first time doing a three-legged race, so I might fall...’
 
-For once, Takizawa looked very anxious.\
+For once, Takisawa looked very anxious.\
 Why is she agreeing to do this with me when she’s so worried? Questions I couldn’t answer kept popping into my head.
 
-However, Takizawa seemed determined to go through with the three-legged race with me. I pondered what words might cheer her up and chose my words carefully.
+However, Takisawa seemed determined to go through with the three-legged race with me. I pondered what words might cheer her up and chose my words carefully.
 
 “If you fall, I’ll carry you in my arms and keep running.”\
 “You’d better do that, then.”
 
-Takizawa gave a sly grin.\
-Lately, I’ve felt that Takizawa has been joking around and acting a bit silly a little more often.
+Takisawa gave a sly grin.\
+Lately, I’ve felt that Takisawa has been joking around and acting a bit silly a little more often.
 
 Seeing that expression, the suffocating feeling I’d had until just a moment ago vanished somewhere, and I could feel the heart pounding in my chest begin to settle.
 
@@ -182,12 +182,12 @@ Seeing that expression, the suffocating feeling I’d had until just a moment ag
 
 She always helps me like that.
 
-We only managed to practise for about fifteen minutes before it was time for the actual race. Standing at the starting line, I felt nervous and my grip tightened around Takizawa’s arm.
+We only managed to practise for about fifteen minutes before it was time for the actual race. Standing at the starting line, I felt nervous and my grip tightened around Takisawa’s arm.
 
 ‘Endo-san, do you remember your promise?’\
 ‘Of course.’
 
-Perhaps satisfied with my answer, Takizawa said nothing and looked straight ahead.
+Perhaps satisfied with my answer, Takisawa said nothing and looked straight ahead.
 
 Bang!
 
@@ -197,37 +197,37 @@ To be honest, it’s easier to run this way than with Mai.
 
 I wonder if there’s such a thing as a ‘good match’ for three-legged races, or if we’re just too well-suited to each other. I decided to just go with the idea that we’re too well-suited.
 
-As we neared the finish line, Takizawa and I started to lose our rhythm a little. Just as I tried to slow down to keep pace with her, she gripped my shoulder tightly.
+As we neared the finish line, Takisawa and I started to lose our rhythm a little. Just as I tried to slow down to keep pace with her, she gripped my shoulder tightly.
 
 ‘I’m fine, just keep running.’
 
 I thought I heard her say that.
 
-We carried on sprinting and crossed the finish line in third place. Just past the line, our legs got tangled up and Takizawa fell on top of me.
+We carried on sprinting and crossed the finish line in third place. Just past the line, our legs got tangled up and Takisawa fell on top of me.
 
 ‘Endo-san, I’m so s—’
 
-I ignored Takizawa’s words and just held her tight.
+I ignored Takisawa’s words and just held her tight.
 
-“Takizawa, that’s amazing! We came third?!”
+“Takisawa, that’s amazing! We came third?!”
 
 I’m so happy.
 
 It was so much fun whilst we were running.
 
-Just having Takizawa by my side makes the sports day this much more enjoyable.
+Just having Takisawa by my side makes the sports day this much more enjoyable.
 
 “Endo-san, everyone’s watching, so let go.”
 
-Since Takizawa and I are still tangled up, she can’t pull away straight away like usual and looks flustered.
+Since Takisawa and I are still tangled up, she can’t pull away straight away like usual and looks flustered.
 
-　I found myself wishing our legs would just stay stuck together like this. I wanted a reason for Takizawa to be unable to leave me.
+　I found myself wishing our legs would just stay stuck together like this. I wanted a reason for Takisawa to be unable to leave me.
 
-Of course, such a wish would never come true, so I reluctantly let go of Takizawa and untied the cloth band around our legs.
+Of course, such a wish would never come true, so I reluctantly let go of Takisawa and untied the cloth band around our legs.
 
 I brushed the sand off and stood up.
 
-“Takizawa, thank you.”
+“Takisawa, thank you.”
 
 “I didn’t do anything.”
 
@@ -235,17 +235,17 @@ I brushed the sand off and stood up.
 
 “Shut up.”
 
-　Takizawa simply strode off towards the school building. I hurried after her.
+　Takisawa simply strode off towards the school building. I hurried after her.
 
-I called out to Takizawa in a spot where no one else was around.
+I called out to Takisawa in a spot where no one else was around.
 
-‘Takizawa, I want your headband right now.’
+‘Takisawa, I want your headband right now.’
 
 ‘If I give it to you now, I won’t have one left for myself.’
 
 ‘Can we swap?’
 
-Takizawa looked sulky. I knew I was being a nuisance, but I couldn’t bring myself to hold back my selfishness.
+Takisawa looked sulky. I knew I was being a nuisance, but I couldn’t bring myself to hold back my selfishness.
 
 “The three-legged race was fun. I want to enjoy the final relay and give it my all.”
 
@@ -253,17 +253,17 @@ Takizawa looked sulky. I knew I was being a nuisance, but I couldn’t bring mys
 
 “I can have fun and do my best when you’re right next to me. I want you to be close by for the final one too.”
 
-What I was saying now was pretty stupid and embarrassing; if I wasn’t careful, Takizawa might even think I was creepy.
+What I was saying now was pretty stupid and embarrassing; if I wasn’t careful, Takisawa might even think I was creepy.
 
-But I wanted to feel Takizawa close by right until the very end.
+But I wanted to feel Takisawa close by right until the very end.
 
-　Takizawa looked stern, but she smoothly took the headband from around her own head and placed it in my hand. I took mine off and handed it to Takizawa.
+　Takisawa looked stern, but she smoothly took the headband from around her own head and placed it in my hand. I took mine off and handed it to Takisawa.
 
 ‘Enjoy it right to the end.’
 
-　Takizawa simply walked off somewhere.
+　Takisawa simply walked off somewhere.
 
-　I tied the headband Takizawa had given me and headed for the venue.
+　I tied the headband Takisawa had given me and headed for the venue.
 
 　Every year, I’ve hated the class relay.
 
@@ -273,7 +273,7 @@ The pressure is immense, and there’s nothing fun about it.
 
 But today, it’s fun.
 
-Perhaps it’s because Takizawa gave me those magic words, telling me to enjoy myself.
+Perhaps it’s because Takisawa gave me those magic words, telling me to enjoy myself.
 
 Even though I can’t possibly use magic, I feel a surge of strength coming from the headband wrapped around my head.
 
@@ -281,7 +281,7 @@ Even though I can’t possibly use magic, I feel a surge of strength coming from
 
 I take the baton, look ahead, and start running.
 
-I don’t know where Takizawa is watching from, or perhaps she isn’t watching at all.
+I don’t know where Takisawa is watching from, or perhaps she isn’t watching at all.
 
 But the headband she gave me is giving me a boost.
 

@@ -34,7 +34,7 @@ A lovely scent rose from both the covers and the girl leaning over me, drifting 
 Endo-san brought her face close to my neck — and not understanding, I pushed her shoulder back to put some distance between us.
 
 "What are you doing..."\
-"*Hoshizora* is my girlfriend, isn't she?"
+"*Sora* is my girlfriend, isn't she?"
 
 My name came out of nowhere and my heart nearly popped loose. Endo-san's expression had been intense from the start — the smiling girl I knew was nowhere to be seen.
 
@@ -106,7 +106,7 @@ Not knowing what to do, I drew her head gently toward me and kept stroking it.
 
 After a little while she wriggled and slipped out of my arms, and before I knew it was looking at me with a happy expression.
 
-"I love having Takizawa stroke my head."\
+"I love having Takisawa stroke my head."\
 "Sure, sure."
 
 As I kept stroking her head, she started breathing softly and steadily, and Endo-san fell asleep before me.

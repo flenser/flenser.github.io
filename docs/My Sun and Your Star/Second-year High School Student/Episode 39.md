@@ -96,7 +96,7 @@ The parts of my body touching Endo-san’s felt hot.
 
 Her pyjamas were thin, so it felt as though I was touching her skin directly, which made me feel strange. Perhaps my hand had stopped moving, Endo-san lifted her face and looked at me.
 
-‘Takizawa…?’
+‘Takisawa…?’
 
 　She looked better than before, but still seemed somewhat anxious. For some reason, meeting Endo-san’s gaze made me feel even more embarrassed, so I decided to move my mouth to cover it up.
 
@@ -127,7 +127,7 @@ At what point will she start to hate me...
 
 Endo-san was breathing heavily, as if in pain, trying to catch her breath. Even in the darkness, I could see that her cheeks and ears were bright red.
 
-‘You idiot, Takizawa.’
+‘You idiot, Takisawa.’
 
 Saying only that, Endo-san curled up against my chest. I don’t even know why I did this to Endo-san.
 

@@ -5,7 +5,7 @@ nav_order: 125
 ---
 Episode 125: A New Life (2)
 
-‘Takizawa, you were a bit later than usual today, weren’t you?’\
+‘Takisawa, you were a bit later than usual today, weren’t you?’\
 ‘Yeah, I went to check out a club.’
 
 Endo-san's eyes went wide and she came bustling out of the kitchen. Both my shoulders were firmly seized.
@@ -22,7 +22,7 @@ Endo-san made an indescribable face, grunted ‘Hmm…’, then pursed her lips 
 Endo-san is always so sudden. But I suppose I’ve got quite used to these curveballs, probably because I’ve spent so much time with her. Come to think of it, it’s been nearly two years since I met Endo-san.
 
 “Sure.”\
-“I'm so happy. Takizawa and I on our fir—…”\
+“I'm so happy. Takisawa and I on our fir—…”\
 “Hm?”
 
 　Endo started to say something but clamped her mouth shut. Even when I asked her to repeat herself, she just shook her head from side to side and wouldn’t answer.
@@ -60,12 +60,12 @@ I set the paper bag of macarons I'd bought on the way home on the cleared table.
 
 ‘They’re so cute. It feels like a shame to eat them.’\
 ‘They’re sweets, so you have to eat them or there's no point?’\
-‘Which one do you like, Takizawa?’\
+‘Which one do you like, Takisawa?’\
 “There is caramel, pistachio, lemon, and raspberry. You choose whichever you like, Endo-san.”
 
 Endo-san hummed “Hmm” again, resting her hand on her chin as she pondered. Seeing her looking a little childish like that, I think a slight smile spread across my face. I thought to myself that if she wanted to eat them, I didn’t need any, so she could have them all.
 
-“I’ll have the pistachio and raspberry. Takizawa, you know, you’re quite the charmer, aren’t you?”
+“I’ll have the pistachio and raspberry. Takisawa, you know, you’re quite the charmer, aren’t you?”
 
 I had no idea what she was on about, so I ignored her and took a bite of the caramel macaron.
 
@@ -85,7 +85,7 @@ I had no idea what she was on about, so I ignored her and took a bite of the car
 　Endo-san held out the raspberry macaron she’d been eating towards me, so I took a bite of hers. The sweetness and tartness spread through my mouth, creating a strange sensation.
 
 “It’s got a bit of a grown-up flavour, doesn’t it?”\
-“I knew you wouldn’t like it, Takizawa. You’ve got a surprisingly childish palate, after all.”\
+“I knew you wouldn’t like it, Takisawa. You’ve got a surprisingly childish palate, after all.”\
 “That’s annoying…”
 
 　It’s annoying, but this casual conversation with Endo is happiness. Back in high school I couldn't have imagined getting along with her like this. I certainly never imagined we’d end up living together.
@@ -100,15 +100,15 @@ The thought that Endo-san might come home late if she started a part-time job or
 Endo-san and Mai are at the same university now, and it seems they’re still hanging out together. I felt a little envious of Mai, who gets to be with Endo-san at university too.
 
 ‘Aren’t you joining a club?’\
-‘Hmm, I’m not sure. I don’t want to spend less time with Takizawa…’
+‘Hmm, I’m not sure. I don’t want to spend less time with Takisawa…’
 
 She really shouldn’t have to worry about me, but those words from Endo-san made me feel a little happy.
 
-"What club are you joining, Takizawa?"\
+"What club are you joining, Takisawa?"\
 "A stargazing club."\
 "What kind of club is that? I want to join."\
 "You could look for something similar at your own university."\
-"That's not the point — it's fun because you're there, Takizawa."\
+"That's not the point — it's fun because you're there, Takisawa."\
 "That doesn't make sense."
 
 I didn’t understand what she meant, but I found myself even more baffled by the fact that her words made me so happy. I’m not interesting to talk to, and there’s surely nothing fun about being with me, yet I believed Endo-san meant what she said. I imagined, all on my own, that I would have enjoyed it too if Endo-san had been in the club with me.
@@ -138,7 +138,7 @@ Once the tidying was done, I soaked away the week’s fatigue in a warm bath, an
 
 Endo wants to sleep together every Friday. Although I do want to sleep with her, for some reason I get nervous and can’t bring myself to be honest.
 
-‘You’re being mean, Takizawa. It’s only sleeping together, for goodness’ sake.’\
+‘You’re being mean, Takisawa. It’s only sleeping together, for goodness’ sake.’\
 ‘I know, but…’
 
 Perhaps because I looked so troubled, Endo-san, looking a little sulky, simply said, ‘Goodnight,’ and went off to her room.

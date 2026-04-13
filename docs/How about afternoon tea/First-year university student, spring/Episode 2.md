@@ -89,8 +89,6 @@ The rinsed-off foam was sucked down the drain. I felt as if she could see right 
 
 ＊＊＊
 
-![coffee pour](/assets/images/afternoon-tea-pouring-coffee.png)
-
 There was something I wanted to do when I became a university student.
 
 A part-time job.

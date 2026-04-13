@@ -23,12 +23,12 @@ My heart was pounding hard enough to feel it in my throat, but it seemed better 
 
 Saaya looked displeased. Endo-san, for some reason, was looking at me with a surprised expression.
 
-"I'm with Hoshizora! I'm not good at cooking, so I'll go buy ingredients!"\
+"I'm with Sora! I'm not good at cooking, so I'll go buy ingredients!"\
 "I'll go too."
 
 Leaving Endo-san and Saaya behind was a little nerve-wracking, but letting Mai go on her own wasn't right either, so I went shopping with her.
 
-"Are you having fun, Hoshizora?"
+"Are you having fun, Sora?"
 
 Mai asked with a slightly worried look.
 
@@ -67,7 +67,7 @@ So she hadn't told her. That made my chest squeeze too.
 
 Mai was right. I think Endo-san and I don't talk things through nearly enough. In good ways and bad, we're both too short on words. While I was squinting at that thought, Mai's smile grew and grew.
 
-"Ahh, I'm so happy. Getting to give love-life consultation to Hoshizora!"\
+"Ahh, I'm so happy. Getting to give love-life consultation to Sora!"\
 "It's not funny..."\
 "You're right, sorry, sorry."
 
@@ -81,7 +81,7 @@ At Mai's rallying cry everyone gathered in the kitchen.
 
 Since my vegetable-chopping had improved since high school, I took charge of that. As I worked quietly, Endo-san had at some point come over near me and was grinning with delight.
 
-"You've gotten really good at cutting, Takizawa."\
+"You've gotten really good at cutting, Takisawa."\
 "Just do your job."
 
 I wanted to focus on the task, so I tossed out a cold reply. Endo-san drooped and went back to her preparations.
@@ -128,12 +128,12 @@ When we get back, I want to ask her lots of things.
 
 *Would she answer if I asked.*
 
-"Found you, Takizawa~"
+"Found you, Takisawa~"
 
 A playful voice — Endo-san, more relaxed than usual — was standing in front of me, and my heart, which had been peaceful until just a moment ago, began to stir.
 
 "Weren't you all doing sparklers?"\
-"Over there is over there — it's fun, but... I got a little tired. And I want to do sparklers with you, Takizawa."
+"Over there is over there — it's fun, but... I got a little tired. And I want to do sparklers with you, Takisawa."
 
 Endo-san handed me a sparkler and leaned into me uninvited. It was summer and should have felt stuffy — and yet her doing that made me happy.
 
@@ -147,7 +147,7 @@ When the sparkler caught, it began to crackle quietly.
 Last year Endo-san and I had watched fireworks launched into the sky — and now a small, concentrated version of that was right in front of us.
 
 "They're like little versions of the fireworks we watched together last year."\
-"Takizawa really does remember things about us, doesn't it..."\
+"Takisawa really does remember things about us, doesn't it..."\
 "There's no way I'd forget."\
 "Hehe, that makes me happy. This year they're small, but we got to watch fireworks together again."
 
@@ -155,7 +155,7 @@ Endo-san pressed herself closer. My right side where her body touched mine was w
 
 "Let's come just the two of us next year."\
 "Wouldn't you have more fun with your friends?"\
-"Friends are fun too — but the only person I want to watch fireworks with again next year is you, Takizawa."
+"Friends are fun too — but the only person I want to watch fireworks with again next year is you, Takisawa."
 
 Endo-san stopped leaning on me and laughed, a little bashfully.
 
@@ -179,7 +179,7 @@ Without our noticing, the sparklers had burned out and everything was dark.
 
 My body moved on its own. I rose up slightly on my toes and pressed a gentle kiss to her lips. Endo-san looked mildly surprised — then tossed the spent sparkler aside and pulled me close.
 
-"I always think you're not fair, Takizawa."\
+"I always think you're not fair, Takisawa."\
 "Not fair?"\
 "Do you have any idea how close to losing my heart I am, every single time?"\
 "There's no way I'd know that."
@@ -190,7 +190,7 @@ A warmth only I get to feel.
 
 *More...*
 
-"Hoshizora~? Hina~?"
+"Sora~? Hina~?"
 
 My body jolted at the voice and I pulled away from Endo-san immediately.
 

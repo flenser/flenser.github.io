@@ -262,7 +262,7 @@ After running around the vast venue, I managed to find Mai.
 
 I caught my breath and spoke to Mai.
 
-‘Hoshizora! Thanks for coming. To be honest, Hina-chan was feeling pretty down at that moment, so I’m glad you came.’
+‘Sora! Thanks for coming. To be honest, Hina-chan was feeling pretty down at that moment, so I’m glad you came.’
 
 Mai said this with a beaming smile.\
 I had something I wanted to ask her, so I cut in before she could finish.
@@ -291,13 +291,13 @@ I spotted Endo-san, cooling her ankle as if hiding in the shadow of a building.
 
 It seemed Endo-san had noticed me.
 
-“Takizawa… um, eh?!”
+“Takisawa… um, eh?!”
 
 I pulled Endo-san towards me.
 
 I held her close, lifting her up so her feet wouldn’t touch the ground.
 
-“Takizawa! I’m covered in sweat and I’m filthy right now, so let go!”
+“Takisawa! I’m covered in sweat and I’m filthy right now, so let go!”
 
 ‘I absolutely don’t want to.’
 
@@ -369,7 +369,7 @@ No matter how frightening or painful it is, I’ve realised that this is a fact 
 
 　I don’t know how long I’d been thinking that, but Endo-san spoke up.
 
-‘Takizawa—’
+‘Takisawa—’
 
 ‘Hmm?’
 
@@ -379,7 +379,7 @@ Endo-san is always like that.
 
 She manages to do things so easily that I can’t.
 
-“Thank you for coming to cheer me on. If Takizawa hadn’t been there, I probably would have lost. What you said just now was actually my line. Thank you for always giving me so much strength.”
+“Thank you for coming to cheer me on. If Takisawa hadn’t been there, I probably would have lost. What you said just now was actually my line. Thank you for always giving me so much strength.”
 
 Endo-san was smiling gently.\
 Hearing that, a warmth welled up inside me.
@@ -397,7 +397,7 @@ Endo-san teaches me so many emotions that, had I remained the person I used to b
 　She’s putting on a smile, but I’m sure it hurts and she’s pushing herself.
 
 “During the match, I thought about stabbing the person who injured you from behind.”\
-“Coming from Takizawa, I wouldn’t put it past you, so that doesn’t sound like a joke.”
+“Coming from Takisawa, I wouldn’t put it past you, so that doesn’t sound like a joke.”
 
 Endo-san laughed cheerfully at my words, though even I wasn’t sure if I was joking or serious.
 

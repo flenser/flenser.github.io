@@ -21,7 +21,7 @@ I suppose that’s why I want to touch them so much.
 
 Just as I was about to touch those lips again, Endo opened his eyes.
 
-‘You pervert, Takizawa… attacking me in my sleep?’
+‘You pervert, Takisawa… attacking me in my sleep?’
 
 Endo said this in a tone where I couldn’t tell if she was joking or serious. I wanted her to speak in a tone that made it clear she found it disgusting and wanted me to stop.
 
@@ -80,7 +80,7 @@ As I shook my head vigorously to shake off those unnecessary thoughts, Endo-san 
 
 Regardless of how I felt, our free time carried on. We started with cute rides like the Viking ship and the teacups, but the next ride was a rollercoaster.
 
-‘Takizawa, are you okay with this sort of thing?’\
+‘Takisawa, are you okay with this sort of thing?’\
 ‘I don’t really feel much.’
 
 　I’d said that because I’d never been on one before, but once I got on, my feelings were completely different.
@@ -100,21 +100,21 @@ Endo-san seemed to be coping better than I’d expected.
 
 Endo-san has looked happy ever since we got on the ride. Perhaps she actually likes amusement parks after all.
 
-‘What did you think of the ride, Takizawa?’\
+‘What did you think of the ride, Takisawa?’\
 ‘It was better than I thought. It was all wobbly, and I wondered if this is what it feels like to fly.’
 
 There was no deeper meaning to it.
 
 　However, Endo-san was clutching my arm with a look of sheer terror on her face.
 
-‘Takizawa… is still…’\
+‘Takisawa… is still…’\
 ‘Sorry. I didn’t mean it like that. I just meant it was fun because the sky felt so close, like I was flying.’
 
 　Endo-san, for whatever reason, turned away and went to the loo, leaving the spot. As always, she worries about me just like a mother would.
 
 　While the rollercoaster disaster group were recovering, I happened to have a chance to speak with Yamamoto-san alone.
 
-“Are Hoshizora-san and Hina-san dating?”
+“Are Sora-san and Hina-san dating?”
 
 　My heart thudded at the unexpected question. I lowered my voice so she wouldn’t sense my panic.
 
@@ -166,7 +166,7 @@ The fact that I found Endo-san’s nervous behaviour slightly cute might mean I�
 
 　I couldn’t help but let out a laugh.
 
-“Takizawa, it’s cruel to take pleasure in other people’s misfortune…”\
+“Takisawa, it’s cruel to take pleasure in other people’s misfortune…”\
 “No, I was just relieved to see that even the perfect Endo-san has things she’s not good at.”
 
 I took her hand.\
@@ -178,7 +178,7 @@ But the more I got to know Endo-san, the more I realised she was just a human be
 
 I wasn’t at all keen on going to the amusement park, but I’m actually glad I got to see the different sides of Endo-san.
 
-‘Takizawa… why did you do that…?’\
+‘Takisawa… why did you do that…?’\
 ‘I suppose I couldn’t just leave a scared child alone.’
 
 A year ago, I would never have been able to say something so tongue-in-cheek, and I wasn’t the sort of person who would have done something like this on my own initiative.
@@ -233,7 +233,7 @@ Mai was waving from outside the Ferris wheel.
 
 “We had fun today, didn’t we?”\
 “Yeah.”\
-“Takizawa, let’s come here together again.”\
+“Takisawa, let’s come here together again.”\
 “Yeah…”\
 “Eh!? Are you sure!?”
 
@@ -308,7 +308,7 @@ When I said this grumpily, she gave me a gentle pat on the head.
 ‘I’m fine.’\
 Endo-san was forcing a smile.
 
-“Mai-chan, Hoshizora-chan, Hina-chan! Thank you so much for joining us on our free time!”\
+“Mai-chan, Sora-chan, Hina-chan! Thank you so much for joining us on our free time!”\
 Izumi-chan gave a deep bow, and Yamamoto-san and Ando-san were also bowing profusely.
 
 “That’s what I should be saying! It was fun, thank you!”\

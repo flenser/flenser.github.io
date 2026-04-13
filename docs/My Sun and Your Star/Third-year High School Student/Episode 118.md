@@ -5,7 +5,7 @@ nav_order: 118
 ---
 Episode 118: Feelings
 
-‘This is exciting, Takizawa.’
+‘This is exciting, Takisawa.’
 
 The woman sitting next to me looks absolutely delighted.
 
@@ -40,7 +40,7 @@ I couldn't make sense of her at all, and a foggy, unsettled feeling built up in 
 
 As soon as I sat down next to her, she took my hand without asking. I was about to tell her off for being so presumptuous, but she stopped me.
 
-“Takizawa, look up.”
+“Takisawa, look up.”
 
 I looked up as she said, and the sight left me speechless.
 
@@ -79,7 +79,7 @@ I should have been cold by now, yet I felt as though something was bubbling away
 
 　Endo-san was pointing all over the sky as if it were a blackboard, explaining as she went. Even her posture looked beautiful; I thought Endo-san was being unfair.
 
-‘I really like the brightest star in Canis Major. It’s pale blue and sparkles, just like Takizawa.’
+‘I really like the brightest star in Canis Major. It’s pale blue and sparkles, just like Takisawa.’
 
 She said this with a soft chuckle. I wondered if Endo-san was actually enjoying being with me, as all I could do was sit next to her and listen silently.
 
@@ -89,7 +89,7 @@ She said this with a soft chuckle. I wondered if Endo-san was actually enjoying 
 
 　I’d meant it as a joke, but Endo-san looked at me with an uncharacteristically serious expression.
 
-“How can I get Takizawa to see me as a person?”\
+“How can I get Takisawa to see me as a person?”\
 “I do see you as a person.”
 
 　Or rather, I wonder if I’ve reached the point where I can no longer even see her as a friend. Just looking at Endo-san is enough to make my heart go haywire.
@@ -107,7 +107,7 @@ Endo-san is popular and liked by so many people; someone like me isn’t the sor
 Come to think of it, she said she had something important to tell me. And I found myself wanting to ask why she had to bring me here to say it.
 
 “Endo-san, why did you bring me here today?”\
-‘I wanted to look at the stars with Takizawa. It’s exactly this time of year, four years ago. The day Takizawa and I first met. I wanted to see Hoshizora who saved me, and the starry sky itself. Just kidding.’
+‘I wanted to look at the stars with Takisawa. It’s exactly this time of year, four years ago. The day Takisawa and I first met. I wanted to see Sora who saved me, and the starry sky itself. Just kidding.’
 
 　Endo-san gazes at me with a shy smile.
 
@@ -167,6 +167,4 @@ I could hear Endo-san calling after me from behind, but I ignored her and kept r
 
 　Breathing so hard my lungs felt like they were freezing, I ran on in a daze. Before I knew it, I found myself in bed at home, crying — more tears than I could count.
 
-![confession](/assets/images/sun-star-confession.jpg)
-
-[^sora]: Takizawa's given name Hoshizora, written with the kanji 星空, means "starry sky". Endo-san's love of the starry sky could be interpreted as a love of the vast, beautiful expanse of the sky, but we know it primarily means Endo-san's love for Hoshizora.
+[^sora]: Takisawa's given name Sora, written with the kanji 星空, means "starry sky". Endo-san's love of the starry sky could be interpreted as a love of the vast, beautiful expanse of the sky, but we know it primarily means Endo-san's love for Sora.

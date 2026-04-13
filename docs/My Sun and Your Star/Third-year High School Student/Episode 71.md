@@ -13,7 +13,7 @@ That was how Mayo-nee began.
 
 　She covered everything: how my parents expect her to take over the family and become a doctor; how she wants to become a doctor on her own terms rather than inheriting the practice; how I want to go to a Faculty of Education rather than the medical school my parents have in mind for me — all of it
 
-‘Well, it’s all a bit complicated, but I reckon Hoshizora and I have no choice but to speak to our parents directly. The timing will probably be around the start of the summer break. You know, Hoshizora’s school has home visits in the summer, right? So we need to have things settled before that, or the atmosphere when it happens is going to be really uncomfortable.”
+‘Well, it’s all a bit complicated, but I reckon Sora and I have no choice but to speak to our parents directly. The timing will probably be around the start of the summer break. You know, Sora’s school has home visits in the summer, right? So we need to have things settled before that, or the atmosphere when it happens is going to be really uncomfortable.”
 
 “I agree.”
 
@@ -48,7 +48,7 @@ Endo-san asked a question even more direct than the two of them.
 “Are you going to tell your parents you’re dating?”\
   When Endo-san asked this, Mayo-nee gave a wry smile.
 
-‘I intend to tell them eventually. Right now, Hoshizora’s and my future plans are more important, so we need to sort that out first.’\
+‘I intend to tell them eventually. Right now, Sora’s and my future plans are more important, so we need to sort that out first.’\
 ‘I see.’
 
 And with that, the Q&A session came to an end. As it was getting late, we decided to take turns having a bath. Endo-san went first and left the room.
@@ -80,7 +80,7 @@ Why?
 
 　Next, Hikari-san asked me a question.
 
-“So, Hoshizora-chan. How would you feel if Hina-chan were holding hands or kissing someone else?”
+“So, Sora-chan. How would you feel if Hina-chan were holding hands or kissing someone else?”
 
 How would I feel? I’ve no idea.
 
@@ -95,8 +95,8 @@ The two of them were clutching their heads even more than before, looking as if 
 Just as we were having this exchange, Endo-san came upstairs, so I ended up taking a bath.
 
 When I came out of the bath, the two of them were on their way to the bedroom.\
-‘Goodnight, Hoshizora-chan!’\
-“Goodnight, Hoshizora.”
+‘Goodnight, Sora-chan!’\
+“Goodnight, Sora.”
 
 “Goodnight.”
 
@@ -145,14 +145,14 @@ Endo had the look she gets when she’s lying. I wondered how I’d come to be a
 “Why are you lying?”\
 “How did you know!?”\
 “If we spend this much time together, I’m bound to figure it out.”\
-“Haha, I’m no match for you, Takizawa.”\
+“Haha, I’m no match for you, Takisawa.”\
 “So?”\
 “I’m sorry, I can’t answer that right now. But I’ll tell you properly one day, so please forgive me.”\
 “Okay, I understand.”
 
 Endo-san looked a bit distressed, so I decided not to press the matter any further.
 
-‘Takizawa, shall we sleep together?’\
+‘Takisawa, shall we sleep together?’\
 ‘I don’t want to share a bed with you.’\
 ‘Why not?’\
 ‘Because you’d definitely try to do something weird.’\
@@ -165,7 +165,7 @@ If I slept with Endo-san, my heart would race and I wouldn’t be able to sleep;
 
 she uttered those words like a small child throwing a tantrum, her cheeks puffed out.
 
-“Sleeping with Takizawa really calms me down. When I wake up in the morning and Takizawa is right there in front of me, I feel glad to be alive. You can think I’m creepy if you like, but it’s all the truth… If sleeping with me makes you feel uncomfortable, I’ll give up.”
+“Sleeping with Takisawa really calms me down. When I wake up in the morning and Takisawa is right there in front of me, I feel glad to be alive. You can think I’m creepy if you like, but it’s all the truth… If sleeping with me makes you feel uncomfortable, I’ll give up.”
 
 　There she was, right in front of me, watching my reaction with a slightly sad expression.
 
@@ -239,7 +239,7 @@ I want to touch Endo more…
 
 Endo-san is trying to say something, but right now I just want to stay like this until I understand my own feelings.
 
-“――Takizawa!”
+“――Takisawa!”
 
 Endo-san’s voice snaps me back to reality.\
 Endo-san’s breathing is so ragged her shoulders are heaving.
@@ -252,7 +252,7 @@ I know I shouldn’t be feeling this way.\
 
 　Hearing that, Endo-san turned red all the way up to her ears.
 
-“Takizawa told me not to do anything weird.”\
+“Takisawa told me not to do anything weird.”\
 “Right, I’m going to sleep now.”
 
 　Saying that, I turned my back on Endo-san and went to sleep.\
@@ -288,7 +288,7 @@ Even though that’s absolutely impossible.
 
 　I hugged Endo tightly and bit her ear.
 
-‘—Takizawa, that hurts.’
+‘—Takisawa, that hurts.’
 
 If I just bit her ear right off like this, would Endo disappear from my life?
 

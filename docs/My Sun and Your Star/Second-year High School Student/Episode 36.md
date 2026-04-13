@@ -32,9 +32,9 @@ Since childhood, she'd been earnest, giving her all to everything, a straightfor
 To be precise, perhaps it would be more accurate to say I loved her. She was pure, honest, kinder than anyone, and worked harder than most. Such a wonderful person had looked up to me.\
 I thought I could use my position as her older sister to stay by her side forever.
 
-After our family changed, I thought I was enduring everything for Hoshizora's happiness, but it seems that endurance only made her suffer more.
+After our family changed, I thought I was enduring everything for Sora's happiness, but it seems that endurance only made her suffer more.
 
-　Even as our family changed, even as circumstances changed, I should have chosen the path where Hoshizora and I could be happy. But I couldn't choose it.
+　Even as our family changed, even as circumstances changed, I should have chosen the path where Sora and I could be happy. But I couldn't choose it.
 
 I lacked confidence in myself. Even I feared being abandoned by my parents.
 
@@ -42,17 +42,17 @@ I was terrified of losing everything.
 
 I chose self-preservation.
 
-Because of that, Hoshizora was hurt deeply.
+Because of that, Sora was hurt deeply.
 
 I had chances to help her many times, but I was too afraid to change my own present situation, so I did nothing.
 
 　I was simply a coward.
 
-So I thought it was fine for things to stay as they were with Hoshizora.
+So I thought it was fine for things to stay as they were with Sora.
 
-But then, Hoshizora reached out to reconnect a bond that had once been severed.
+But then, Sora reached out to reconnect a bond that had once been severed.
 
-It might not be about restoring our relationship as it was, but it's an undeniable fact that I haven't changed, while Hoshizora has.
+It might not be about restoring our relationship as it was, but it's an undeniable fact that I haven't changed, while Sora has.
 
 A relationship that had once stopped moving has started moving again.
 
@@ -62,7 +62,7 @@ I understood the reason immediately.
 
 　'Endo Hina'
 
-There's no doubt she changed Hoshizora.
+There's no doubt she changed Sora.
 
 I sensed it the first time we met in the library.
 
@@ -84,7 +84,7 @@ Before cherishing my sister, perhaps I should try cherishing myself.
 
 Face myself and live.
 
-　As I pondered these things in my Shinkansen seat, a girl about the same age as Hoshizora sat down next to me.
+　As I pondered these things in my Shinkansen seat, a girl about the same age as Sora sat down next to me.
 
 She had a childish, cute face, blonde hair, and dressed like a university student.
 

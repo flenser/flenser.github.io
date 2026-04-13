@@ -16,12 +16,12 @@ Perhaps because I was walking unnaturally slowly, Endo-san kept glancing over at
 It’s all Endo-san’s fault.\
 Because she took me to such a fun place, I’m feeling even more gloomy about going home than usual.
 
-‘Takizawa, can we pop into the supermarket?’\
+‘Takisawa, can we pop into the supermarket?’\
 ‘Sure, but—’
 
 I wanted to delay going home even a little, so I decided to tag along with Endo-san’s shopping. Endo-san was holding a basket and happily selecting ingredients.
 
-‘Takizawa, what do you fancy eating?’\
+‘Takisawa, what do you fancy eating?’\
 ‘Huh…??’
 
 I let out a strange sound, taken aback by the nonsensical question.
@@ -36,7 +36,7 @@ If that’s the case, it’s rather embarrassing. As if to cover up that embarra
 
 “I never said I was free tonight.”
 
-“I told you to keep the whole day free, and you don’t have any plans after this, do you, Takizawa?”
+“I told you to keep the whole day free, and you don’t have any plans after this, do you, Takisawa?”
 
 It’s true, I certainly don’t have any plans.\
 Endo-san sometimes says rude and hurtful things.\
@@ -79,7 +79,7 @@ Having finished greeting them, I decided to go back to Endo-san.
 
 ‘Thanks as always.’\
 ‘It’s only natural, seeing as I’m at Endo’s house. Anyway, is there anything I can help with?’\
-‘What’s the matter, Takizawa? Do you have a fever?’
+‘What’s the matter, Takisawa? Do you have a fever?’
 
 I usually just watch Endo-san cook, so I thought I’d like to help out for a change. Doing nothing makes me feel a bit restless. Also, I found myself thinking, just a little, that I’d like to be able to cook as well as Endo-san.\
 However, I knew she’d get a bit carried away if I said that, so I gave a different reason.
@@ -90,11 +90,11 @@ I don't need to tell Endo-san that, do I? Teach me how to cook instead.’
 
 Saying that, I shove Endo-san into the kitchen.
 
-“Right then, I suppose I’ll get Takizawa to chop the spinach, mushrooms and bacon.”
+“Right then, I suppose I’ll get Takisawa to chop the spinach, mushrooms and bacon.”
 
 I tried to chop the ingredients as Endo-san instructed, but I couldn’t manage it. I didn’t know how to make the cuts with the knife.
 
-“Takizawa, that’s dangerous… You’ll cut your finger like that. You grip the knife like this and hold the food down like this.”
+“Takisawa, that’s dangerous… You’ll cut your finger like that. You grip the knife like this and hold the food down like this.”
 
 Saying that, Endo-san reached around from behind me and leaned over me to show me.
 
@@ -119,7 +119,7 @@ When I see Endo-san tasting it, my gaze naturally drifts to her lips.
 
 Just as I was thinking such guilty thoughts, Endo-san seemed to notice my gaze.
 
-‘Would you like a taste too, Takizawa?’\
+‘Would you like a taste too, Takisawa?’\
 ‘I’ll save the pleasure for when I eat it.’\
 I did want a taste, but I felt it would taste even better when the dish was finished, so I decided to decline.
 
@@ -149,13 +149,13 @@ When I entered the room, Endo-san handed me a gift bag.
 　What’s this—?\
 My head is full of question marks.
 
-“Takizawa, happy birthday.”
+“Takisawa, happy birthday.”
 
 The moment I heard those words, a tingling heat welled up deep within my chest, gradually turning into a warm sensation.\
 Endo-san looked away slightly, looking rather embarrassed.
 
 “Why…”\
-“Sorry, Takizawa. You wouldn’t tell me, so I just went and asked Mai.”
+“Sorry, Takisawa. You wouldn’t tell me, so I just went and asked Mai.”
 
 　Saying that, she looked at me, looking rather embarrassed. So, did she go to the zoo today because she knew it was my birthday?
 
@@ -183,7 +183,7 @@ Endo-san brought over a strawberry sponge cake.
 
 It looked exactly like the cakes you see in shops, so much so that I almost doubted it.
 
-‘Yeah. I practised making it for Takizawa. I’m really proud of it. I’m going to turn the lights off.’\
+‘Yeah. I practised making it for Takisawa. I’m really proud of it. I’m going to turn the lights off.’\
 Saying that, she placed a single candle on the cake and lit it.
 
 　My emotions simply couldn’t keep up with the situation. It felt like I was running a race against a cheetah. The atmosphere of the moment and I were drifting further and further apart, as if I were about to vanish from sight.
@@ -204,7 +204,7 @@ Eating cake on my birthday, receiving presents, spending the day with someone.
 
 When I opened the present, a black rucksack, not too flashy, appeared.
 
-“Takizawa, you’ve got loads of reference books and stuff, yet you’re still using a handbag. A rucksack would be easier to carry, and since you’re going into Year 3, I thought it would be a good time to switch.”
+“Takisawa, you’ve got loads of reference books and stuff, yet you’re still using a handbag. A rucksack would be easier to carry, and since you’re going into Year 3, I thought it would be a good time to switch.”
 
 I’d actually been thinking of buying a rucksack myself.
 

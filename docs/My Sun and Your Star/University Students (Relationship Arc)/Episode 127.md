@@ -69,9 +69,9 @@ My hand, which had been cold just a moment ago, was gently clasped, and Endo-san
 
 Listening to the cheerful voices of the people passing by in the shopping centre, we arrived at our destination.
 
-‘Takizawa, which shape of pancake maker do you want?’\
+‘Takisawa, which shape of pancake maker do you want?’\
 ‘Which shape do you like, Endo-san?’\
-‘The one Takizawa likes.’\
+‘The one Takisawa likes.’\
 ‘Just go for the one you like, Endo-san.’\
 ‘You’re the one who suggested it, so you choose.’\
 ‘Come on, you choose, Endo-san.’
@@ -79,7 +79,7 @@ Listening to the cheerful voices of the people passing by in the shopping centre
 She’d been having such a good time just a moment ago, but now her expression had turned sullen. It was true that I’d been the one to suggest buying one, but I’d only done so because I wanted Endo-san to be happy, even just a little. Endo-san just stared at me and didn’t seem willing to give in. We couldn’t stay like this forever, so I shifted my gaze to the shelf lined with pancake makers.
 
 ‘I’ll have this one.’\
-‘Takizawa, you’re just going along with me, aren’t you?’\
+‘Takisawa, you’re just going along with me, aren’t you?’\
 “Stop nagging. I’ve already decided.”
 
 I simply took Endo-san’s hand and led her away from the spot. In my hand, I was clutching a pancake maker that imprints a bear’s face onto the pancakes.
@@ -91,7 +91,7 @@ We finished our shopping and headed home. After dinner and a bath, a sleepy-look
 
 I wonder why. Or rather — why have I become someone who needs a reason to sleep beside her?
 
-‘Takizawa, you said earlier that I didn’t have to hold back. I want to sleep beside you tonight…’
+‘Takisawa, you said earlier that I didn’t have to hold back. I want to sleep beside you tonight…’
 
 Said in a slightly more coaxing voice than usual — and my body was already turning toward Endo-san's room.
 
@@ -99,7 +99,7 @@ As I slipped into Endo’s futon, I was enveloped by her scent. It had been so l
 
 Calm down…
 
-‘Takizawa, thank you again today.’\
+‘Takisawa, thank you again today.’\
 ‘I haven’t done anything to deserve thanks.’\
 ‘Just being with you makes me happy. And I’m looking forward to making pancakes.’
 
@@ -135,7 +135,7 @@ I hesitated to ask any more. I’m not really sure what to do next, or what I sh
 
 I think that’s why I felt so anxious about it and felt I had to do something. I was afraid that, because of my lack of knowledge, Endo-san might drift away from me.
 
-“Hehe. You look so serious, Takizawa.”\
+“Hehe. You look so serious, Takisawa.”\
 “It’s your fault, Endo-san…”\
 “Me? Why were you making such a stern face?”\
 “Tell me what you want to do with me, Endo-san.”
@@ -152,7 +152,7 @@ My heart was beating so fast it surprised even me. I was at a loss, unsure of th
 ‘Take our time…?’\
 ‘Yeah. I’m going to make sure you stay with me until you’re sick of it.’\
 ‘Is that okay with you, Endo-san?’\
-‘If you ask me if it’s okay… well, I’ll do my best not to do anything Takizawa doesn’t like…’\
+‘If you ask me if it’s okay… well, I’ll do my best not to do anything Takisawa doesn’t like…’\
 ‘…?’
 
 I didn't understand at all, but Endo-san had told me we’d figure it out together. Those words put my mind at ease, calming the anxiety I’d been feeling just moments before.

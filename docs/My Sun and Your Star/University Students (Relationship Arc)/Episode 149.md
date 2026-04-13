@@ -5,14 +5,14 @@ nav_order: 149
 ---
 Episode 149: The Two of Us (3)
 
-"Takizawa's parents were lovely people."\
+"Takisawa's parents were lovely people."\
 "They've changed quite a lot."
 
 They weren't like that back in high school, I thought. They'd become gentler — the way they treated me had changed.
 
 Whether they'd changed naturally or had been trying to change, I wasn't sure — but finding that somehow unsettling might mean I'd gotten quite selfish.
 
-"Maybe it's because Takizawa changed."
+"Maybe it's because Takisawa changed."
 
 That made me stop.
 
@@ -20,7 +20,7 @@ That made me stop.
 
 Being told that by Endo-san, my expression must have softened without my realising.
 
-"Takizawa looks happy."\
+"Takisawa looks happy."\
 "That's thanks to you, Endo-san."\
 "Me...?"\
 "Yeah."
@@ -49,7 +49,7 @@ Her warm hand squeezed mine tight.
 
 Looking beside me, her expression was so full of life, so radiantly happy, that the smile seemed contagious. Seeing that face, my heart filled more and more with something warm.
 
-"Shall we stop by that park, Takizawa?"\
+"Shall we stop by that park, Takisawa?"\
 "Let's."
 
 Before heading to Endo-san's family home, we made our way to the park where everything between us had begun.
@@ -74,7 +74,7 @@ It had been five years since we met here in the winter of our second year of mid
 
 Time moved terrifyingly fast.
 
-"Is there any future Takizawa would like to have?"\
+"Is there any future Takisawa would like to have?"\
 "What kind of future?"\
 "Things you want to do. Things you want to become. No matter how small — I'd love to know."
 
@@ -109,9 +109,7 @@ Endo-san's face was quite flushed.
 
 "What does this mean..."
 
-"*Hoshizora* — happy birthday. And — please stay with me forever——"
-
-![rings](/assets/images/sun-star-rings.jpg)
+"*Sora* — happy birthday. And — please stay with me forever——"
 
 Unusually, Endo-san was looking down.
 
@@ -121,7 +119,7 @@ Without thinking, I pulled the crouching girl into a tight embrace.
 
 We both lost our balance and folded slowly to the ground.
 
-"Takizawa?!"\
+"Takisawa?!"\
 "I'm so happy——"
 
 I held her tight — too tight, almost — and Endo-san held me gently back. Warm in heart and body... wrapped in an almost overwhelming heat.
@@ -175,11 +173,11 @@ When I opened my eyes, there was a girl in front of me, still murmuring in her d
 
 I gently kissed her lips, and her eyes snapped open.
 
-"Morning, *Hoshizora*."\
+"Morning, *Sora*."\
 "Endo-san, you were definitely already awake."\
 "Yesterday you called me *Hina*, and now you won't anymore?"\
 "Be quiet."\
-"Embarrassed *Hoshizora* is cute too."
+"Embarrassed *Sora* is cute too."
 
 I was held tight enough to be a little breathless. That made me happy, and I held her back.
 

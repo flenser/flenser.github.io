@@ -181,5 +181,3 @@ Her eyes widened in surprise. My heart, which should have been frozen solid, sud
 Am I dreaming right now?
 
 Because right now, before my eyes — there you are, a little more grown-up than back then.
-
-![reunion](/assets/images/afternoon-tea-hallway-reunion.png)

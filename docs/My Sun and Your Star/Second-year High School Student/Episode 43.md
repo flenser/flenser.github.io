@@ -12,14 +12,14 @@ I really didn’t want to rely on her, but when it came to university, there wer
 Before I knew it, I was standing outside her room.\
 Just as I was about to knock, the door opened and I froze.
 
-‘Hoshizora? What’s up?’\
+‘Sora? What’s up?’\
 ‘What about you, Mayo-nee?’\
 ‘Oh, I was just thinking of popping to the loo.’\
 ‘Sorry for interrupting.’
 
 It was bad timing. Just as I turned to leave, she pulled me into her room.
 
-‘What’s the matter? Hoshizora, you look like you want to talk about something.’
+‘What’s the matter? Sora, you look like you want to talk about something.’
 
 She’s sharp. She’s right.\
 　It was just hard to put into words; I’d lost track of what to say.
@@ -39,7 +39,7 @@ I didn’t know if the heat building up in my eyes was sadness at not living up 
 
 Seeing me like this, Mayo-nee gently hugged me.
 
-‘Hoshizora, you must follow the path you wish to take.’\
+‘Sora, you must follow the path you wish to take.’\
 ‘But then, what about you, Mayo-nee…’
 
 I spoke in a weak voice.
@@ -48,7 +48,7 @@ I spoke in a weak voice.
 
 Mayo-nee looked at me with a gentler expression than usual.
 
-‘I’ve kept this from you all this time, but I don’t want to take over the family legacy either. I do want to be a doctor. That’s how I truly feel. I want to help lots of people. But not as Dad’s heir, I want to become the doctor I’ve always dreamed of. That’s what I’ve decided. You know, we aren’t just tools for our parents, are we? You’re such a kind girl, Hoshizora, so you’ve probably been trying your best for their sake, but isn’t it okay to live a life for yourself too?”
+‘I’ve kept this from you all this time, but I don’t want to take over the family legacy either. I do want to be a doctor. That’s how I truly feel. I want to help lots of people. But not as Dad’s heir, I want to become the doctor I’ve always dreamed of. That’s what I’ve decided. You know, we aren’t just tools for our parents, are we? You’re such a kind girl, Sora, so you’ve probably been trying your best for their sake, but isn’t it okay to live a life for yourself too?”
 
 I’d always thought Mayo-nee was obedient to our parents. No, she certainly had been until very recently.
 
@@ -63,7 +63,7 @@ It had been since primary school that I’d seen her laugh so naturally.
 
 Who on earth had changed her so much?
 
-‘We’re allowed to live for ourselves, you know. Tell me about you, Hoshizora. Do you have any idea what you want to be?’
+‘We’re allowed to live for ourselves, you know. Tell me about you, Sora. Do you have any idea what you want to be?’
 
 Saying that, Mayo-nee gently placed her hand on my head.
 
@@ -75,16 +75,16 @@ Saying that, Mayo-nee gently placed her hand on my head.
 
 My sister gave me a look of exasperation and patted my head gently.
 
-‘We’ll need to have a family meeting one day. It’s a bit of a drag, but I’m going to ask them to cover at least the basic living expenses for Hoshizora’s university life! Though, they might not agree, or rather, there’s a chance we’ll be kicked out of the house. So, I’m planning to start saving money now by doing part-time work.’\
+‘We’ll need to have a family meeting one day. It’s a bit of a drag, but I’m going to ask them to cover at least the basic living expenses for Sora’s university life! Though, they might not agree, or rather, there’s a chance we’ll be kicked out of the house. So, I’m planning to start saving money now by doing part-time work.’\
 “Then I’ll get a part-time job too.”
 
 I’m not sure if I’m cut out for part-time work, but I want to do my best alongside my sister.
 
-“Hoshizora, can you handle customer service or anything like that?”
+“Sora, can you handle customer service or anything like that?”
 
 I couldn’t say a word in response to my sister’s worried tone. Still, I thought that if it was for our future, I’d just have to do my best.
 
-“There’s actually a part-time job that’s perfect for you, Hoshizora. It’s only once a week, but how about tutoring?　The younger sister of a classmate who lives nearby is starting her third year of middle school, and apparently she wants me to help her with her entrance exam revision.”
+“There’s actually a part-time job that’s perfect for you, Sora. It’s only once a week, but how about tutoring?　The younger sister of a classmate who lives nearby is starting her third year of middle school, and apparently she wants me to help her with her entrance exam revision.”
 
 Teaching isn’t a struggle for me. It’s just that the fact that I’d be getting paid for it feels like a big deal to me. However, if I want to become a teacher, it might be good experience. I decided to take my sister up on her offer, thinking of it as a chance to change myself.
 

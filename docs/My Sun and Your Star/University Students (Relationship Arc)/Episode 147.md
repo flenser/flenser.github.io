@@ -5,7 +5,7 @@ nav_order: 147
 ---
 Episode 147: The Two of Us (1)
 
-"Takizawa, time to go~"\
+"Takisawa, time to go~"\
 "Yeah."
 
 I smoothly rose from the chair and wrapped my scarf.
@@ -30,7 +30,7 @@ As I kept stroking her hair, Endo-san went quiet and her cheeks slowly went red.
 
 I looked at her with a pout, and she pulled me close. I thought I could hear the sound of her heartbeat.
 
-"I want *Takizawa* to think I'm cute."\
+"I want *Takisawa* to think I'm cute."\
 "Endo-san is cute even without doing anything special."
 
 Endo-san gave a little jump. Then shivered and held me tight.
@@ -53,7 +53,7 @@ I wished other people wouldn't notice her charms.
 
 Without my noticing, Endo-san's ears had gone red.
 
-"I'm just going to spend my whole life being turned upside down by Takizawa."\
+"I'm just going to spend my whole life being turned upside down by Takisawa."\
 "Turned upside down?"\
 "Yeah. Let's go."
 
@@ -83,7 +83,7 @@ My feet had apparently stopped without my realizing, and noticing something was 
 "No, that's not it..."\
 "There was a bread shop I liked here."\
 "Endo-san liked it too?"\
-"You did too, Takizawa?"
+"You did too, Takisawa?"
 
 I had unconsciously squeezed Endo-san's hand tight.
 
@@ -103,7 +103,7 @@ I'd thought no one else would remember that bread I loved. But the shop I though
 "True."\
 "I hope we can have lots of conversations like this from here on."\
 "What...?"\
-"Wouldn't it be great to go to lots of places together, me and Takizawa, make lots of memories, and then sometimes think back on them and feel how happy we are?"\
+"Wouldn't it be great to go to lots of places together, me and Takisawa, make lots of memories, and then sometimes think back on them and feel how happy we are?"\
 "...Yeah."\
 "The bread shop is gone — but it'll always be there in our memories."
 
@@ -117,7 +117,7 @@ With her beside me, every place and every thing became something meaningful.
 
 She really was like a magician.
 
-"Takizawa! Let's get this!"
+"Takisawa! Let's get this!"
 
 Endo-san pulled my arm painfully hard. I was brought to a gift shop, to a spot where bear keychains were lined up.
 

@@ -29,7 +29,7 @@ Until she stopped me from committing suicide—
 
 　Ever since I started to care about Endo-san, I feel like my heart beats even louder whenever I’m with her. It’s not loud enough to bother me if I ignore it, so I’ve decided to just pay no mind to my body.
 
-‘Takizawa, your face is red.’
+‘Takisawa, your face is red.’
 
 　As she said that and reached out to touch my forehead, I reflexively brushed her hand away.
 
@@ -43,7 +43,7 @@ Until she stopped me from committing suicide—
 　I suppose it was a mistake to live honestly with these feelings after all.
 
 “Sorry. I don’t have a temperature, so I’m fine. Anyway, Endo-san, you’ve really gotten good at studying, haven’t you?”\
-“It’s all thanks to you, Takizawa-sensei!”
+“It’s all thanks to you, Takisawa-sensei!”
 
 　Her eyes sparkled as she said it, looking rather smug.\
 I didn’t want her to get too carried away, so I gave her cheek a gentle tug.
@@ -76,12 +76,12 @@ I suppose I am being too greedy.
 
 I’d strayed quite far from my studies, so I tried to refocus my attention on my work, but Endo wouldn’t let me.
 
-‘Come to think of it, Takizawa. Do you remember our promise?’\
+‘Come to think of it, Takisawa. Do you remember our promise?’\
 ‘—Yeah.’
 
 It was a promise that if Endo made it to the prefectural tournament, I’d tell her which university I wanted to go to. Even if we’d lost that day, I’d still have been determined to talk to Endo-san properly about my future plans.
 
-‘I’d like you to tell me which university you want to go to, Takizawa.’\
+‘I’d like you to tell me which university you want to go to, Takisawa.’\
 ‘I’m thinking of going to the Faculty of Education at ○○ University.’\
 ‘That’s the one with the famous Faculty of Education, isn’t it?’\
 ‘Yeah. I want to do my best.’\
@@ -112,7 +112,7 @@ To acknowledge that Endo-san is someone important to me, even if we part ways.
 
 　Endo-san looked at me straight in the eye and answered earnestly. Whenever she looks at me like that, I want to look away, but I find I simply cannot.
 
-‘Thanks to you, Takizawa, I might be able to go to a university where I can do what I want. So… thank you. I hope we can stay in touch, okay?’
+‘Thanks to you, Takisawa, I might be able to go to a university where I can do what I want. So… thank you. I hope we can stay in touch, okay?’
 
 　Saying that, Endo-san hugged me gently, just as she always does. her arms wrapped around me tenderly, and I felt as though she truly cherished me.
 
@@ -120,7 +120,7 @@ To acknowledge that Endo-san is someone important to me, even if we part ways.
 
 The thought of Endo-san going away made me unconsciously hug her back tightly. When I did, I felt her body tense for a moment, but I didn’t want to let go.
 
-‘Takizawa…?’\
+‘Takisawa…?’\
 ‘Hmm?’\
 ‘Don’t you mind me doing this to you?’
 

@@ -21,7 +21,7 @@ I immediately planted my foot back on the ground and pressed my back against the
 
 　I heard the sound of a door opening with a clatter.
 
-‘Takizawa-san, you’re here again?’\
+‘Takisawa-san, you’re here again?’\
 ‘Hello.’
 
 The girl in the sailor uniform standing before me strode towards me with an air of displeasure and glared at me with piercing eyes. Her gaze should have been fierce, yet there was no light in the depths of her eyes. I recognised that face.
@@ -91,7 +91,7 @@ She, who usually exudes an intimidating air, looked as though she might vanish a
 
 I don’t know what the right thing to say is here. My words and actions might end up causing her even more pain.
 
-‘If you’re asking for my opinion as Takizawa Hoshizora, rather than as your teacher, I can tell you. Also, if you promise not to let what I say narrow your own choices, I’ll share my thoughts.’
+‘If you’re asking for my opinion as Takisawa Sora, rather than as your teacher, I can tell you. Also, if you promise not to let what I say narrow your own choices, I’ll share my thoughts.’
 
 I held out my little finger to her. Izumi-san seemed a little hesitant, but she gripped my little finger firmly in return.
 
@@ -106,9 +106,9 @@ I don’t know if it answers her question, but it’s what I truly feel.
 
 　The heat was rising to my cheeks because I’d said something so embarrassing.
 
-“Ha ha ha. I didn’t know you could say things like that, Takizawa-san.”\
+“Ha ha ha. I didn’t know you could say things like that, Takisawa-san.”\
 “Is that something to laugh at?”\
-“I always thought you were perfect and unapproachable. So that was Takizawa Hoshizora-san’s opinion, then?”
+“I always thought you were perfect and unapproachable. So that was Takisawa Sora-san’s opinion, then?”
 
 I felt as though the cloud had lifted slightly from her face. Or perhaps I just wanted to believe that.
 
@@ -135,7 +135,7 @@ As I turned the handle and opened the door, a slightly dazzling light flooded in
 
 I immediately hugged the person I loved tightly.
 
-‘Hoshizora, has something happened?’\
+‘Sora, has something happened?’\
 ‘Yeah…’\
 ‘Let’s have some dinner first.’
 
@@ -157,22 +157,22 @@ I looked up at her and saw a slightly surprised expression on her face. She grun
 
 ‘I wonder why. My body just moved on its own. I’m not sure if I could do the same thing if I were faced with the same situation now.’\
 ‘Why?’\
-‘Because I would think I might be taking away Hoshizora’s freedom of choice and causing her pain. Back then, my way of thinking was still so immature; my head was full of idealistic notions. Since I was the one who’d been left behind by my family, I thought that if Hoshizora died, there might be someone else who’d feel the same way I did. But not everyone is in the same situation as me, you know.”
+‘Because I would think I might be taking away Sora’s freedom of choice and causing her pain. Back then, my way of thinking was still so immature; my head was full of idealistic notions. Since I was the one who’d been left behind by my family, I thought that if Sora died, there might be someone else who’d feel the same way I did. But not everyone is in the same situation as me, you know.”
 
 Endo-san took a deep breath and exhaled. I found myself taking a deep breath in sync with her.
 
-“That’s why I’m glad I was so immature back then. ‘Does Hoshizora resent me for what I did back then?’\
+“That’s why I’m glad I was so immature back then. ‘Does Sora resent me for what I did back then?’\
 ‘No. I'm grateful.’\
 ‘I see. That’s a relief.’
 
 Endo-san gave me a happy smile and gently stroked my head. Her touch felt so comforting that I wanted to feel that warmth forever. I clasped Endo-san’s hand tightly as she stroked my head. Perhaps I squeezed too hard, for I could almost hear the thumping of her pulse through her hand.
 
 “I’ve seen a student who reminds me of myself back then recently, and I ended up stopping what she was doing. I’d been feeling anxious, wondering if I was taking away her choices and causing her pain.”\
-“Do you regret it, Hoshizora?”\
+“Do you regret it, Sora?”\
 “If you ask me if I regret it, I suppose maybe a little, but I’m trying my best to make sure it doesn’t turn into regret.”\
 “I don’t know anything about that girl, but I think if she were to disappear, you’d surely regret it for the rest of your life.”\
 “Why…?”\
-“Because Takizawa Hoshizora is a warm-hearted person.”
+“Because Takisawa Sora is a warm-hearted person.”
 
 Endo-san placed her hand on my chest and patted it gently. I could feel the warmth radiating from where she touched me. I really do think she’s a warm-hearted person.
 

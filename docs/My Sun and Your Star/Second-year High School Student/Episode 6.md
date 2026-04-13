@@ -66,7 +66,7 @@ As the conversation trailed off, I spoke to Mai.
 "You've got club today, right? Could you give this back to Endo-san for me?"\
 "What's this?"\
 "A handkerchief."\
-"Well, I can see what it is. Why does Hoshizora have Hina's handkerchief? Were you two close?"
+"Well, I can see what it is. Why does Sora have Hina's handkerchief? Were you two close?"
 
 Though I knew it was mine, I hadn't expected such a question and felt a little flustered, deciding to gloss over it.
 
@@ -115,7 +115,7 @@ Endo-san was beaming at me, looking delighted. I couldn't understand why things 
 
 "Well, yes, but... Normally, wouldn't you expect sweets or something?"
 
-"I want to get closer to Takizawa-san, and this seemed like a good opportunity. Takizawa-san's the smartest in our year, and if someone like that tutored me, I might even become second best? Just saying. Your first name is Hoshizora, right? Can I call you Hoshizora?"
+"I want to get closer to Takisawa-san, and this seemed like a good opportunity. Takisawa-san's the smartest in our year, and if someone like that tutored me, I might even become second best? Just saying. Your first name is Sora, right? Can I call you Sora?"
 
 I realised once again why I disliked this person. She was the type who spread charm around, paid no heed to others' opinions, and barged right into people's personal space.
 
@@ -123,7 +123,7 @@ I realised once again why I disliked this person. She was the type who spread ch
 
 It came out rather coldly. But Endo-san was at fault. Talking to her somehow threw me off my stride. I brushed her off coldly, hoping she'd go away.
 
-"Then, Takizawa it is. I'm Endo Hina. You can just call me Hina."
+"Then, Takisawa it is. I'm Endo Hina. You can just call me Hina."
 
 　Even though I was being cold, Endo-san said this without breaking her usual fake smile. It made it hard to refuse in this situation, and even if I did refuse, she seemed like she wouldn't give up easily, making me think I'd just have to give in.
 
@@ -132,7 +132,7 @@ Sighing loudly enough for her to hear, I reluctantly agreed, "Fine. Until the mi
 "Yay!"
 
 　In the quiet, Endo-san shouted loudly, so I snapped back, "Keep it down!" a bit too loudly myself.\
-"Takizawa's voice is louder," she grumbled.
+"Takisawa's voice is louder," she grumbled.
 
 The future looked bleak. Why had it come to this? Lately, nothing but strange things kept happening. All I wanted was to live peacefully...
 

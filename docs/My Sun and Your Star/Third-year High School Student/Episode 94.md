@@ -19,16 +19,16 @@ As I got closer, I could see she was putting on her make-up, which made her look
 
 Perhaps because I was wearing a yukata myself, she didn’t notice me even when I was right next to her. Feeling a little annoyed, I pinched her cheek.
 
-‘T-Takizawa!? Sorry, I didn’t realise it was you. You’re wearing a yukata…’
+‘T-Takisawa!? Sorry, I didn’t realise it was you. You’re wearing a yukata…’
 
 　Endo-san looked utterly astonished, scanning me from head to toe several times over. Being looked at like that was a bit embarrassing, so I tried to stop her, but she stared at me with a look as if she wanted to say something, and I found myself unable to speak.
 
-‘Takizawa, you look…’\
-‘Hoshizora!! What, you’re so cute! It’s the first time I’ve seen you in a yukata!’
+‘Takisawa, you look…’\
+‘Sora!! What, you’re so cute! It’s the first time I’ve seen you in a yukata!’
 
 　Mai interrupted Endo-san and threw her arms around me, so I didn’t get to hear what she was about to say.
 
-“And you’ve got make-up on too, it looks brilliant! I always thought Hoshizora had a cute sort of face, but with make-up, you’re a proper beauty.”
+“And you’ve got make-up on too, it looks brilliant! I always thought Sora had a cute sort of face, but with make-up, you’re a proper beauty.”
 
 　Mai nodded proudly, agreeing. I was pleased to be complimented, so I decided to tell Mai honestly what I thought.
 
@@ -44,7 +44,7 @@ Perhaps because I was wearing a yukata myself, she didn’t notice me even when 
 
 　Miumi-chan was also wearing a yukata; it was black with a cherry blossom petal pattern. She had a floral decoration on the right side of her head, giving her a slightly different vibe from her usual self.
 
-“Wow, Hoshizora-sensei looks lovely in a yukata too!”\
+“Wow, Sora-sensei looks lovely in a yukata too!”\
 “Miumi-chan looks lovely as well. It’s because Miumi-chan suits that yukata so well.”\
 “That’s for sure!”
 
@@ -68,14 +68,14 @@ Hang on, were they always this close…?\
 As I walked along, pondering this, Endo-san came up beside me, and we ended up walking side by side.
 
 ‘They both look like they’re having a good time.’\
-‘Aren’t you enjoying yourself, Takizawa?’\
+‘Aren’t you enjoying yourself, Takisawa?’\
 ‘It’s just fine.’
 
 As soon as I said that, Endo-san moved closer to me, pressing her body against my arm. Even though I’m doing exactly the same as I would with Mai, for some reason, the arm that Endo-san is pressing against feels hot.
 
 　When I looked up at Endo-san, her face was closer than I’d expected, so I looked away again. I just can’t bring myself to look Endo-san straight in the face today…
 
-“Takizawa, isn’t there anything you fancy eating?”\
+“Takisawa, isn’t there anything you fancy eating?”\
 “Hmm, I fancy some takoyaki.”\
 “You ate so much last year you even snatched mine.”
 
@@ -108,7 +108,7 @@ It seemed she was fine today, but I spoke up as if to escape the silence between
 “Are you alright today…?”\
 “I bought some that are easy to walk in. Thanks for worrying about me.”\
 “I’m not really worried. It wouldn’t be worth it if we couldn’t see the fireworks again this year, would it?”\
-“Hehe, that’s what’s lovely about you, Takizawa.”
+“Hehe, that’s what’s lovely about you, Takisawa.”
 
 　Endo-san seemed several times happier than usual today. It didn’t take me long to realise that I, too, was feeling happy about that.
 
@@ -130,7 +130,7 @@ We arrived at our destination. I bought some takoyaki and Endo-san bought some o
 　I actually wanted to keep the takoyaki all to myself, but Endo-san was looking at me with such sparkling eyes that I had no choice but to give her some.
 
 “Here, have some.”\
-“Takizawa, feed it to me.”\
+“Takisawa, feed it to me.”\
 “Do it yourself.”\
 “Fine, never mind.”
 
@@ -141,7 +141,7 @@ That look was surprisingly childlike, and I couldn’t help but want to spoil he
 
 　When I brought the takoyaki to Endo-san’s mouth, my favourite takoyaki vanished into her mouth in an instant. She munched away happily, looking just like a dog that had been given a treat.
 
-‘I’ll give Takizawa some okonomiyaki too.’
+‘I’ll give Takisawa some okonomiyaki too.’
 
 　Even though I hadn’t asked for any, Endo-san brought some okonomiyaki to my mouth. I simply took a big bite of it.
 
@@ -203,5 +203,3 @@ I pulled the hand intertwined with mine toward me, rose up just a little on my t
 　Truth be told, I wanted to run away from there right then and there; I was so embarrassed I wanted to vanish.
 
 　But that day, I held Endo-san’s hand the whole time and looked up at the sky until the fireworks stopped.
-
-![fireworks](/assets/images/sun-star-fireworks.jpg)

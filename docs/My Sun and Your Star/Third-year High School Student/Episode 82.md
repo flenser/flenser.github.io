@@ -18,11 +18,11 @@ That pressure weighs heavily on me.
 
 Aside from the pressure of the match, I have another worry.
 
-Since we’ve made it to the prefectural tournament, Takizawa told me which university she’s going to, as promised. I haven’t told Takizawa, but I want to go to a university in the same prefecture too.
+Since we’ve made it to the prefectural tournament, Takisawa told me which university she’s going to, as promised. I haven’t told Takisawa, but I want to go to a university in the same prefecture too.
 
 The reason is simple.
 
-　I don’t want to lose touch with Takizawa.
+　I don’t want to lose touch with Takisawa.
 
 　I’ve been torn about this for a long time.\
 　Should I start working soon and become independent, or go to university to pursue the career I’m interested in?\
@@ -43,43 +43,43 @@ Yet, the many memories they left behind are here, and they have enabled me to ca
 
 I want to be able to build a home like that.
 
-　I’d given up on applying to architecture faculties because they’re all so competitive, but thanks to Takizawa, I’ve managed to study hard enough to reach a level where going to university isn’t out of the question. I’m thinking of discussing it with my grandparents soon.
+　I’d given up on applying to architecture faculties because they’re all so competitive, but thanks to Takisawa, I’ve managed to study hard enough to reach a level where going to university isn’t out of the question. I’m thinking of discussing it with my grandparents soon.
 
-　If I’m going to university, it would obviously be better to go to one close to home where it doesn’t cost much, but I didn’t want to lose touch with Takizawa once I finished high school.
+　If I’m going to university, it would obviously be better to go to one close to home where it doesn’t cost much, but I didn’t want to lose touch with Takisawa once I finished high school.
 
-　Someday, I want to tell Takizawa how I feel.\
+　Someday, I want to tell Takisawa how I feel.\
 　I want to say ‘I like you’.
 
 　I want to tell her, but I don’t think now is the right time. I wanted to stay close so that I could do it whenever the time was right.
 
-　Telling Takizawa how I feel, and getting her to feel the same way, isn’t easy; I even think it might be an impossible dream.
+　Telling Takisawa how I feel, and getting her to feel the same way, isn’t easy; I even think it might be an impossible dream.
 
 　That’s exactly why I didn’t want to be apart from her.
 
-　And, as if in inverse proportion to my recent worries, Takizawa’s attitude has changed dramatically.
+　And, as if in inverse proportion to my recent worries, Takisawa’s attitude has changed dramatically.
 
-　Since the prefectural high school championships qualifiers, Takizawa has become much more open. And no matter what I do to her, she doesn’t seem to mind much, and she rarely rejects me anymore.
+　Since the prefectural high school championships qualifiers, Takisawa has become much more open. And no matter what I do to her, she doesn’t seem to mind much, and she rarely rejects me anymore.
 
 　I tried various things just to see.
 
-　Whether I held her hand or kissed her cheek or lips, as long as we weren’t outside, Takizawa hardly ever said she didn’t like it. It’s been proven that if I go too far, she gets angry.
+　Whether I held her hand or kissed her cheek or lips, as long as we weren’t outside, Takisawa hardly ever said she didn’t like it. It’s been proven that if I go too far, she gets angry.
 
 　Could it be that I’ve gone too far and she’s just got used to it…?
 
-　In any case, whilst I’m happy to be touched by Takizawa, my mind is filled with questions as to why this is happening, and my thoughts are becoming increasingly muddled.
+　In any case, whilst I’m happy to be touched by Takisawa, my mind is filled with questions as to why this is happening, and my thoughts are becoming increasingly muddled.
 
-　And then, the actions Takizawa takes in the most unexpected moments push me to the brink, as if my heart might burst.
+　And then, the actions Takisawa takes in the most unexpected moments push me to the brink, as if my heart might burst.
 
 　The other day, I felt like my heart was going to shatter.
 
-I wanted to express my deep gratitude, so I hugged Takizawa. But I never expected her to hug me back.
+I wanted to express my deep gratitude, so I hugged Takisawa. But I never expected her to hug me back.
 
 I want to ask her why she did that, but if I do, I’m sure she won’t speak to me for a while.
 
-I’m so preoccupied with Takizawa… I want to know her better, but this distance is so frustrating…
+I’m so preoccupied with Takisawa… I want to know her better, but this distance is so frustrating…
 
 Despite these worries, I left home determined to focus on today’s match.\
-The match, Takizawa, university.
+The match, Takisawa, university.
 
 There’s so much to think about, and I’m constantly filled with anxiety.
 
@@ -91,7 +91,7 @@ The venue I’ve always longed to play in—
 
 I shook my head vigorously from side to side.
 
-Takizawa had said she’d come to watch today.\
+Takisawa had said she’d come to watch today.\
 I couldn’t let her see me looking like a fool.\
 I gave my cheeks a few light slaps to psych myself up again.
 
@@ -106,7 +106,7 @@ Saying that, I ruffled Mai’s hair.
 
 The two of them were in perfect harmony, and as soon as I let go of Mai, she started fussing over her. Since when had these two become such good friends?
 
-　But this wasn’t the time to be worrying about that, so I gathered the team together to start our warm-up and strategy meeting. As the match time drew nearer, I realised I’d received a message from Takizawa.
+　But this wasn’t the time to be worrying about that, so I gathered the team together to start our warm-up and strategy meeting. As the match time drew nearer, I realised I’d received a message from Takisawa.
 
 ‘I’m here.’
 
@@ -114,11 +114,11 @@ Just those two words made my heart swell, and I felt a surge of energy coursing 
 
 I just wanted to see her, even for a moment.
 
-There was still a little time before the match, so although I wasn’t sure if I’d be able to find her, I decided to look for Takizawa.
+There was still a little time before the match, so although I wasn’t sure if I’d be able to find her, I decided to look for Takisawa.
 
-　After a quick search of the venue, I found her straight away. I was impressed with myself for knowing Takizawa so well. I’d thought she’d probably be hiding in a corner somewhere, avoiding people, and sure enough, there she was in a damp, deserted spot.
+　After a quick search of the venue, I found her straight away. I was impressed with myself for knowing Takisawa so well. I’d thought she’d probably be hiding in a corner somewhere, avoiding people, and sure enough, there she was in a damp, deserted spot.
 
-“Takizawa, why are you in a place like that?”
+“Takisawa, why are you in a place like that?”
 
 “Endo-san?!”\
 she looked quite startled and stared at me, still cowering.
@@ -127,11 +127,11 @@ she looked quite startled and stared at me, still cowering.
 
 At those words, I couldn’t help but burst out laughing.
 
-That’s just like Takizawa.
+That’s just like Takisawa.
 
-I’d been quite nervous leading up to the match, but thanks to Takizawa, I felt a lot more relaxed. Seeing Takizawa’s face puts me at ease. I really do feel, deep down, that Takizawa’s influence is incredible.
+I’d been quite nervous leading up to the match, but thanks to Takisawa, I felt a lot more relaxed. Seeing Takisawa’s face puts me at ease. I really do feel, deep down, that Takisawa’s influence is incredible.
 
-‘Hey, Takizawa.’
+‘Hey, Takisawa.’
 
 ‘Hmm?’
 
@@ -139,16 +139,16 @@ I’d been quite nervous leading up to the match, but thanks to Takizawa, I felt
 
 　I don’t think she’ll stroke my head, but I bend down anyway. I’m hoping she’ll at least say ‘Good luck’. As I wait, feeling all giddy, something I hadn’t imagined happened.
 
-　Takizawa pulls me by the arm and hugs me tightly.\
+　Takisawa pulls me by the arm and hugs me tightly.\
 　There are lots of people in the venue; some are looking at us, while others just walk past without paying any attention.
 
-　Takizawa, why……?
+　Takisawa, why……?
 
 “I’m rooting for you. I’ll be watching.”
 
-Saying that, Takizawa stepped back from me and gave me a clumsy smile.
+Saying that, Takisawa stepped back from me and gave me a clumsy smile.
 
-Takizawa is so sneaky…
+Takisawa is so sneaky…
 
 Just one of her actions is enough to throw my emotions into such turmoil.
 
@@ -160,7 +160,7 @@ Saying that, I turned my back on her.
 
 I’m so eager to get the match started now that I wonder where all the anxiety I felt just a moment ago has gone.
 
-Takizawa gives me so much courage.
+Takisawa gives me so much courage.
 
 The buzzer sounded to start the match.
 
@@ -235,11 +235,11 @@ What a heartless person I am.
 
 I find myself wondering if I really didn’t try hard enough, if I didn’t put enough effort into this club activity, which I’d thrown myself into so wholeheartedly, that I can’t even cry at its end.
 
-When did I start taking the club seriously, again…?… Oh yes, it was the day Takizawa came to watch our practice match.
+When did I start taking the club seriously, again…?… Oh yes, it was the day Takisawa came to watch our practice match.
 
-　From that day on, I started practising seriously, thinking I might be watched by Takizawa at any moment. My initial motivation might have been impure, but as I kept at it, I began to want to go to the prefectural tournament.
+　From that day on, I started practising seriously, thinking I might be watched by Takisawa at any moment. My initial motivation might have been impure, but as I kept at it, I began to want to go to the prefectural tournament.
 
-It’s the same with my studies. I started them initially to get closer to Takizawa, but now I’m working hard for my own sake.
+It’s the same with my studies. I started them initially to get closer to Takisawa, but now I’m working hard for my own sake.
 
 She always gives me the spark to get serious.
 
@@ -266,13 +266,13 @@ No, on closer inspection, there was a girl swinging on the swings. The moment sh
 
 ‘I thought you might come today. Well done on the match.’
 
-Takizawa may not be the most articulate, but there is kindness in her words.
+Takisawa may not be the most articulate, but there is kindness in her words.
 
 We move to a park bench and sit side by side.
 
 ‘…I lost, even though you came all this way to watch.’
 
-I wanted to look cool in front of Takizawa.\
+I wanted to look cool in front of Takisawa.\
 I wanted to be the sort of person who could sit beside her with my head held high. A sense of dissatisfaction swirls round and round inside me.
 
 “Was it a match you regret?”
@@ -286,7 +286,7 @@ Did I regret it? —No, I thought I could hold my head high and say that I’d d
 
 At those words, my chest and the corners of my eyes grew warm.
 
-“You idiot, Takizawa.”\
+“You idiot, Takisawa.”\
 “I’m not an idiot.”
 
 I held back the tears with all my might. I was teetering on the edge of breaking down; it felt like even the slightest touch from her finger might send me crashing to the ground.
@@ -301,7 +301,7 @@ Tears began to spill out of me.
 
 I’d thought I couldn’t even cry when I’d given it my all. But there were definitely emotions deep inside me.
 
-For some reason, in front of Takizawa, I end up laying bare everything I’ve been hiding.
+For some reason, in front of Takisawa, I end up laying bare everything I’ve been hiding.
 
 I don’t want her to see me like this, yet the tears keep spilling out and won’t stop.
 
@@ -313,4 +313,4 @@ I’m glad I was able to play basketball in the match until the very end without
 
 The more I think about it, the more my emotions, the happy moments, the fun times, and the painful ones, get all jumbled up and spill out as tears.
 
-That day, Takizawa didn’t say a word; she just stayed by my side until I’d stopped crying.
+That day, Takisawa didn’t say a word; she just stayed by my side until I’d stopped crying.

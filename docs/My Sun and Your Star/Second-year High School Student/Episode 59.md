@@ -64,7 +64,7 @@ However, as I had no reason to refuse, I ended up agreeing to hang out with Endo
 
 　＊＊＊
 
-‘Hoshizora-san, will you still be my tutor once I’m in high school?’\
+‘Sora-san, will you still be my tutor once I’m in high school?’\
 ‘Are you sure you want me to?’\
 ‘Yes! Your teaching style is so easy to understand, I’d really like you to continue.’\
 She looks at me with teary eyes.
@@ -108,7 +108,7 @@ I was glad that she’d taken such good care of the gift I’d given her. That s
 
 It’s like a dog coming to its owner.
 
-‘If you’re here, Takizawa, you should’ve said hello!’\
+‘If you’re here, Takisawa, you should’ve said hello!’\
 ‘Sorry.’\
 ‘It’s fine. you're wearing a dress today. It suits you.’\
 ‘Thanks.’\
@@ -117,10 +117,10 @@ Endo-san compliments whatever I’m wearing, so I try not to take it too serious
 　Is Endo-san trying to buy a train ticket?
 
 ‘Aren’t we just going to wander around the station today?’\
-‘No. There’s somewhere I want to take you today, Takizawa.’\
+‘No. There’s somewhere I want to take you today, Takisawa.’\
 ‘I didn’t hear that.’\
 ‘I didn’t say it.’\
 ‘Endo-san, you’re being a bit cheeky today.’\
-‘Maybe it’s because I’m happy to see you, Takizawa.’
+‘Maybe it’s because I’m happy to see you, Takisawa.’
 
 Endo-san laughed, giving a reason I couldn’t quite make sense of. Well, I thought, as long as Endo-san is smiling, it’s fine, so I decided to go along with her.

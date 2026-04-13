@@ -13,7 +13,7 @@ I don’t know how long we’d been standing there like that, but my flustered f
 I went inside as Endo-san told me. The house was filled with the delicious smell of food, which was making my stomach rumble.
 
 ‘What have you made today?’\
-‘I played it safe and went for fried chicken. I thought you might like meat dishes too, Takizawa.’\
+‘I played it safe and went for fried chicken. I thought you might like meat dishes too, Takisawa.’\
 ‘……It's fine.’\
 ‘I see. Fancy a shower first?’\
 ‘Yeah.’
@@ -45,11 +45,11 @@ A summer shower feels wonderful; the sweat that had been clinging to my body jus
 
 　Endo-san called out to me as I got out of the bath, so I headed for the front door.
 
-‘Hina-chan, Hoshizora-chan, thank you so much! We’ll be back!’
+‘Hina-chan, Sora-chan, thank you so much! We’ll be back!’
 
 　Hikari-san was waving her hands energetically as cheerfully as ever. Seeing this, Mayo-nee smiled, then approached me with a gentle expression.
 
-‘Hoshizora, thank you so much. I’m glad you were there.’\
+‘Sora, thank you so much. I’m glad you were there.’\
 “Yeah.”
 
 　I was glad Mayo-nee was there, too. If I’d been on my own, I’m sure I’d still be shut away in my shell.
@@ -86,7 +86,7 @@ When I returned to the living room, there was a plate of delicious-looking fried
 
 Perhaps because I’d let my guard down, my true feelings slipped out. That remark wasn’t like me. But it wasn’t a lie. It was something I genuinely believed.
 
-‘Well then, Takizawa…’\
+‘Well then, Takisawa…’\
 ‘Hmm?’\
 ‘Never mind. Let’s eat.’
 
@@ -110,7 +110,7 @@ I used to have absolutely no interest in food and thought that as long as it wen
 She looked a bit disappointed. I’ve become quite open with Endo-san, but at times like this, I still find it hard to be honest. To dispel the guilt I felt for not being able to say it was tasty, I chose different words.
 
 ‘Teach me how to make it next time.’\
-‘Eh! Will you help me make it too, Takizawa?’
+‘Eh! Will you help me make it too, Takisawa?’
 
 The disappointed look from a moment ago had vanished, and she looked incredibly happy. That made me a little happy too, and my heart fluttered, so I just ignored Endo-san’s words and carried on eating.
 
@@ -125,7 +125,7 @@ I was waiting on the sofa for Endo-san when she seemed to have finished her bath
 　Her hair was dry, and she smelled like a flower basking in the sunshine. I don’t know why, but Endo-san’s scent is incredibly soothing. I wanted to smell her scent more closely, but I felt I’d be called a pervert if I just sniffed her, so I rested my head on her shoulder. Endo-san’s scent gently washed over my nose.\
 It felt so pleasant that I started to feel a little sleepy.
 
-‘Takizawa…?’
+‘Takisawa…?’
 
 Endo-san’s voice startled me. Behaving like this isn’t right. I’ve only come here for dinner; I have to go home today.
 
@@ -139,7 +139,7 @@ As soon as I said that and stood up briskly from the sofa, she grabbed my arm.
 
 Endo-san looks as though she’s deep in thought, her brow furrowed—which is quite unusual for her.
 
-“I’ll do whatever you say, Takizawa. I want you to stay tonight.”\
+“I’ll do whatever you say, Takisawa. I want you to stay tonight.”\
 “Why do you want me to stay so badly?”\
 “…………”
 
@@ -173,7 +173,7 @@ The moment I heard those words, I felt a sharp, constricting pain in my chest. A
 
 　Endo-san smiled, looking a little embarrassed.
 
-“But... I'm a little disappointed, I have to say. I was kind of looking forward to a future where Takizawa would be living here with me.”
+“But... I'm a little disappointed, I have to say. I was kind of looking forward to a future where Takisawa would be living here with me.”
 
 　Saying that, her expression shifted to a shy, bashful smile.\
 　Seeing that face made my heart race.\

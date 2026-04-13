@@ -22,7 +22,7 @@ Thinking that, I glanced over at Endo-san — and sure enough, she was trembling
 
 Saaya, who had been cheerfully bright until just a moment ago, was speaking in an unbelievably shaky voice.
 
-"But it's a summer classic. Hoshizora's totally fine, right?"\
+"But it's a summer classic. Sora's totally fine, right?"\
 "Yeah."\
 "And Hina, you're completely cool with it? You wouldn't say something uncool like being scared of ghosts, would you?"
 
@@ -34,7 +34,7 @@ Mai clearly knew Endo-san was bad with this sort of thing and was asking deliber
 
 The lot draw paired Saaya with me, and Mai with Endo-san. That worked — I had things I wanted to say to Saaya.
 
-"I'll leave Saaya to Hoshizora! Come up in about ten minutes! Hina, let's go!"\
+"I'll leave Saaya to Sora! Come up in about ten minutes! Hina, let's go!"\
 "Ahh..."
 
 Endo-san, looking anxious, was pulled along by Mai and they disappeared.
@@ -44,7 +44,7 @@ The surroundings grew quiet, and a spooky atmosphere settled in.
 Looking to my side, the girl who had been so forceful with me earlier was nowhere to be found — in her place was someone trembling.
 
 "Let's go."\
-"Hoshizora-chan, can I hang onto your arm?"\
+"Sora-chan, can I hang onto your arm?"\
 "Sure."
 
 Saaya clung to my arm as though she had no intention of ever letting go. Her hands were trembling, so she must have been genuinely scared.
@@ -53,7 +53,7 @@ Having someone other than Endo-san do this to me felt like nothing at all. If th
 
 Even away from Endo-san, all I could think about was Endo-san, and I felt a little fed up with myself.
 
-"Hoshizora-chan, I'm scared — say something."
+"Sora-chan, I'm scared — say something."
 
 Asking me to provide conversation topics was quite an unreasonable demand. If anything, that was more Saaya's domain — or so I thought. But looking at the girl beside me, she clearly had no such capacity right now.
 
@@ -112,13 +112,13 @@ I had absolutely no idea what Saaya was trying to accomplish. My arm was release
 
 Saaya, someone I'd only met today, was wearing an expression even I could tell was genuinely sad.
 
-"When I ask why she seems down at school she won't tell me — but today, watching her talk with you, I thought — *everything she's struggling with is about Hoshizora-chan.*"\
+"When I ask why she seems down at school she won't tell me — but today, watching her talk with you, I thought — *everything she's struggling with is about Sora-chan.*"\
 "Sorry..."\
 "Not *sorry* —"
 
 Saaya peered at me and smiled. Her expression was somehow clear, somehow pleased.
 
-"All those happy faces and sad faces and sulky faces — they come out naturally because it's you. I've never seen Hina look that happy before. So I thought: Hoshizora-chan is something special."\
+"All those happy faces and sad faces and sulky faces — they come out naturally because it's you. I've never seen Hina look that happy before. So I thought: Sora-chan is something special."\
 "I don't think that's true."
 
 It isn't true. I don't have any power like that.
@@ -149,7 +149,7 @@ Mai and Saaya walked ahead, chatting happily.
 
 Watching them, the numb arm was suddenly caught softly.
 
-"I want Takizawa's arm too——"
+"I want Takisawa's arm too——"
 
 Endo-san doing that without warning sent my heart into strange rhythms. Wherever she was touching, it beat loudly, as though a heart had attached itself there.
 

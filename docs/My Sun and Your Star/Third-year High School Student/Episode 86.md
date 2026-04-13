@@ -7,7 +7,7 @@ Episode 86: Preparing for the Family Meeting (3)
 
 We finished our evening meal in no time at all, and the four of us were now gathered around Endo-san’s table. Endo-san had boiled some water and served us all tea, so Mayo-nee and Hikari-san were sipping it noisily.
 
-‘Right then, let’s get started. Are you really sure it’s alright, Hoshizora? We’re going to be laying everything bare, about our family and about you… I’m sorry, Hina-chan, but there are bound to be some things you’d rather not hear, maybe?’
+‘Right then, let’s get started. Are you really sure it’s alright, Sora? We’re going to be laying everything bare, about our family and about you… I’m sorry, Hina-chan, but there are bound to be some things you’d rather not hear, maybe?’
 
 Mayo-nee looked at me with an apologetic expression.
 
@@ -31,7 +31,7 @@ Mayo-nee said with a look of displeasure.
 
 Startled by the sudden announcement, I could hear my heart beating strangely. Would I be able to prepare myself mentally by next week? I couldn’t imagine myself talking to my parents next week at all. Ignoring my panic, Mayo-nee continued.
 
-‘As for Hoshizora, to be honest, I’m not sure how they’ll react when she tells them she doesn’t want to go to medical school. From what I’ve heard before, they said they’d cover her expenses until she graduates. I don’t know if that’s on the condition she goes to medical school or if any university will do, but personally, I reckon it’ll be fine for Hoshizora.’
+‘As for Sora, to be honest, I’m not sure how they’ll react when she tells them she doesn’t want to go to medical school. From what I’ve heard before, they said they’d cover her expenses until she graduates. I don’t know if that’s on the condition she goes to medical school or if any university will do, but personally, I reckon it’ll be fine for Sora.’
 
 Hearing that, I was relieved to find our views aligned. My parents have no interest in me, the underachiever.
 
@@ -59,7 +59,7 @@ I feel like a lot has changed for me since I decided I wanted to become a school
 
 Hikari-san held Mayo-nee’s trembling hand tightly. Seeing Mayo-nee regain her composure as a result, Hikari-san couldn’t help but be deeply moved by just how much Mayo-nee meant to her.
 
-“My parents treated me well because I’m the one who’s going to inherit the family business. If I didn’t take over the family business, and if Hoshizora didn’t pursue a career in medicine, I think the worst-case scenario would be that we’d both be thrown out… And if that happened, financial matters would naturally become an issue… I reckon I could just work my fingers to the bone at a part-time job. It’s just that Hoshizora might end up with nowhere to go home to, so I’ve been agonising over what to do…”
+“My parents treated me well because I’m the one who’s going to inherit the family business. If I didn’t take over the family business, and if Sora didn’t pursue a career in medicine, I think the worst-case scenario would be that we’d both be thrown out… And if that happened, financial matters would naturally become an issue… I reckon I could just work my fingers to the bone at a part-time job. It’s just that Sora might end up with nowhere to go home to, so I’ve been agonising over what to do…”
 
 　It’s true that even if I lost my current allowance, I wouldn’t be in trouble, but losing a place to live might be a problem.
 
@@ -76,7 +76,7 @@ Endo-san gave me a look as if I’d said something weird. Mayo-nee and Hikari-sa
 
 I don’t want Endo-san to dislike me. That’s why I want to avoid causing her any trouble as much as possible.
 
-“It’s not a bother at all, and I’ll set the rules to some extent, so it’ll be fine. From my point of view, whether Takizawa’s here or not, what I do won’t change much from now; it’ll just mean I have to cook a bit more food, that’s all.”
+“It’s not a bother at all, and I’ll set the rules to some extent, so it’ll be fine. From my point of view, whether Takisawa’s here or not, what I do won’t change much from now; it’ll just mean I have to cook a bit more food, that’s all.”
 
 　Endo-san speaks with a gentle smile.\
 　Even if that were the case, it’s still out of the question. Lately, when I’m with Endo-san, I feel like I’m losing myself. Just a moment ago, I did something to upset Endo-san.
@@ -91,7 +91,7 @@ I don’t want Endo-san to dislike me. That’s why I want to avoid causing her 
 
 ‘Sigh... In the worst-case scenario, I might have to rely on Endo-san, but I’d like to keep that as a last resort.’
 
-‘I’m sorry, Hina-chan, but if the worst comes to the worst, please look after Hoshizora.’
+‘I’m sorry, Hina-chan, but if the worst comes to the worst, please look after Sora.’
 
 　Mayo-nee is dutifully saying things like that.
 
@@ -117,11 +117,11 @@ Since the conversation was going nowhere, I decided to keep quiet.
 Mayo-nee isn’t acting like herself today.\
 I wonder what’s wrong.
 
-‘There’s something I need to tell Hoshizora. I happened to have a chance to talk to Hikari and Hina-chan about it, but—’
+‘There’s something I need to tell Sora. I happened to have a chance to talk to Hikari and Hina-chan about it, but—’
 
 Something the three of them know that I don’t? Wondering what it could be, I furrow my brow.
 
-“...The truth is, I’m not actually their biological child. Legally, I’m their child through adoption, but I’m not their biological child. That’s why I think this news will be particularly hard for my parents to accept. Apart from taking over my father’s practice, they don’t need me. I know telling you this will only hurt you, Hoshizora. But I felt I had to tell you. You can hit me, shout at me, do whatever you like...”
+“...The truth is, I’m not actually their biological child. Legally, I’m their child through adoption, but I’m not their biological child. That’s why I think this news will be particularly hard for my parents to accept. Apart from taking over my father’s practice, they don’t need me. I know telling you this will only hurt you, Sora. But I felt I had to tell you. You can hit me, shout at me, do whatever you like...”
 
 　For once, Hikari-san looked gloomy too. Endo-san also looked down and fell silent. I couldn’t understand why everyone had suddenly become so sombre.
 
@@ -132,7 +132,7 @@ Something the three of them know that I don’t? Wondering what it could be, I f
 
 “It was written on some document I found somewhere when I was about in secondary school. To me, it didn’t really matter, whether that fact existed or not, my parents are still those two, and my only sister is Mayo-nee, isn’t she?”
 
-“But Hoshizora is their biological child, whereas I’m not their biological child, yet I’m the one who’s cherished more. Don’t you feel anything about that? It’s a fact that would make it perfectly natural for me to be resented or hated, don’t you think?”
+“But Sora is their biological child, whereas I’m not their biological child, yet I’m the one who’s cherished more. Don’t you feel anything about that? It’s a fact that would make it perfectly natural for me to be resented or hated, don’t you think?”
 
 　Mayo-nee was speaking with her emotions laid bare, which was unusual for her.
 
@@ -154,7 +154,7 @@ Something the three of them know that I don’t? Wondering what it could be, I f
 
 　Without me realising it, Mayo-nee had come and hugged me, and I could feel her body trembling.
 
-‘I’m sorry, Hoshizora. —Thank you. Let’s do our best together.’
+‘I’m sorry, Sora. —Thank you. Let’s do our best together.’
 
 　Something cold fell onto my shoulder. I could tell Mayo-nee was crying, her body trembling. She seemed similar to the sister who used to comfort me when our family was falling apart, yet she was completely different. She wasn’t putting on a brave face; she was vulnerable, and that put me at ease.
 

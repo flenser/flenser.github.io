@@ -37,20 +37,20 @@ Before I knew it, I had fallen for him. I, who had no redeeming qualities, had f
 
 　Then, four years later, Makoto and I had a child of our own.
 
-‘Hoshizora’
+‘Sora’
 
 　We wanted her to shine as brightly as the stars. We wanted her to be a light for someone lost in the darkness. We gave her that name with those wishes in mind. Finally having a child with the man I loved, and seeing how much she resembled me, made me feel even more affection for her, and I think I often found myself fussing over her.
 
-　Both our daughters were simply adorable; Mayo grew into a wonderful big sister, whilst Hoshizora, though a bit of a crybaby and a bit of a mama’s girl, grew up to be a kind-hearted child. Going out as a family and looking after the two of them were truly happy times, moments I never wanted to lose.
+　Both our daughters were simply adorable; Mayo grew into a wonderful big sister, whilst Sora, though a bit of a crybaby and a bit of a mama’s girl, grew up to be a kind-hearted child. Going out as a family and looking after the two of them were truly happy times, moments I never wanted to lose.
 
 　At some point, Makoto began drilling the girls in their studies, saying he wanted them to be his heirs. Influenced by his seriousness, I too grew stricter with our daughters about their schoolwork, and I started limiting the things they were allowed to do outside of studying..\
 　I wanted to be his support. Driven by that single-minded desire, my own perspective had narrowed.
 
 　As if to meet our expectations, Mayo became an astonishingly gifted child. It felt as though I were watching my own brother and sister, and a faint sense of jealousy began to stir within me.
 
-　In contrast to Mayo, Hoshizora, like me, found that things rarely went her way, no matter what she did. At first, I tried my best to support her, not wanting her to feel the same way I did, but gradually, seeing myself reflected in her made me feel irritated, and I began to take out my self-loathing on Hoshizora.
+　In contrast to Mayo, Sora, like me, found that things rarely went her way, no matter what she did. At first, I tried my best to support her, not wanting her to feel the same way I did, but gradually, seeing myself reflected in her made me feel irritated, and I began to take out my self-loathing on Sora.
 
-　And, anxious that Hoshizora might be the reason Makoto would abandon me, I began to treat my own daughter in the most appalling way.
+　And, anxious that Sora might be the reason Makoto would abandon me, I began to treat my own daughter in the most appalling way.
 
 I was not just a failure as a mother. I was a failure as a human being.
 
@@ -59,11 +59,11 @@ Instead of reaching out to someone in the same situation as myself, I told mysel
 I was far too immature to be a mother.
 
 　I don’t want to start over now.\
-　Even if I did, that would be a far too self-centred wish — one that Hoshizora would have every right to refuse.
+　Even if I did, that would be a far too self-centred wish — one that Sora would have every right to refuse.
 
 And yet I believe there was another path I could have taken.
 
-　I understand Hoshizora’s feelings better than anyone else in this world. We share the same circumstances, should have experienced the same kind of pain — and yet I did to her what was done to me. No... something even worse.
+　I understand Sora’s feelings better than anyone else in this world. We share the same circumstances, should have experienced the same kind of pain — and yet I did to her what was done to me. No... something even worse.
 
 　There is not enough regret in the world for what I've done.
 
@@ -71,16 +71,16 @@ And yet I believe there was another path I could have taken.
 
 “Haa…”\
 “Why are you sighing so deeply?”\
-“I should have engaged with Hoshizora more. As a mother, I haven’t done a single thing for her.”\
+“I should have engaged with Sora more. As a mother, I haven’t done a single thing for her.”\
 “I feel the same way.”
 
 　Saying that, Makoto looked sad too.
 
-“There were plenty of chances. Hoshizora was trying to reach out to us. It was us who ignored her. It’s pathetic. I don’t even feel I have the right to call myself a parent.”
+“There were plenty of chances. Sora was trying to reach out to us. It was us who ignored her. It’s pathetic. I don’t even feel I have the right to call myself a parent.”
 
 　Makoto said this with a wry smile, as if he were exasperated with himself. He’s right. We no longer have the right to say anything to our children.
 
-　—Yet, I want to face Hoshizora once more.
+　—Yet, I want to face Sora once more.
 
 　Not as mother and child, but as one human being facing another. I know this is a selfish wish of mine, one that will never come true.
 

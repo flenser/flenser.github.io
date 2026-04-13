@@ -5,7 +5,7 @@ nav_order: 52
 ---
 Episode 52: A Morning Unlike Any Other
 
-The very person who caused all the commotion and put Hoshizora and Hina-chan through such a hassle was probably the first to go to bed yesterday.
+The very person who caused all the commotion and put Sora and Hina-chan through such a hassle was probably the first to go to bed yesterday.
 
 And right now, she’s still sleeping in my arms.\
 I wonder when she started sleeping like this.
@@ -16,7 +16,7 @@ I thought it would be dangerous if she fell headfirst, so I started sleeping lik
 　True to her name, Hikari is a warm person, both in body and spirit. Living together, she always acts with my best interests in mind and encourages me to keep trying.
 
 　However, we sometimes argue because we’re both too open with each other.\
-　I don’t think that’s a bad thing, but being with Hikari means my emotions fluctuate wildly, which is exhausting; it makes me feel like I did when I was little and spent time with Hoshizora.
+　I don’t think that’s a bad thing, but being with Hikari means my emotions fluctuate wildly, which is exhausting; it makes me feel like I did when I was little and spent time with Sora.
 
 　Up until now, hiding my feelings had been the norm, so clashing with Hikari drains my energy.\
 I’ve come to realise just how exhausting it is to face someone and clash with them.

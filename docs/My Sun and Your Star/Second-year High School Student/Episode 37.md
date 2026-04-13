@@ -82,7 +82,7 @@ Making memories with someone. Doing fun things.
 
 As I was thinking about that, Endo-san peered over my shoulder.
 
-"Takizawa, you've got a proper funny face on there! You look cuter like this, don't you?"
+"Takisawa, you've got a proper funny face on there! You look cuter like this, don't you?"
 
 Endo-san went and pinched my cheek without asking, pulling the corners of my mouth upwards. It annoyed me, so I brushed her hand away firmly and ignored her, heading for the living room.
 
@@ -111,7 +111,7 @@ Leaving the sink area and heading towards the living room, I saw a table laden w
 
 Today, rather than one main dish, there were many different side dishes laid out.
 
-"I didn't know what Takizawa liked to eat, so I thought I'd make a variety and see what you find tasty."
+"I didn't know what Takisawa liked to eat, so I thought I'd make a variety and see what you find tasty."
 
 She doesn't need to know that sort of thing.\
 Why does she go to such unnecessary trouble?
@@ -142,7 +142,7 @@ Everything I put in my mouth was truly delicious.\
 The ginger pork and the meat and potato stew were especially exquisite.
 
 Endo-san looked over at me, looking pleased, and asked,\
-"Takizawa, you like ginger pork and meat and potato stew, don't you? And peppers... you don't like them, do you?"
+"Takisawa, you like ginger pork and meat and potato stew, don't you? And peppers... you don't like them, do you?"
 
 　How did she know?
 

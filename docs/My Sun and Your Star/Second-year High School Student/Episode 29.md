@@ -28,7 +28,7 @@ Suddenly, I remembered talking with Mai the other day.
 
 　＊＊＊
 
-"Hey Hoshizora, if you ever got a partner, what would you want to do together?"\
+"Hey Sora, if you ever got a partner, what would you want to do together?"\
 "What do you mean, 'what'?"\
 "Like, holding hands, or going on dates?"
 
@@ -95,7 +95,7 @@ I loosen Endo-san's tie and undo three buttons on her shirt.
 Looking up at Endo-san's face, she was pulling an incredible expression, her brow furrowed so deeply her eyebrows nearly touched.\
 I thought that face was cuter than the one she wore when hanging out with friends at school.
 
-"You pervert, Takizawa. What are you doing?"
+"You pervert, Takisawa. What are you doing?"
 
 "Just shut up."
 
@@ -106,7 +106,7 @@ The spot where my lips had been pressed was red and bruised.
 　I thought maybe experiencing it myself would help me understand Mai's feelings a little, but I ended up thinking, 'Is that all there is to it?'\
 I felt ashamed of my own actions and bit the mark to drown out that feeling.
 
-"Takizawa, that hurts."
+"Takisawa, that hurts."
 
 "Right. That's enough for today."
 

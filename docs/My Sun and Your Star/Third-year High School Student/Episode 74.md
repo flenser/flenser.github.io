@@ -12,7 +12,7 @@ There’s one event in my high school life that I’d rank among the things I di
 Sports Day…
 
 “Ugh…”\
-“Takizawa, why are you sighing so heavily?”
+“Takisawa, why are you sighing so heavily?”
 
 Endo-san, sitting next to me, looks at me with concern.
 
@@ -35,7 +35,7 @@ It was surprising to hear Mai say that. She seems more like the type who’d pre
 ‘I’m happy with anything, really. Every year, I’ve just entered whatever was left over.’\
 That’s a typical answer from Endo-san, who’s so good at going along with others. I think she should just enter whatever she wants to.
 
-‘What about Hoshizora? Is there anything you’d like to do?’\
+‘What about Sora? Is there anything you’d like to do?’\
 ‘Mai-san, asking me that is just mean, isn’t it?’\
 ‘Ahaha. But how about a bread-eating race or something!’
 
@@ -44,7 +44,7 @@ That was the only event I’d ever thought I might actually be able to take part
 　I’m actually quite fond of sweet bread.\
 Even when I wasn’t particularly interested in food, I could still enjoy sweet bread.
 
-“A bread-eating race sounds just like Takizawa.”
+“A bread-eating race sounds just like Takisawa.”
 
 Endo-san chuckled, sounding rather mocking.
 
@@ -91,7 +91,7 @@ It’s probably quite a high-profile event.
 
 　As expected, Endo-san was laughing at what I’d said.
 
-“The bread-eating race is really conspicuous, isn’t it? But I realised during PE, Takizawa, you’re actually quicker on your feet than I thought.”
+“The bread-eating race is really conspicuous, isn’t it? But I realised during PE, Takisawa, you’re actually quicker on your feet than I thought.”
 
 Endo-san had just said something incredibly rude to me.
 
@@ -123,7 +123,7 @@ Perhaps because I looked so downcast, Endo-san said something to cheer me up.
 Endo-san replied, looking as though she was forcing a smile.\
 I don’t like that expression, so I decided to pull her cheeks.
 
-“Takizawa—my cheek’s coming off!”\
+“Takisawa—my cheek’s coming off!”\
 “Well then, stop making that fake smile.”\
 “Sorry, it’s a habit.”
 
@@ -134,7 +134,7 @@ Then, for some reason, Endo-san pulled on my cheek instead.
 It hurts…
 
 “Endo, that hurts.”\
-“Payback. Takizawa’s cheeks are so smooth and soft, aren’t they?”
+“Payback. Takisawa’s cheeks are so smooth and soft, aren’t they?”
 
 Endo kissed the cheek she was still holding. Remembering what had happened during Golden Week, my face flushed.
 

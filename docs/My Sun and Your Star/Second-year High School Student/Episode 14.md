@@ -83,7 +83,7 @@ The players who had been on the court were hydrating, resting, or having a meeti
 
 Perhaps because I'd been watching too intently, Mai spotted me despite the crowd.
 
-"Hoshizora! You came! Thank you!"\
+"Sora! You came! Thank you!"\
 She waved from the first floor towards the second-floor lobby.\
 I didn't want to draw attention, so I put my finger to my lips, but she waved vigorously without hesitation. I returned the wave, somewhat reluctantly.
 

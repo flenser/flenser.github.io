@@ -9,13 +9,13 @@ After going to watch Endo-san’s retirement match, the summer holidays began st
 
 Miumi-chan’s weekly tutoring job has resumed, but on the other days I’m either at the library or studying for my entrance exams at Endo-san’s house, so it feels as though I’m spending almost all my time with Endo-san. It feels strange to be spending so much time with Endo-san even though it’s the summer holidays.
 
-‘Takizawa, I’m stuck here…’
+‘Takisawa, I’m stuck here…’
 
 　She comes to me like this whenever she’s stuck, and we work through it, but she gets so absorbed in her studies that she hardly takes a break, which makes me a bit worried.
 
 ‘Endo-san, exam preparation is important, but you’ve been studying almost non-stop since you retired, haven’t you? Why don’t you take a breather every now and then?’
 
-‘I’m anxious about my current grades. But you’re right, Takizawa. ‘Right then, we’ll have a sleepover study session at my place this Saturday.’
+‘I’m anxious about my current grades. But you’re right, Takisawa. ‘Right then, we’ll have a sleepover study session at my place this Saturday.’
 
 Huh??
 
@@ -25,9 +25,9 @@ I told her to take a break, yet she’s planning to study for a whole day. I don
 
 Even though I’m speaking in a grumpy tone, Endo-san is all smiles.
 
-‘Just being with you, Takizawa, is my break.’\
+‘Just being with you, Takisawa, is my break.’\
 “I don’t get it.”\
-“Hehe, that slightly flustered look on your face is cute, Takizawa.”
+“Hehe, that slightly flustered look on your face is cute, Takisawa.”
 
 My heart starts pounding at Endo-san’s words. I’m not used to being called cute, so I don’t know how to respond in situations like this.
 
@@ -35,7 +35,7 @@ Lately, being around Endo-san makes me feel like it’s bad for my insides, so I
 
 “My sister’s coming home, and I need to talk to my family about university plans, so it’s a bit difficult for me to stay over.”
 
-“Well then, why don’t you ask Mayo-san to come over also? She said last time she stayed over that she wanted to prepare for the talk with Takizawa's family this summer, so why not use this as a chance to sort that out too?”
+“Well then, why don’t you ask Mayo-san to come over also? She said last time she stayed over that she wanted to prepare for the talk with Takisawa's family this summer, so why not use this as a chance to sort that out too?”
 
 That’s not what I meant.
 
@@ -122,7 +122,7 @@ I don’t want to see or even imagine Endo-san having fun with someone else or d
 
 The darkness swirled around inside me, and my body moved of its own accord.
 
-“—Takizawa?”
+“—Takisawa?”
 
 I think I must have been gripping Endo-san’s arm, who was studying next to me, with quite a lot of force.
 
@@ -140,7 +140,7 @@ That spot turns red, proving that I’m the one who left the mark on her body. I
 
 However, my mood doesn’t lift, so I move down a little and repeat the same thing. As I add another mark nearby, then another, Endo-san finally stops me.
 
-‘Takizawa… that’s too many…’
+‘Takisawa… that’s too many…’
 
 Indeed, there were several red marks around Endo-san’s collarbone.
 
@@ -157,7 +157,7 @@ But today, the fog in my chest showed no sign of lifting.
 
 　Saying that, I did the same thing to the nape of Endo-san’s neck. I thought it would be good if it left a strong, lasting mark.
 
-“Takizawa… it hurts…”
+“Takisawa… it hurts…”
 
 　I had unconsciously bitten the red mark over and over. I think it must have hurt quite a bit, as there were teeth marks left behind. Yet, the distinct red mark left on her neck reassured me.
 
@@ -169,7 +169,7 @@ But today, the fog in my chest showed no sign of lifting.
 　Endo-san is obedient.\
 　She didn’t keep quiet, but she didn’t resist or try to move away from me. I wanted to stay like this forever, but I’d been so caught up in the moment that I’d forgotten to breathe, and it became uncomfortable, so we pulled apart. Endo-san’s expression had turned grim.
 
-“You idiot, Takizawa… If we carry on like this, Mayu-san and Hikari-san will find us, and if they do, those two will definitely ask questions.”
+“You idiot, Takisawa… If we carry on like this, Mayu-san and Hikari-san will find us, and if they do, those two will definitely ask questions.”
 
 　Endo-san looked troubled, as if she disliked the idea. I might be a terrible person, but I thought it would be fine if the red mark was found. Then perhaps Hikari-san wouldn’t get close to Endo-san anymore.
 

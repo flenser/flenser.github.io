@@ -25,7 +25,7 @@ The girl looked startled at me, and the foot that had been dangling came back on
 
 　Only then did I see her face clearly, and I gasped.
 
-It was Takizawa-san.
+It was Takisawa-san.
 
 Why was she doing something like that? Why was she here?
 
@@ -39,7 +39,7 @@ I felt anxious that might be the answer I’d get.
 
 "I like walking along the edge of the roof."
 
-Takizawa-san spoke without meeting my eyes.
+Takisawa-san spoke without meeting my eyes.
 
 It was definitely a lie.
 
@@ -55,7 +55,7 @@ It might sound like pretty words, but I believed that no matter how painful it w
 
 "We'll cross that bridge when we come to it."
 
-Takizawa-san, who always seemed cool and collected, raised her voice slightly. I felt like getting angry myself – wasn't that attitude a bit much, considering how worried I'd been? But tears were streaming down her cheeks.
+Takisawa-san, who always seemed cool and collected, raised her voice slightly. I felt like getting angry myself – wasn't that attitude a bit much, considering how worried I'd been? But tears were streaming down her cheeks.
 
 I knew I shouldn't be thinking such things at a time like this, but her tears were so beautiful I found myself drawn to her.
 
@@ -71,26 +71,26 @@ The next moment, my hand was slapped away.
 
 It was certainly wrong to touch someone's face and wipe their tears without permission while they were crying. But our positions were reversed from that time; I felt drawn into her tears.
 
-　She didn't remember me, but I had once been saved by Takizawa-san.
+　She didn't remember me, but I had once been saved by Takisawa-san.
 
 "Tears..."
 
-Hearing that, Takizawa-san became agitated and tried to flee the scene. I grabbed her hand unconsciously. I couldn't just leave her.
+Hearing that, Takisawa-san became agitated and tried to flee the scene. I grabbed her hand unconsciously. I couldn't just leave her.
 
 Though hurt by her harsh words – "Let go!" and "Don't touch me!" – I felt I couldn't let go of this hand now.
 
-　If I let go now, I’d probably never speak to Takizawa-san again. That’s how it felt.
+　If I let go now, I’d probably never speak to Takisawa-san again. That’s how it felt.
 
 Despite grabbing her arm firmly to stop her, I couldn’t think of a better solution. For now, I searched for something to wipe her tears. All I had in my pocket was a handkerchief.
 
 And it was a precious handkerchief.\
-Something I didn’t want Takizawa-san to see.
+Something I didn’t want Takisawa-san to see.
 
 But there was no alternative, so I handed her the handkerchief.
 
 "If you stay like that, people will start worrying about you. For now, I'm the only one here. Why don't you stay until you've stopped crying? If I'm in the way, I'll leave."
 
-Takizawa-san looked surprised when she saw the handkerchief. Of course she would. It was the one she'd given me.
+Takisawa-san looked surprised when she saw the handkerchief. Of course she would. It was the one she'd given me.
 
 "I'll take that back next time, alright?"
 

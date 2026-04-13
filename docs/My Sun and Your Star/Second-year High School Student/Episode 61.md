@@ -21,7 +21,7 @@ In the end, Endo-san had a regular set meal.
 
 　I realised, somewhat unexpectedly, that Endo-san actually cares about coming across as childish. As I was thinking about this whilst eating, Endo-san reached out her hand.
 
-‘Takizawa, you’ve got a grain of rice on your cheek.’
+‘Takisawa, you’ve got a grain of rice on your cheek.’
 
 Saying that, Endo-san touched my cheek.\
 At my age, I felt embarrassed to have a grain of rice on my cheek, and I felt the heat rise to my face.
@@ -56,7 +56,7 @@ I was just starting to enjoy myself—
 
 She really does resemble a large dog.
 
-‘Takizawa, do you like Labradors?’
+‘Takisawa, do you like Labradors?’
 
 If you asked me if I actually liked them, I wouldn’t say I did. I’d just become vaguely interested in them because they resemble Endo-san. But having just interacted with Gon, I think I do like them.
 
@@ -87,7 +87,7 @@ Before we knew it, we’d seen almost everything at the zoo, and the sky was tur
 
 Endo-san headed straight for the souvenir shop and started putting things like biscuits decorated with animal pictures into her basket.
 
-‘Aren’t you going to buy anything to take home, Takizawa?’
+‘Aren’t you going to buy anything to take home, Takisawa?’
 
 ‘I’m not buying anything.’
 
@@ -117,7 +117,7 @@ Saying that, Endo-san wandered off to another part of the shop.
 
 There, I was left alone with the polar bear keyring that Endo-san had said was cute.
 
-‘I’ve bought loads of souvenirs. I wonder if I should give some to the kids in the club too. Thanks for coming along, Takizawa.’
+‘I’ve bought loads of souvenirs. I wonder if I should give some to the kids in the club too. Thanks for coming along, Takisawa.’
 
 Endo-san looks quite pleased with herself.\
 I feel like I’ve seen a whole different side of Endo-san today.
@@ -161,6 +161,6 @@ Endo-san stared at it for a while, then attached the polar bear to the beige bag
 
 She gazed at the polar bear with such a look of tenderness. She looked just like a child who’d been given something they’d been wanting.
 
-‘Thank you, Takizawa. I’ll treasure this for the rest of my life…’
+‘Thank you, Takisawa. I’ll treasure this for the rest of my life…’
 
 Thinking to myself that it wasn’t really anything that grand, we left the zoo, reluctant to leave.

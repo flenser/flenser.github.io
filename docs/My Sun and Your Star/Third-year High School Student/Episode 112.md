@@ -7,7 +7,7 @@ Episode 112: The Christmas Party
 
 In the end, as Mai had suggested holding the Christmas party at her place, it was decided that the three of us would celebrate at her home.
 
-‘Welcome, Hoshizora! Come on in! Hina’s already here, too.’
+‘Welcome, Sora! Come on in! Hina’s already here, too.’
 
 Encouraged by Mai’s cheerful voice, I stepped inside.
 
@@ -31,7 +31,7 @@ With a smile, Mai’s mother returned to the living room.
 
 I headed to the room as Mai had told me. When I opened the door, Endo-san was there.
 
-‘Takizawa, it’s been a whole day, hasn’t it?’\
+‘Takisawa, it’s been a whole day, hasn’t it?’\
 ‘A whole day.’
 
 　When I repeated the same words back to her, Endo-san looked delighted. I never quite understand what amuses her; I can never quite figure out her sense of humour.
@@ -70,16 +70,16 @@ Endo-san immediately rubbed some onto her hands and brought them close to my nos
 
 　It had a citrusy scent that made my heart feel light and airy.
 
-‘What does Takizawa’s smell like?’
+‘What does Takisawa’s smell like?’
 
 　Endo-san grabbed my arm without asking and brought it close to her face. I’m always exasperated by how pushy Endo-san is.
 
-‘Citrus, eh? This is nice too. I reckon Takizawa would probably sniff it and think it smells like something tasty.’\
+‘Citrus, eh? This is nice too. I reckon Takisawa would probably sniff it and think it smells like something tasty.’\
 ‘That’s true.’
 
 　The two of them laughed together with a little hehe, and I wasn't pleased about it. Do they have me mistaken for some kind of glutton?
 
-“Come on, Takizawa, don’t pull a face like that. Right, my turn now.”
+“Come on, Takisawa, don’t pull a face like that. Right, my turn now.”
 
 Next, Endo-san handed us a present. When we opened it, there were about three stylish bath bombs inside.
 
@@ -95,7 +95,7 @@ There was just one scent that made my chest tighten. It was the same floral frag
 
 　It’s not as if I’ve ever paid much attention to other people’s smells before, but Endo-san is always so close that my nose picks it up whether I like it or not.
 
-‘Hoshizora, you really like that scented bath bomb, don’t you?’
+‘Sora, you really like that scented bath bomb, don’t you?’
 
 　When Mai said that offhand, I hurriedly hid the bath bomb inside my bag. I panicked, wondering if Endo-san had seen it.
 
@@ -103,26 +103,26 @@ There was just one scent that made my chest tighten. It was the same floral frag
 
 　Saying that, I didn’t want the topic to be brought up again, so I handed the presents to the two of them as well.
 
-‘I think I was looking forward to Hoshizora’s present the most.’\
+‘I think I was looking forward to Sora’s present the most.’\
 ‘I know… But Mai, don’t get your hopes up.’\
-‘Why not? Hina always tries to hog Hoshizora all to herself.’\
+‘Why not? Hina always tries to hog Sora all to herself.’\
 ‘Shut up.’
 
 The two of them started their usual squabble again, but I wanted to ask why she’d been looking forward to it. They were talking so animatedly that I couldn’t get a word in, though…
 
 　Even if I asked why, I couldn’t change what I’d bought at this late stage, so I gave up and pressed the presents firmly against their chests. They eagerly set about opening the bags.
 
-“C-cute… I can’t believe Hoshizora chose a present like this…”
+“C-cute… I can’t believe Sora chose a present like this…”
 
 　Mai said it in a joking tone.\
 　Endo-san was grinning as she looked at the present.
 
 ‘I thought a make-up pouch might be nice, as you both wear make-up. You’re going to be university students, after all.’\
-‘Takizawa, I always think this, but you’ve got great taste in presents, don’t you?’
+‘Takisawa, I always think this, but you’ve got great taste in presents, don’t you?’
 
 　Endo-san said it in a genuinely serious tone, and the embarrassment of it made my eyes unable to look at anything but the floor.
 
-‘“Always”? Have you received other things from Hoshizora before?’
+‘“Always”? Have you received other things from Sora before?’
 
 　Mai was speaking in the kind of tone she uses when she’s in a mischievous mood.
 
@@ -142,7 +142,7 @@ The Christmas party ended on a high note, and we set off for home.
 
 “That was fun today, wasn’t it?”\
 “Yeah.”\
-“Takizawa, thanks for the pouch.”\
+“Takisawa, thanks for the pouch.”\
 “Yeah.”\
 “I’ll use it for the rest of my life.”\
 “Don’t be silly. Just throw it away if it breaks.”\
@@ -159,7 +159,7 @@ The Christmas party ended on a high note, and we set off for home.
 
 　When I said that, Endo-san looked dejected. It was the sort of reaction a dog might have when it thought it was going to get a treat but didn’t.
 
-“Takizawa, what are you doing over the New Year holidays?”\
+“Takisawa, what are you doing over the New Year holidays?”\
 “Studying.”\
 “And apart from that?”\
 “Nothing. What about you, Endo-san?”\

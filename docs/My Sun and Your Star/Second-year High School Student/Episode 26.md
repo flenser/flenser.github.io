@@ -5,9 +5,9 @@ nav_order: 26
 ---
 Episode 26: Cloudy Skies
 
-For once, Takizawa had no cram school, yet she turned down our study session.
+For once, Takisawa had no cram school, yet she turned down our study session.
 
-Takizawa attends cram school on Mondays, Wednesdays, and Fridays, and I usually get her to tutor me on the other days.
+Takisawa attends cram school on Mondays, Wednesdays, and Fridays, and I usually get her to tutor me on the other days.
 
 Today is Saturday.
 
@@ -19,7 +19,7 @@ I asked if she was going out with Mai, but she said no. When I pressed her about
 
 Realising I wouldn't see her after expecting to meet her made my mood sink, and I let out a muttered complaint.
 
-Why did I even want to see Takizawa in the first place? It was obvious she'd do something unpleasant...
+Why did I even want to see Takisawa in the first place? It was obvious she'd do something unpleasant...
 
 　I flung my phone, which wasn't replying, onto the bed.
 
@@ -41,37 +41,37 @@ As we wandered around, a cute café caught my eye.
 
 Sitting there was someone I knew.
 
-　Takizawa...?
+　Takisawa...?
 
-Sitting next to Takizawa was a beautiful woman with short hair.
+Sitting next to Takisawa was a beautiful woman with short hair.
 
-They seemed very close, with a different kind of distance than when she was with Mai. Takizawa would normally never go to such a stylish, cute café. Yet there she was, wearing a skirt and a mature blouse, listening intently to the woman beside her.
+They seemed very close, with a different kind of distance than when she was with Mai. Takisawa would normally never go to such a stylish, cute café. Yet there she was, wearing a skirt and a mature blouse, listening intently to the woman beside her.
 
 That sight made my chest ache sharply.
 
-　In front of Mai, Takizawa smiles and adapts to some extent, but in front of me, she doesn't hold back at all. She says cruel things without a second thought, even when she knows it hurts.
+　In front of Mai, Takisawa smiles and adapts to some extent, but in front of me, she doesn't hold back at all. She says cruel things without a second thought, even when she knows it hurts.
 
 I knew she was cruel and cold, but I'd foolishly assumed it was something special, directed only at me.
 
-But now, the emotion Takizawa seems to be directing at the woman beside her looks different from the one she shows Mai or me.
+But now, the emotion Takisawa seems to be directing at the woman beside her looks different from the one she shows Mai or me.
 
-　They seem very close; Takizawa is the one clinging to the woman beside her.
+　They seem very close; Takisawa is the one clinging to the woman beside her.
 
 I'd invited my friends out to clear the fog in my chest, but instead, an unshakeable haze settled over me. I gently stroked my chest.
 
 Today isn't a very good day.
 
-In the end, I spent the whole time thinking about Takizawa, and our time together ended. We parted ways.
+In the end, I spent the whole time thinking about Takisawa, and our time together ended. We parted ways.
 
 　Darkness fell, and stillness descended.
 
-The walk home wasn't that far, yet the path felt twice as long as usual. I think I felt this way the day I first met Takizawa in the park too.
+The walk home wasn't that far, yet the path felt twice as long as usual. I think I felt this way the day I first met Takisawa in the park too.
 
-Suddenly, I remembered Takizawa from that time and the night sky visible behind us.
+Suddenly, I remembered Takisawa from that time and the night sky visible behind us.
 
 It really was a beautiful night.
 
-And Takizawa's beautiful eyes and beautiful black hair, which didn't pale in comparison, remain unforgettable to this day.
+And Takisawa's beautiful eyes and beautiful black hair, which didn't pale in comparison, remain unforgettable to this day.
 
 　Recalling that, I looked up at the sky, where a starry expanse similar to that night stretched out.
 
@@ -89,9 +89,9 @@ They say stars guide you when lost, but even without being lost, they shone so b
 
 I found myself murmuring her name without realising.
 
-The fog that had enveloped me just moments ago vanished instantly from within me, leaving only the overwhelming desire to see Takizawa.
+The fog that had enveloped me just moments ago vanished instantly from within me, leaving only the overwhelming desire to see Takisawa.
 
-I'll stop by the convenience store, grab my favourite drink, contact Takizawa, and arrange to meet.
+I'll stop by the convenience store, grab my favourite drink, contact Takisawa, and arrange to meet.
 
 　On my way home, as I reached for my usual orange juice at the convenience store, our hands collided.
 
@@ -109,26 +109,26 @@ I want to see her again tomorrow.
 
 "Can we have a study session tomorrow?"
 
-Takizawa gave a small nod.
+Takisawa gave a small nod.
 
 If I stayed here any longer, I'd probably start wanting to ask about that woman from earlier, so I decided to leave.
 
 　The orange juice beeped through the convenience store till.
 
-Thanks to this orange juice, I got to see Takizawa today.
+Thanks to this orange juice, I got to see Takisawa today.
 
 It felt silly to thank an orange juice, but I silently said "thank you" to it.
 
 As I was leaving the shop, I remembered the night sky I'd seen earlier.
 
-If only I could honestly say, "You can see so many beautiful stars, like Takizawa," then perhaps the mist in my chest would lift.
+If only I could honestly say, "You can see so many beautiful stars, like Takisawa," then perhaps the mist in my chest would lift.
 
 　I possess neither the courage nor the confidence for that now.
 
-I simply wished to share this beautiful view with Takizawa.
+I simply wished to share this beautiful view with Takisawa.
 
 "The stars are really clear tonight, you should take a look."
 
-My feelings wouldn't reach her, and Takizawa looked at me as though I were something strange.
+My feelings wouldn't reach her, and Takisawa looked at me as though I were something strange.
 
 I stepped outside the convenience store, hoping that look might clear up even a little once we were outside.

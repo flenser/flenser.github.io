@@ -55,13 +55,13 @@ When I look at Endo-san’s face, she looks a little sulky.\
 
 Endo-san let go of my hand and placed hers on my face.
 
-‘Takizawa, you really are beautiful, aren’t you? Your features are so symmetrical; you’re the picture of beauty.’
+‘Takisawa, you really are beautiful, aren’t you? Your features are so symmetrical; you’re the picture of beauty.’
 
 Endo-san always blurts out embarrassing things like that. No one’s ever complimented me on my face before, so I felt embarrassed and hurried out from under the duvet.
 
 　 Even though I’d managed to get away, Endo-san followed me, hugging me from behind and teasing me in my ear.
 
-‘Takizawa, your ears are bright red, you’re so cute.’
+‘Takisawa, your ears are bright red, you’re so cute.’
 
 Endo-san teases me like this from time to time.
 
@@ -110,7 +110,7 @@ It’s true we’d agreed not to speak to each other at school. Usually, as I do
 
 With no other choice, I ignored Endo-san and walked briskly on.
 
-‘Takizawa, let’s walk and talk.’
+‘Takisawa, let’s walk and talk.’
 
 Endo-san followed me, grumbling.
 
@@ -135,13 +135,13 @@ I come up with a flimsy excuse. In this situation, it probably doesn’t even co
 
 With Mai’s words, we started walking. Being with these two makes us stand out so much that I hold my breath and pretend to listen to their conversation.
 
-“Come to think of it, Hoshizora, do you have plans for Christmas this year? We said we’d have a Christmas party together last year, but I couldn’t make it because of an urgent family matter, so I’d really like to do it this year!”
+“Come to think of it, Sora, do you have plans for Christmas this year? We said we’d have a Christmas party together last year, but I couldn’t make it because of an urgent family matter, so I’d really like to do it this year!”
 
 What should I do… If I say I have plans, she’ll ask if it’s with a boyfriend, and there’s no way I could ever tell her I’ve promised to spend it with Endo-san.
 
 I racked my brains, trying to figure out the right answer.
 
-‘I’m spending Christmas with Takizawa this year.’\
+‘I’m spending Christmas with Takisawa this year.’\
 ‘Eh, Hina?’\
 ‘Yeah.’
 
@@ -170,7 +170,7 @@ Whilst Mai is rejoicing with unprecedented enthusiasm, Endo-san isn’t smiling 
 
 　Endo was already at the convenience store before me and came running over, looking delighted.
 
-‘I’d like you to help me with my studies when we get home. There was something I didn’t understand in class today. I can’t make sense of the teacher’s explanation, but when you explain it, Takizawa, it’s so clear I get it straight away.’
+‘I’d like you to help me with my studies when we get home. There was something I didn’t understand in class today. I can’t make sense of the teacher’s explanation, but when you explain it, Takisawa, it’s so clear I get it straight away.’
 
 Saying that, Endo-san walked ahead of me.
 

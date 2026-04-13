@@ -7,26 +7,26 @@ Episode 105: My Birthday (2)
 
 I got off at a station about three stops away from the one nearest my home. The ticket gates were unmanned, and as it was just past midday, there was no one around.
 
-Takizawa had been following me in silence ever since we set off.
+Takisawa had been following me in silence ever since we set off.
 
 Her face, which had been smiling at the aquarium, had returned to its usual serious expression.
 
-We walked along a road dotted with rice paddies and the occasional detached house, with hardly anyone else in sight. I glance over at Takizawa, who looks rather puzzled.
+We walked along a road dotted with rice paddies and the occasional detached house, with hardly anyone else in sight. I glance over at Takisawa, who looks rather puzzled.
 
   And no wonder.
 
   I haven’t told her where we’re going, so it must be a mystery to her why I’ve brought her to such a deserted place.
 
-“Takizawa, could you wait here for a moment? There’s something I’d like to buy.”\
+“Takisawa, could you wait here for a moment? There’s something I’d like to buy.”\
 “Right.”
 
   I pop into a small, cosy florist’s shop situated along the straight road.
 
-  Takizawa waits quietly outside.
+  Takisawa waits quietly outside.
 
-　Takizawa is being very obedient today.
+　Takisawa is being very obedient today.
 
-The thought that I might never see Takizawa like this again makes me feel a little sad and amused, and a smile slips out.
+The thought that I might never see Takisawa like this again makes me feel a little sad and amused, and a smile slips out.
 
 ‘Hello, Hashinuma-san. The usual, please?’\
 ‘Oh, Hina-chan. I was expecting you today and was waiting for you. But isn’t this unusual? You usually come early in the morning, don’t you?’
@@ -55,29 +55,29 @@ Hashinuma-san runs the only florist’s in the neighbourhood; she’s a very fri
 “Sorry to keep you waiting.”\
 “It’s fine.”
 
-　With the florist’s behind me, I set off. After walking alongside Takizawa for about fifteen minutes, we arrived at a fairly large temple.
+　With the florist’s behind me, I set off. After walking alongside Takisawa for about fifteen minutes, we arrived at a fairly large temple.
 
-　Takizawa, who had been silent the whole time, had her eyes and mouth wide open.
+　Takisawa, who had been silent the whole time, had her eyes and mouth wide open.
 
 “The person you wanted to meet, Endo-san…”\
 “Yeah. Sorry for bringing you here without saying anything. Every year on this day, I come to visit my mum and dad.”
 
-　I filled a bucket with water and placed a small bowl inside it, all the while chatting with Takizawa.
+　I filled a bucket with water and placed a small bowl inside it, all the while chatting with Takisawa.
 
-　As I started walking, Takizawa snatched the bucket from behind me.
+　As I started walking, Takisawa snatched the bucket from behind me.
 
-‘It’s fine, Takizawa. It’s heavy, isn’t it?’\
+‘It’s fine, Takisawa. It’s heavy, isn’t it?’\
 ‘Where is it?’
 
-　Takizawa, who didn’t know the way, was walking ahead. I broke into a light jog to catch up with her.
+　Takisawa, who didn’t know the way, was walking ahead. I broke into a light jog to catch up with her.
 
 　My father and mother are buried a little way up the hill.
 
-　Summer was over, but the temperature was still high, and sweat was dripping down my face. Takizawa, carrying the heavy bucket, looked to be having an even harder time.
+　Summer was over, but the temperature was still high, and sweat was dripping down my face. Takisawa, carrying the heavy bucket, looked to be having an even harder time.
 
 ‘It’s here—’
 
-　I swept and polished around the grave and placed a bouquet of flowers there. Takizawa helped me without saying a word.
+　I swept and polished around the grave and placed a bouquet of flowers there. Takisawa helped me without saying a word.
 
 ‘I’ve got this strange obsession with doing it on this particular day… I’m sorry for dragging you along.’
 
@@ -87,7 +87,7 @@ Hashinuma-san runs the only florist’s in the neighbourhood; she’s a very fri
 
 “It’s fine. It’s just that I’d prefer you to let me know about things like this in advance. I’d have liked to prepare the offerings properly.”
 
-　Takizawa lit the incense I’d brought out and pressed her hands together in prayer. I really love that kind, gentle side of her.
+　Takisawa lit the incense I’d brought out and pressed her hands together in prayer. I really love that kind, gentle side of her.
 
 　I placed my incense on the altar and pressed my hands together too.
 
@@ -100,7 +100,7 @@ Mum and Dad, how are you both?
 
 　There’s someone I’d like you both to meet, so I’ve brought her along.
 
-　Takizawa Hoshizora
+　Takisawa Sora
 
 　She’s a classmate of mine, and I’m in love with her.
 
@@ -130,23 +130,23 @@ I wanted to tell them these words whilst they were still here.
 
 The emotions inside me overflowed so much that I couldn’t hold them back, no matter how hard I tried.
 
-As I struggled to breathe, Takizawa’s scent drifted gently into my nostrils. Takizawa held me tightly yet gently, so I ended up burying my face in her shoulder.
+As I struggled to breathe, Takisawa’s scent drifted gently into my nostrils. Takisawa held me tightly yet gently, so I ended up burying my face in her shoulder.
 
 ‘T-tears…… I’ll get your clothes wet……’
 
-　I tried to pull away from Takizawa, but she wouldn’t let me. Her warmth wrapped softly around me, making my chest feel all warm and cosy.
+　I tried to pull away from Takisawa, but she wouldn’t let me. Her warmth wrapped softly around me, making my chest feel all warm and cosy.
 
-　Takizawa said nothing, but kept holding me close.
+　Takisawa said nothing, but kept holding me close.
 
 　The sunset turned a deep red, and the sun was about to set.
 
-　My emotions had settled down by then, and although I didn’t want to let go, I released Takizawa.
+　My emotions had settled down by then, and although I didn’t want to let go, I released Takisawa.
 
 “Sorry. I’m fine now.”
 
-　I don’t know what she thought of my words, but Takizawa picked up her things and started walking.
+　I don’t know what she thought of my words, but Takisawa picked up her things and started walking.
 
-　The fabric on Takizawa’s right shoulder had changed colour.
+　The fabric on Takisawa’s right shoulder had changed colour.
 
 　So as not to be left behind, I said a final goodbye and ran after her.
 

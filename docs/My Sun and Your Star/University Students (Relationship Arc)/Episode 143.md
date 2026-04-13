@@ -59,7 +59,7 @@ When spring came, it would be a year since Endo-san and I had started living tog
 Since I began spending time with Endo-san, it was as though something in me that had stopped moving began turning again — time flew by. I almost felt a faint loneliness at how quickly the months were passing.
 
 "Endo-san, do you have some kind of magic that fast-forwards time?"\
-"What? Takizawa, you say inexplicable things sometimes."
+"What? Takisawa, you say inexplicable things sometimes."
 
 Endo-san said it in a completely serious tone, and a small laugh escaped me.
 
@@ -67,7 +67,7 @@ She was right.
 
 When did I become such a strange person. A strange me, right here beside Endo-san.
 
-"Takizawa smiles more now, doesn't she."\
+"Takisawa smiles more now, doesn't she."\
 "Do I?"\
 "Yeah. I'm happy."\
 "That's thanks to you, Endo-san..."\
@@ -84,7 +84,7 @@ Whether because we'd been living together for so long, or because I'd been makin
 There was so much that even words couldn't make clear — but I found myself wanting to believe that with Endo-san, things that didn't need words were growing between us.
 
 "Shall we go here?"\
-"Takizawa, you're not just going along with what I want, are you?"\
+"Takisawa, you're not just going along with what I want, are you?"\
 "I thought this place looked good."
 
 I wasn't the type to go out of my way for someone else — and yet being made to feel that way by her words, mine came out a little sharper than intended.\
@@ -111,7 +111,7 @@ Just as I was about to ask what was wrong, she cut in first.
 
 "The woman at the soba shop was beautiful, wasn't she."\
 "Yeah."\
-"...Does Takizawa have a type? In terms of looks?"\
+"...Does Takisawa have a type? In terms of looks?"\
 "A type?"\
 "Yeah. Like a favourite celebrity."\
 "Hmm."
@@ -132,7 +132,7 @@ A sound I'd never heard from her before — something almost less than human, mo
 Endo-san went quiet again.\
 Well — she was saying something, but only in little murmurs I couldn't make out.
 
-"Takizawa really does rack up crimes without even trying."\
+"Takisawa really does rack up crimes without even trying."\
 "Crimes...? I haven't done anything wrong."\
 "One day you'll be arrested."\
 "Pardon?"

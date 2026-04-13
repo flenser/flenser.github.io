@@ -7,7 +7,7 @@ Episode 80: My Cute Junior
 
 A first-year student has joined the club, a cheeky little junior who’s brilliant at basketball and has a cute face.
 
-Apparently, she used to be one of Hoshizora’s private tutoring students, so she often comes to see her. But the frequency is a bit odd, and behind that look she gives Hoshizora, there must surely be…
+Apparently, she used to be one of Sora’s private tutoring students, so she often comes to see her. But the frequency is a bit odd, and behind that look she gives Sora, there must surely be…
 
 　That cute junior is really dedicated to her club activities.\
 She gave it her all during the prefectural high school championships qualifiers too.
@@ -22,7 +22,7 @@ Amidst the crowds of people coming and going in the shopping centre, I spotted h
 
 I really did think I’d come early because I was looking forward to it, though.
 
-‘Do Hoshizora-san and Hina-senpai have to put up with this sort of thing every time?’
+‘Do Sora-san and Hina-senpai have to put up with this sort of thing every time?’
 
 Miumi-chan seems a bit annoyed.\
 Being late is one of my good points, though… no, actually, it’s a massive flaw.
@@ -39,7 +39,7 @@ When I checked the price, it turned out to be a parfait costing 2,500 yen each. 
 　Perhaps because we’d been having such a silly conversation, Miumi-chan started to get quite angry. However, I didn’t let it bother me in the slightest and started shopping.
 
 “Calling you ‘-chan’ is a bit of a hassle, so I’ll just use your first name. Miumi, do you have any particular likes?”\
-“I suppose my favourite person is Hoshizora-san.”\
+“I suppose my favourite person is Sora-san.”\
 “You’re quite devoted, aren’t you? What is it about her that you like so much?”
 
 I’m not sure why, but I was interested in Miumi, so I asked.
@@ -50,12 +50,12 @@ I’m not sure why, but I was interested in Miumi, so I asked.
 “I’m listening properly. Is that the romantic kind of ‘like’?”\
 “It was, until a little while ago.”\
 “Is it different now?”\
-“Because the person who’ll make Hoshizora-san happy is already right there beside her.”
+“Because the person who’ll make Sora-san happy is already right there beside her.”
 
 　Ahaha, Miumi gave a wry smile and looked rather pained.
 
 ‘What about the option of not giving up, even so?’\
-‘I don’t have the confidence that I could make Hoshizora-san happier than Hina-senpai.’\
+‘I don’t have the confidence that I could make Sora-san happier than Hina-senpai.’\
 ‘Well then, first of all, Miumi needs to be happy herself.’
 
 I fixed my gaze firmly on her.\
@@ -72,7 +72,7 @@ Ever since I started thinking that way, I’ve started paying more attention to 
 
 　It’s true that, as time went on, Miumi gradually became someone I couldn’t ignore. Perhaps she’s like a little sister to me.
 
-So, I was surprised when she said she was going to compete against my friend Hina, and it was painful to see the two of them talking about Hoshizora. I can’t just leave either of them to their own devices.\
+So, I was surprised when she said she was going to compete against my friend Hina, and it was painful to see the two of them talking about Sora. I can’t just leave either of them to their own devices.\
 I can’t bear to see the pained expressions on the faces of my important teammates.
 
 　When we entered the restaurant, Miumi’s eyes lit up as she looked at the menu. Seeing her dithering over whether to choose this or that struck me as still very childlike and cute.
@@ -118,7 +118,7 @@ My next words got a bit stuck in my throat.
 
 She looked completely baffled. No wonder. Even I didn’t quite understand what I’d just said myself.
 
-Still, I reckon I can make her smile and keep her happy better than if she were with Hoshizora.
+Still, I reckon I can make her smile and keep her happy better than if she were with Sora.
 
 “Do you think I like you in that sort of way, Mai-senpai? I don’t feel that way at all…”
 

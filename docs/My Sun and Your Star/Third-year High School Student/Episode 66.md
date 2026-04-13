@@ -20,7 +20,7 @@ As I approach the school, I see more and more boys and girls in the same uniform
 
 “Yoo-hoo! Long time no see! Did you have a good spring break?”\
 “Yeah, I’m fine.”\
-“I was worried you might be feeling a bit down, Hoshizora.”
+“I was worried you might be feeling a bit down, Sora.”
 
 Mai doesn’t care about the people around us; she gives me a big, tight hug.
 
@@ -35,14 +35,14 @@ But this year is a little different.
 
 　There’s a part of me, a bit of a fool, that wonders if school life would be a bit more fun if I ended up in the same class as Endo-san…
 
-“Hoshizora? Aren’t you daydreaming a bit too much?”\
+“Sora? Aren’t you daydreaming a bit too much?”\
 Mai’s voice snapped me back to reality.
 
 “It’d be nice if we were in the same class.”\
 I tried to match Mai’s high spirits as best I could.\
 We walked through the school we’d attended for the past two years, getting ready to head to our new classroom. The class lists were posted in front of the entrance.
 
-‘I’ll go and check Class 5 to see if Hoshizora and my names are there, so you go and check Class 1!’\
+‘I’ll go and check Class 5 to see if Sora and my names are there, so you go and check Class 1!’\
 ‘Right—’
 
 Mai scurried off in the opposite direction to me.
@@ -71,7 +71,7 @@ My heart was pounding loudly, as if trying to tell me something.
 
 Suddenly, I was embraced from behind, and my heart began to beat even faster.
 
-‘Takizawa, we’re in the same class, aren’t we?’
+‘Takisawa, we’re in the same class, aren’t we?’
 
 Endo-san looked at me with a smile that couldn’t have been any happier.
 
@@ -81,7 +81,7 @@ I pushed Endo away with such force that it felt like I was shoving her.
 
 I looked at the class list again, and there was my name.
 
-〈Takizawa Sora〉
+〈Takisawa Sora〉
 
 I’m in the same class as Endo.
 
@@ -106,7 +106,7 @@ Endo-san looks cute no matter what expression she’s wearing. I’m always amaz
 
 　After that conversation, as the three of us headed towards the classroom, Mai asked a pointed question.
 
-‘Come to think of it, why are you two so close, Hoshizora and Hina?’
+‘Come to think of it, why are you two so close, Sora and Hina?’
 
 Since we’d agreed not to interact at school in our second year, so it was hardly surprising that Mai would wonder. While I was thinking what would be the safest answer to give, Endo-san smoothly answered.
 
@@ -114,7 +114,7 @@ Since we’d agreed not to interact at school in our second year, so it was hard
 
 I think Endo-san is amazing for being so composed in situations like this.
 
-“So that’s why Hina’s grades shot up in her second year! Hoshizora, you’re amazing!”\
+“So that’s why Hina’s grades shot up in her second year! Sora, you’re amazing!”\
 “It’s just because Endo-san studied hard, isn’t it?”
 
 Just as I was relieved that Mai hadn’t latched onto the conversation any further, we arrived at the classroom.\
@@ -131,7 +131,7 @@ Mai says this with a genuinely delighted expression on her face.
 I glanced over to see Endo-san, who wasn’t just smiling, she was grinning.
 
 ‘What?’\
-‘Oh, nothing. I just thought it was lovely that I get to see Takizawa’s profile during lessons too.’\
+‘Oh, nothing. I just thought it was lovely that I get to see Takisawa’s profile during lessons too.’\
 ‘Are you daft? Concentrate on the lesson.’\
 ‘That sounds lovely! Let me join in too!’
 

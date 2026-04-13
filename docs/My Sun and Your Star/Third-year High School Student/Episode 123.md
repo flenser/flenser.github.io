@@ -71,7 +71,7 @@ I’d taken a similar photo on the day of the entrance ceremony. I don’t even 
 
 The moment I heard those words, my heart began to pound. It wasn’t as if she’d said it about me, exactly. It was just that, on the day of the entrance ceremony, I’d thought those buds looked just like me, and hearing them praised made my heart flutter with joy.
 
-“Anyway, Takizawa, you were taking photos of the cherry blossoms under that tree on the day of the entrance ceremony, weren’t you?”
+“Anyway, Takisawa, you were taking photos of the cherry blossoms under that tree on the day of the entrance ceremony, weren’t you?”
 
 My heart was beating faster than before, pounding through my whole body. So Endo-san had been looking at me that day…
 
@@ -81,7 +81,7 @@ I wanted to ask her why she’d been looking at me that day. But I simply didn�
 
 It might be the most disappointed I’ve felt about reverting to my usual self.
 
-‘I see… That day, I spotted Takizawa right here, you know?’
+‘I see… That day, I spotted Takisawa right here, you know?’
 
 Endo-san speaks cheerfully.
 

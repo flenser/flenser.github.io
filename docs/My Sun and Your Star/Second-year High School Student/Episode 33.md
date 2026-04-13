@@ -18,7 +18,7 @@ I just couldn't stand being at home.
 
 Endo-san has loads of friends, so why on earth would she want to go to a festival with me? I couldn't stop dwelling on such trivial things.
 
-"Takizawa, you're already here?"\
+"Takisawa, you're already here?"\
 I heard Endo-san's voice.
 
 I looked up to see Endo-san standing there in her yukata.
