@@ -10,7 +10,7 @@ has_children: true
 
 A workplace yuri about a complicated office worker who gets swept up by a junior colleague whose love runs just a little too deep.
 
-"Are you listening? Hiyori-senpai. I mean it this time."
+"Are you listening? Hiito-senpai. I mean it this time."
 
 I keep choosing colourless and transparent — and yet your colour bleeds into me, spreading, seeping in.\
 Surely your colour would shine more brilliantly on someone else's canvas.
