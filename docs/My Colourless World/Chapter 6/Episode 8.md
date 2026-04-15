@@ -1,6 +1,7 @@
 ---
 parent: "At a Walking Pace"
 title: "Episode 8"
+nav_order: 8
 ---
 Episode 8
 

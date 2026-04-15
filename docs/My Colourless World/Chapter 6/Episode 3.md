@@ -1,6 +1,7 @@
 ---
 parent: "At a Walking Pace"
 title: "Episode 3"
+nav_order: 3
 ---
 Episode 3
 
