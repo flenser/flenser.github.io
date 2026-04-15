@@ -51,7 +51,7 @@ That’s not it. Well, in a way, perhaps I am feeling a bit queasy.
 
 My finger, pointing at her, trembled.
 
-“I’ve just had a shower, so of course I am. To be honest, I only want to show you my perfect side, but I’ll have to show you this eventually anyway. So I’ve steeled myself to show you my bare face.”
+“I’ve just had a shower, so of course I am. To be honest, I only want to show you my perfect side, but I’ll have to show you this eventually anyway. This is my bare face. I'm committed..”
 
 She puffed out her chest confidently. Perhaps because her nightdress was so thin, her curves were more pronounced than usual.
 
@@ -115,7 +115,7 @@ The wet sound that had clung to my ear comes flooding back.
 
 She’d definitely said in the past that she’d ‘never force herself on anyone’, so if I just stay firm… I’ll be fine.
 
-“Right, right, I get it. You’re the type who values the atmosphere, aren’t you?”
+“Right, right, I get it. You’re the type who gets swept up by the moment, aren’t you?”
 
 “That’s not it…”
 
@@ -131,7 +131,7 @@ It’s just… I don’t think they’re something I should be showing off in pu
 
 “I don’t wear much make-up to begin with, so I don’t think it makes much difference, but I do look younger without it. And the clothes fit quite well, too.”
 
-“Hmm. To be honest, it’s rather sexy. I want to touch you all over.”
+“Hmm. Honestly, you look dangerously cute. I want to touch you everywhere.”
 
 “Oh…”
 
@@ -161,6 +161,6 @@ It feels so natural to be spending time like this now, but it’s only been a we
 
 　I wonder what I would think if I, the person who spent years running away, terrified of the pain, were to see this room now.
 
-To be honest, there’s a part of me that’s really enjoying this right now. At the same time, I feel that if I were to lose this happy time, I’d never recover. I suppose if that moment came, I’d truly fall apart.
+To be honest, there’s a part of me that’s really enjoying this right now. At the same time, I feel that if I were to lose this happy time, I’d never recover. I think I would really break, completely, if that happened.
 
-I wonder if she’ll accept me, even in this fragile state.
+I wonder if she’ll accept me, even someone already half-broken like me.

@@ -21,9 +21,9 @@ My hand reaches for the tablet to order another, but it’s grabbed.
 
 “Ah…”
 
-The tablet has been taken away from me. I stare at her with a glum look.
+The tablet has been taken away from me. I give her a sulky stare.
 
-‘Sorry, I’ve got my hands full too. I misjudged your pace.’
+‘Sorry, I was a bit overwhelmed myself. I misjudged your pace.’
 
 With a wry smile, as if in contrition, she strokes my head with the hand not holding the tablet.
 
@@ -35,7 +35,7 @@ Even though it’s low-alcohol, it was more than enough for me. I’ve never bee
 
 “Senpai, please don’t drink in front of anyone else but me from now on… I get worried.”
 
-A voice, sounding exasperated, drifts in from afar. She’s not my girlfriend, so I don’t think I need to listen to Seriha.
+A voice, sounding exasperated, drifts in from afar. She’s not my girlfriend, so I don’t have to do what she says.
 
 ‘I’m not drunk… I’m just sleepy. I’m not going to throw up or anything… I’m fine.’
 
@@ -109,4 +109,4 @@ Going home… Probably to Seriha’s place.
 
 I wish I hadn’t sobered up.
 
-As time passed, the drunkenness faded, but I found myself remembering the heat radiating from her as if we’d swapped places. Feeling a creeping sense of unease, I walked along the same path I’d taken a few days earlier, accompanied by the night breeze.
+As time passed, the drunkenness faded, but I found myself remembering the heat radiating from her as though it had taken the alcohol's place. Feeling a crawling sensation across my skin, I walked along the same path I’d taken a few days earlier, accompanied by the night breeze.

@@ -11,7 +11,7 @@ My arm, stretched out towards the tablet, is grabbed.
 
 ‘Your hands are so small and cute, Senpai.’
 
-I feel as though her gaze is even more fixed than before. As if he’s being swayed by her own passion… or something like that.
+I feel as though her gaze is even more fixed than before. As if carried away by her own heat… or something like that.
 
 　She squeezes and presses my palm. She’s playing with it, looking quite pleased with herself.
 
@@ -107,13 +107,13 @@ My ragged breathing has settled down considerably. My throat is parched.
 
 Suppressing my trembling hands, I reach for the glass and take a long swig. The sweetness passing through my throat connects with the scene from a few seconds ago, and my face grows hot again.
 
-“You were talking about another girl, so I had to punish you. It’s what you call ‘discipline’.”
+“You were talking about another girl, so I had to punish you. Call it training.”
 
 Her face lit up with a cheerful smile.
 
 “You know I adore you, so it’s your fault for talking about her so happily, isn’t it?”
 
-‘Discipline’… I promised to get along with her, but I don’t recall agreeing to be kept as a pet.
+‘Training’… I promised to get along with her, but I don't remember being anyone's pet.
 
 “…I suppose I was in the wrong there… But this is a restaurant, so…”
 
@@ -133,7 +133,7 @@ I repeated it over and over, as if trying to convince myself.
 
 　She tilts her glass cheerfully and reaches for the chips.
 
-“I’m new here, so I won’t know unless you teach me properly.”
+“I'm inexperienced, so you'll have to teach me where the line is.”
 
 Her white arm reaches up to my chin, and she slips a long chip into my mouth; I chew it bit by bit, almost reflexively. Once I’ve finished, her slender white thumb gently traces my lips.
 
@@ -161,8 +161,8 @@ Was Takumi Hiito really this sort of person? I hate the alcohol that’s cloudin
 
 I don’t really want to think about anything difficult right now. I tip back the glass that arrives almost immediately.
 
-I'm starting to feel sleepy. I suppose I’m just tired right now.
+I'm getting sleepy. I think — yes, I'm probably just sleepy right now.
 
-‘I wonder if she’ll be back soon…’
+‘I wish she'd hurry back…’
 
 The time spent slumped over the table, fiddling with my glass, felt as long as eternity.
