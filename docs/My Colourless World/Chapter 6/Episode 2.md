@@ -67,7 +67,7 @@ I’d been unable to forget the cranberry milk Tsumugi’s older sister had serv
 
 With a wry smile, I tapped away at the tablet and handed it to Seriha. I wonder if she’ll drink it.
 
-‘We’re on the same page! I think it’s cute. As for me… I think I’ll have some plum wine.’
+‘That's exactly what I'd expect! I think it’s cute. As for me… I think I’ll have some plum wine.’
 
 Surprising… or perhaps not. I’d somehow got the impression she could hold her drink.
 
@@ -111,13 +111,13 @@ It’s sweet and delicious. Perhaps because I was thirsty, I find myself gulping
 
 ‘Oh, come on, it’s fine. Girls’ nights out at love hotels or in couples’ seats are quite common, you know.’
 
-Seeing her answer as if it were the most natural thing in the world, I felt my face flush again. Perhaps I was just out of touch. Why am I getting the wrong idea all on my own?
+Seeing her answer as if it were the most natural thing in the world, I felt my face flush again. Perhaps I was just out of touch. Getting ideas all by myself again...
 
 　I ordered another Cassis Milk. Seriha ordered red wine.
 
 “People who can hold their drink must have fun trying all sorts of different things. I can only drink this sort of thing, so I’m a bit jealous.”
 
-I changed the subject. This was a fun after-party. I should probably put aside any unnecessary feelings.
+I changed the subject. This was a fun celebration. I should probably put aside any unnecessary feelings.
 
 “That might be true. Fancy a sip?”
 
@@ -125,7 +125,7 @@ She smoothly held out her glass, filled with wine.
 
 ‘Thanks. But I’ll pass. I don’t want to get drunk and cause a nuisance.’
 
-‘If it were you, Senpai, I wouldn’t mind if you did.’
+"I wouldn't mind at all if it were you, senpai~"
 
 Glancing sideways at her as she pouts in a bored sort of way, I take a sip from my glass. The salmon roll is delicious too.
 
@@ -137,19 +137,19 @@ My third drink was another cassis milk. Seriha had ordered a second glass of red
 
 I could feel my body getting a bit warm. Even though the alcohol content is low, I might be drinking a bit too fast.
 
-“I’m really happy to be having such a fun after-work drink with you, Senpai.”
+“I’m really happy to be having such a fun celebration with you, Senpai.”
 
 Just as our conversation about work was reaching its peak, she changed the subject.
 
-‘An after-party is usually fun, isn’t it? It’s been a while for me, though.’
+‘A celebration is usually fun, isn’t it? It’s been a while for me, though.’
 
 ‘Well,’ she said, lowering her voice.
 
-‘You looked so sad when you invited me to the party, Senpai. Much more so than usual.’
+‘You looked so sad when you invited me to a celebration, Senpai. Much more so than usual.’
 
 ‘Really…’
 
-Looking into her lonely eyes, I couldn’t bear it and invited her to the party. The after-party she’d imagined back then wasn’t the fun occasion it is now; for Seriha, it must have felt like a guillotine.
+Looking into her lonely eyes, I couldn’t bear it and invited her to a celebration. The celebration she’d imagined back then wasn’t the fun occasion it is now; for Seriha, it must have felt like walking up to the chopping block.
 
 “Sorry for worrying you. I’m fine now. A friend even told me the other day that my vibe has changed.”
 
@@ -169,7 +169,7 @@ The pressure seemed to intensify. She’d been looking at me with a smile the wh
 
 I never usually talk about Tsumugi to others, but the words flowed out effortlessly. I suppose it’s a good thing to have friends you can be proud of.
 
-“Hiiragi-san is Tsumugi’s junior who joined mid-career; she’s a beautiful woman with the air of a traditional Japanese lady. ‘She looked after me and helped me out on Friday when I was a right mess.’
+“Hiiragi-san is Tsumugi’s junior who joined mid-career; she’s a classic beauty in that understated Japanese way. ‘She looked after me and helped me out on Friday when I was a right mess.’
 
 ‘Hmm.’
 
