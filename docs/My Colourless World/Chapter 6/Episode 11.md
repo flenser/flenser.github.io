@@ -37,13 +37,13 @@ Our eyes meet as she lies there, wearing that endearing smile.
 
 “G-good morning. Did you sleep well?”
 
-“…Yes. You were so warm, and it felt so cosy and comfortable. I actually wanted to sleep a bit longer.”
+“…Yes. You were so warm and wonderfully fluffy and squishy. I actually wanted to sleep a bit longer.”
 
 “I see. I slept well too. I wonder what time it is…”
 
 　As I raise my arm to sit up, she grabs it. Just as I instinctively turn my gaze towards her, a whisper laced with her breath washes over my ear.
 
-“I was really happy, but you shouldn’t catch me off guard like that, Senpai.”
+“I was really happy, but surprise attacks like that aren't fair, senpai.”
 
 Her voice resonates through my whole body, making me jump slightly. No matter how hard I try to keep my wandering gaze in check, my body won’t obey me.
 
@@ -57,7 +57,7 @@ As if to hide my fluster, I muttered, turning my face away from her.
 
 Just as she closed her eyes and stretched widely, she brought her face close to my ear again, a defiant smile playing on her lips.
 
-‘If you’re going to try to fob me off, you’d better be a bit more convincing.’
+‘If you're going to play innocent, you'll need to do better than that, Senpai.’
 
 Along with her sweet voice, her lips touched my cheek. Hearing the deliberately loud smacking sound, I felt a heat rise deep within me.
 
@@ -93,7 +93,7 @@ That’s surprising. I was sure she would have drawn it up to the climax, so I a
 
 “And,” she continued in a cheerful voice.
 
-“Although that story ended there, I’ve taken up the torch for both of us. It sounds a bit romantic, but that’s how I feel.”
+“Although that story ended there, I’ve carried their intentions forward. It sounds a bit romantic, but that’s how I feel.”
 
 “So perhaps the continuation of that story is me, just as I am now.”
 
@@ -137,7 +137,7 @@ But I think this is a good opportunity. In a proper setting, I’ll tell her my 
 
 “Leave the date planning to me! All you need to do is turn up looking your absolute best!”
 
-That radiant smile I’ve seen so many times. But I thought it was blooming brighter than ever before.
+That smile that blooms like a flower. But today it was blooming wider than I had ever seen it.
 
 “‘Looking my absolute best’… that’s actually the hardest part.”
 
@@ -147,4 +147,4 @@ When will we go? Where will we go? I want to go tomorrow.
 
 　I’m brimming with a feeling like a child on the eve of a school trip, unable to wait a single second longer. I want to spend as much time as possible with Seriha. If I could, I’d never want to be apart from her.
 
-I realised that such selfish feelings, so unlike the Takumi Hiito I usually am, were welling up inside me.
+I realised that such greedy feelings — wanting so much, so unlike the Takemi Hiito she usually was, were welling up inside me.

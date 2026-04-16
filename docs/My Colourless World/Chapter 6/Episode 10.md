@@ -125,23 +125,23 @@ No. No, no, no, really, no.
 
 Even when I try to move my hands to push her away, my body won’t respond. I can’t hear her shallow breathing or the rustling of her nightdress. All I can hear now is the incessant pounding of my heart, my ragged breaths, and my hoarse voice.
 
-This is… bad.
+Bad… this is so… bad…
 
 “Oops, I’m sorry. I’ve gone too far again.”
 
 “Senpai, are you all right?”
 
-Seriha’s face moves away from mine. Feelings of reluctance and relief mingle, leaving me in a complete mess.
+Seriha’s face moves away from mine. Relief and the ache of not wanting it to stop all tangled together into something I couldn't sort out.
 
 It seems I’d been unconsciously clutching the sleeve of her nightdress tightly. She must have finally realised when she saw me gasping for breath and the sleeve I was holding.
 
 My breathing is still ragged. What’s more, I feel as though my body’s senses are playing tricks on me, a reaction to having been stopped at the very last moment.
 
-It’s as if I’m floating in mid-air, or as though my body is no longer my own.
+It’s like floating… or more like my body isn't mine anymore.
 
 ‘Come on… you’ve had your fill, haven’t you…’
 
-A voice that didn’t sound like my own. It was hoarse, tinged with heat, and it made me feel weird.
+A voice that didn’t belong to me. It was hoarse, tinged with heat, and it made me feel weird.
 
 ‘I’m not satisfied. But I’ll stop here.’
 
@@ -163,4 +163,4 @@ I could see a smirk in the darkness.
 
 I said it curtly and tried to turn my back on her, but she grabbed me firmly with both hands and feet. It’s hot, but I’m going to sleep like this. I’m definitely not going to wake up until she’s completely satisfied.
 
-‘Understood. Good night, Senpai.’
+‘Understood. Good night. Hiito-senpai.’
