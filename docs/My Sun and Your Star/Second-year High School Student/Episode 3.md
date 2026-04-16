@@ -94,7 +94,7 @@ Endo-san's hand stroked my cheek. Suddenly, it felt like a chill ran down my spi
 
 "Don't touch me!"
 
-I reflexively slapped her.
+I reflexively swatted her hand away.
 
 "Tears..."
 

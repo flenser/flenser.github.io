@@ -24,7 +24,7 @@ Why did she ask me that?
 
 The distance I'd been trying so hard to keep from Endo-san had closed, and I felt a slight tightness in my chest.
 
-　I wore a pale blue tank top dress with a lightweight cardigan over it, and wove a small braid into my hair beside my right ear.
+　I wore a pale blue sleeveless dress with a lightweight cardigan over it, and wove a small braid into my hair beside my right ear.
 
 "My hair's grown..."
 

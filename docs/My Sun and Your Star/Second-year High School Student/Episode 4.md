@@ -64,7 +64,7 @@ I hurried to answer the intercom.
 
 It wasn't Mum or Dad waiting at the front door, but my grandmother.
 
-My mother's grandmother lives in the neighbouring prefecture, so I looked at my grandmother in puzzlement, wondering why she was here. She had a terribly pale face and spoke to me in a tone that seemed directed only at me.
+My mother's parents live in the neighbouring prefecture, so I looked at my grandmother in puzzlement, wondering why she was here. She had a terribly pale face and spoke to me in a tone that seemed directed only at me.
 
 "Hina-chan, there's somewhere I need you to come to right now. Can you get ready?"
 
