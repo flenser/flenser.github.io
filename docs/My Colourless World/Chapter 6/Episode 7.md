@@ -57,7 +57,7 @@ I could tell her voice was trembling.
 
 “For me, I’ll never forget that moment for the rest of my life.”
 
-Even though she’s crying, she’s wearing her usual radiant smile. What on earth did I do for her that day?
+Even though she’s crying, yet her smile bloomed like a flower, as always. What on earth did I do for her that day?
 
 “I’ll give you a hint about what you said to me.”
 
@@ -65,9 +65,9 @@ Even though she’s crying, she’s wearing her usual radiant smile. What on ear
 
 I’d already answered that. If I search through the sea of my memories one by one, I’m sure I’ll remember.
 
-“You were like a bookish girl. You had long hair and wore glasses.”
+“You were like a literary girl — the quiet bookish type. You had long hair and wore glasses.”
 
-“Correct. So, what sort of manga did that bookish girl, Seriha-chan, draw?”
+“Correct. So, what sort of manga did that literary girl, Seriha-chan, draw?”
 
 The memories started to come together. Vaguely, the scene from that day floated into my mind.
 
@@ -79,7 +79,7 @@ I remembered. It had simply been tucked away in the depths of my memory, but it 
 
 “That’s… right.”
 
-“The true identity of Seriha-chan, everyone’s favourite, was simply an imitation of the heroine from the manga she drew herself.”
+“The true identity of Seriha-chan, everyone’s favourite, was something she had modelled on the heroine from the manga she drew herself.”
 
 “Senpai, are you disappointed?”
 
@@ -107,7 +107,7 @@ She bears no resemblance whatsoever to the Seriha of that time.
 
 　I don’t think there was any deep meaning behind what I said to Seriha back then. I just told her what I was thinking.
 
-I don’t know why, but if a single innocent remark from me managed to hold on to her, someone who felt so cornered she’d chosen death, then I’m truly glad.
+I don’t know why, but if a single innocent remark from me managed to tether her to this world, someone who felt so cornered she’d chosen death, then I’m truly glad.
 
 ‘Why are you crying, Senpai? You’re crying even more than I am.’
 
@@ -125,4 +125,4 @@ Before I knew it, I was holding Seriha close. Her body heat, transmitted through
 
 I’ve heard that life is a succession of miracles. The days we spend as if they were ordinary are, in fact, made up of a succession of miracles. Indeed, that might well be true.
 
-For a while, I didn’t want to let go of this warmth and comfort. Listening to each other’s sobs, that’s what I thought.
+For a while, I didn’t want to let go of this warmth and comfort. While both of us wept without restraint, that’s what I thought.

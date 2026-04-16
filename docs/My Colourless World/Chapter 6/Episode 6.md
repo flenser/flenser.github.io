@@ -11,7 +11,7 @@ Episode 6
 
 She dries my hair with gentle, unobtrusive movements. Even though having your hair dried is a standard service at a salon, it feels somehow different from usual.
 
-‘You might not notice from a distance, but because I’ve bleached it, it’s really dry and brittle. Maybe I’ll dye it the same colour as yours. It’s cute, like chocolate.’
+‘You might not notice from a distance, but because I’ve bleached it, it’s so rough and coarse. Maybe I’ll dye it the same colour as yours. It’s cute, like chocolate.’
 
 It doesn’t look like it to me, but coming from someone who seems so particular about her appearance, perhaps she isn’t satisfied with the way it is.
 
@@ -99,7 +99,7 @@ I can’t quite grasp her intention. No matter how you put it, I don’t think w
 
 “…Is that so?”
 
-Perhaps the conversation is over; she sits there, hugging her knees, murmuring to herself. She’s clearly acting strangely.
+Perhaps the conversation is over; she sits there in silence, hugging her knees. She’s clearly acting strangely.
 
 ‘Erm… What about that girl? Or rather, why did you bring up my middle school days…’
 
@@ -113,11 +113,11 @@ Resting her cheek on her knees, our eyes met as she gazed at me gently.
 
 “That girl… what about her?”
 
-  Think. We must have spoken, so there’s no way I haven’t heard her name. But a name like ‘Seriha’ is quite unusual; I shouldn’t have forgotten it after hearing it just once. Besides, there’s no way I could forget a face like hers—
+ Remember. Try to remember. We must have spoken, so there’s no way I haven’t heard her name. But a name like ‘Seriha’ is quite unusual; I shouldn’t have forgotten it after hearing it just once. Besides, there’s no way I could forget a face like hers—
 
 “Ichikawa…-san”
 
-　The words slipped out. A faint, almost inaudible whisper. The mist-shrouded scenery suddenly became crystal clear.
+　The words spilled from my lips. A faint, almost inaudible whisper. The mist-shrouded world suddenly snapped into focus.
 
 “Senpai.”
 
@@ -125,4 +125,4 @@ Resting her cheek on her knees, our eyes met as she gazed at me gently.
 
 A single tear fell from her large, sparkling eyes.
 
-I did know ‘Ichikawa Seriha’. I felt as though I finally understood why she was so fixated on me.
+I did know ‘Ichikawa Seriha’. I felt as though I finally understood why she had clung to me so.
