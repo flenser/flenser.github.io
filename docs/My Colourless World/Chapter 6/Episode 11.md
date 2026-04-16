@@ -147,4 +147,4 @@ When will we go? Where will we go? I want to go tomorrow.
 
 　I’m brimming with a feeling like a child on the eve of a school trip, unable to wait a single second longer. I want to spend as much time as possible with Seriha. If I could, I’d never want to be apart from her.
 
-I realised that such greedy feelings — wanting so much, so unlike the Takemi Hiito she usually was, were welling up inside me.
+I realised that such greedy feelings — wanting so much, so unlike the Takemi Hiito I usually was, were welling up inside me.
