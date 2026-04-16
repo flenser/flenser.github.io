@@ -43,7 +43,7 @@ It’s alright. I’m not alone anymore.
 
 I took a small, deep breath and opened my mouth again.
 
-“Hiito-chan, whose dream had come true, was over the moon. Every day was so much fun I couldn’t help myself. Even boring school became something I could work hard at, just for her sake.”
+“Hiito-chan, whose dream had come true, soared and soared — every single day was more fun than she could stand. Even boring school became something I could work hard at, just for her sake.”
 
 “But those dreamlike days didn’t last long.”
 
@@ -57,9 +57,9 @@ Had I actually spoken? From partway through, I wasn’t even sure if I’d manag
 
 “That’s all there is to it. Just that, but ever since that day, I haven’t been able to look forward.”
 
-The tears wouldn’t come naturally. If it had been a little while ago, just remembering that day would have left my emotions completely raw.
+The tears wouldn’t come naturally. If it had been a little while ago, just remembering that day - my feelings would have been stripped completely bare.
 
-“Ever since then, I’ve felt as though something had been completely ripped out of me, and I’ve been living with that emptiness.”
+“Ever since then, I’ve felt as though something had been scooped right out of me, and I’ve been living with that emptiness.”
 
 “My friends called me a zombie girl who wasn’t really ‘living’.”
 
@@ -79,7 +79,7 @@ Lowering her voice, she asked me. I didn’t want to hear it, but I had to. Her 
 
 “I can’t exactly say I’m completely fine.”
 
-To my own surprise, my voice came out clear and steady. Once the words had started flowing, they wouldn’t stop.
+To my own surprise, my voice came out surprisingly clear — clean, even. Once the words had started flowing, they wouldn’t stop.
 
 “But I think I’m looking firmly ahead now. Do you know why?”
 
@@ -91,7 +91,7 @@ I asked, peering into her face. I hardly ever close the distance between us, so 
 
 Her cherry-blossom-pink lips. I’d wondered what they’d feel like to touch, but they were softer and warmer than I’d imagined.
 
-I’m glad I saved my first time for her. I wanted to experience all sorts of ‘firsts’ with her.
+I’m glad I saved my first kiss for her. I wanted to experience all sorts of ‘firsts’ with her.
 
 “You’re absolutely beaming. By the way, since it’s our first time…”
 
@@ -129,4 +129,4 @@ I’ll never forget the look in her eyes as they widened. I wish I’d captured 
 
 I really must get some sleep. I’ve talked far too much.
 
-I can’t see my own colour, though. At the very least, I suppose I’m no longer ‘colourless and transparent’. Just as she has, it seems I’ve changed quite a bit too.
+I can’t see my own colour, though. At the very least, I suppose I’m no longer anything so bleak as "colourless and transparent." It seems I've gone and changed quite a lot too, just as she did.
