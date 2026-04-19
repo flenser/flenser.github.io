@@ -1,6 +1,7 @@
 ---
 parent: "The White Witch and the Black Witch"
 title: "Episode One"
+nav_order: 1
 ---
 Episode One
 
