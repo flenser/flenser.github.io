@@ -19,6 +19,7 @@ nav_exclude: true
 - [My Sun and Your Star ✅](/docs/My Sun and Your Star/sun-and-star.html)
 - [My Neighbor, Kataba-san](/docs/Neighbour Kataba/neighbour-kataba.html)
 - [She, expressionless and transparent, seems to be someone you could hold tight if you paid the price ✅](/docs/She seems to be someone you could hold tight if you paid the price/embrace-for-a-price.html)
+- [The White Witch and the Black Witch — A Twisted Secret Between Them ✅](/docs/White Witch, Black Witch/white-witch-black-witch.html)
 - [You Bleed Into My Colourless World ✅](/docs/My Colourless World/my-colourless-world.html)
 
 {: .note }
