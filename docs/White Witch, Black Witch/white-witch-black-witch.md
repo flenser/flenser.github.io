@@ -12,7 +12,7 @@ has_children: true
 
 *"Sion belongs to me. Don't go getting any ideas".*
 
-Selene is perfect in every way — the kind of person everyone admires. And I, who do nothing but stand at her side, are apparently beloved by all as "the White Witch and the Black Witch."
+Selene, who is perfect in every way — the kind of person everyone admires. And I, who does nothing but stand at her side. Together we are apparently beloved by all as "the White Witch and the Black Witch."
 
 But that's only the face we show the world.
 Between the real us, there's a secret no one can ever know.
