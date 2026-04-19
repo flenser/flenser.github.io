@@ -22,7 +22,7 @@ I don't want this. I never asked for it. I want it to stop.
 But I can't slip free of the collar she's put around my neck.
 What am I supposed to do?
 
-![My Colourless World](/assets/images/my-colourless-world.jpg)
+![The White Witch and the Black Witch](/assets/images/white-witch-black-witch.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: [莉乃]
