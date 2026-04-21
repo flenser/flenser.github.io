@@ -3,7 +3,7 @@ parent: Chapter 2
 title: Episode 15
 ---
 
-Lotte herself was startled, instinctively touching her mouth.\
+Lotte herself was startled, instinctively touching her mouth.
 
 (What did I just say…?)
 
@@ -16,14 +16,18 @@ Before Lotte could apologise, Alisha cut her off.\
 　Hearing Lotte's words, Alisha's earlier composed expression vanished. She blushed crimson and looked down, embarrassed.\
 It seemed that despite asking to be pinned down, she hadn't been composed at all.\
 Seeing her like this —something snapped inside Lotte.\
-Lotte placed her knees on the bed and moved closer to Alisha.\
-　Then—she touched Alisha's hair and simply inhaled its scent.
+Lotte placed a knee on the bed and leaned closer to Alisha.\
+　Then — she touched Alisha's hair and simply inhaled its scent.
 
-"H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H
+"Wh — L-Lotte...?"\
+"You smell wonderful, my lady."
+
+An honest impression — she really did smell wonderful. Even with the work of a knight, she must take good care of herself.\
+Simply touching Alisha's beautiful hair — Lotte felt something close to joy at the fact of it.
 
 "Is that so?"\
 "Though I detect a hint of sweat too."\
-"Hmph."
+"Haa."
 
 Lotte's unexpected remark —Alisha had only just moved and hadn't changed her clothes.\
 Knightly duties involved considerable physical labour —sweat was inevitable, and no one would normally point it out.\

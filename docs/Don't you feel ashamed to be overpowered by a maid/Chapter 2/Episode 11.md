@@ -30,7 +30,10 @@ Of course, not all the maids disliked Lotte.
 Yet, amongst them, one person alone—
 
 "Lotte, could you help me change?"\
-"H-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-h-
+"O-oh — yes, my lady!"
+
+Called for, she found herself following Alisha into the room.\
+To be entrusted with looking after Alisha’s daily needs the moment I returned to my role as a maid—it makes me happy, yet I have mixed feelings.
 
 "Why would a returnee..."
 
