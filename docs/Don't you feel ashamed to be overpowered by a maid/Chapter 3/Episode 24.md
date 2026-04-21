@@ -81,7 +81,9 @@ Within her, as if another person were whispering —words form of their own acco
 Just moments ago she'd been begging to be bound herself —yet when the moment came, nothing seemed to spring to mind.\
 I stroked upwards along the curve of Alisha's thigh.
 
-"H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-H-
+"—! L-Lotte...!?"
+
+She hadn't expected to be touched so suddenly. Alisha shuddered and let out a startled sound.
 
 "Since Alice can't seem to answer, I thought I'd just go ahead and do it myself."
 
