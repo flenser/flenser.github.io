@@ -23,7 +23,7 @@ What starts as a conquest plan rapidly becomes uncontrollable infatuation on Him
 
 A high-energy yuri rom-com featuring a pushy, princess-like younger girl and an older, prince-like girl!
 
-![My Neighbour, Kataba-san](/assets/images/neighbour-kataba.jpg)
+![The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl](/assets/images/princess-wins-prince.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: [八星　こはく]
