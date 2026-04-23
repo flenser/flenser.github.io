@@ -1,3 +1,8 @@
+---
+parent: "The Princess Wants to Win the Prince"
+title: "'The Princess Wants to Win the Prince' — Part Three"
+nav_order: 3
+---
 ## Chapter One: "The Princess Wants to Win the Prince" — Part Three
 
 I did a final fringe check in the corridor window and pushed open the door to the room where the environmental beautification committee was gathering. The meeting to decide the watering roster was about to begin.

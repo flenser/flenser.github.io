@@ -1,3 +1,8 @@
+---
+parent: "The Princess Wants to Win the Prince"
+title: "'The Princess Wants to Win the Prince' — Part Four"
+nav_order: 4
+---
 ## Chapter One: "The Princess Wants to Win the Prince" — Part Four
 
 "Good — Senpai's not here yet. Thank goodness…!"

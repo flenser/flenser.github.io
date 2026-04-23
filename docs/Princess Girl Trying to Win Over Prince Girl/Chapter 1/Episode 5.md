@@ -1,3 +1,8 @@
+---
+parent: "The Princess Wants to Win the Prince"
+title: "'The Princess Wants to Win the Prince' — Part Five"
+nav_order: 5
+---
 ## Chapter One: "The Princess Wants to Win the Prince" — Part Five
 
 "I cannot wait for the club showcase."\
