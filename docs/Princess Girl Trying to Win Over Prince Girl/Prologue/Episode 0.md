@@ -1,6 +1,6 @@
 ---
 parent: "Prologue: You'd Better Brace Yourself, Senpai"
-title: "Prologue: You'd Better Brace Yourself, Senpai"
+title: "You'd Better Brace Yourself, Senpai"
 ---
 ## Prologue: "You'd Better Brace Yourself, Senpai"
 
