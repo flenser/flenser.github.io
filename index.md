@@ -9,6 +9,7 @@ nav_exclude: true
 ### Stories translated so far
 
 - [A Closet Romance](/docs/A Closet Romance/closet-romance.html)
+- [A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend](/docs/Married Woman Falls for Daughters Friend/married-woman-falls-for-friend.html)
 - [Don't you feel ashamed to be overpowered by a maid? ✅](/docs/Don't you feel ashamed to be overpowered by a maid/overpowered-by-maid.html)
 - [Eternal Rest (I'm Just Tired) ❌](/docs/Eternal Rest/eternal-rest.html)
 - [Good Night, Sleeping Beauty](/docs/Good Night, Sleeping Beauty/sleeping-beauty.html)
