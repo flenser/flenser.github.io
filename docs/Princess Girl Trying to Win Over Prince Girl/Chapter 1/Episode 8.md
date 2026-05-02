@@ -1,9 +1,9 @@
 ---
-parent: "The Princess Wants to Win the Prince"
+parent: "The Princess Wants to Win Over the Prince"
 title: "Part Eight"
 nav_order: 8
 ---
-## Chapter One: "The Princess Wants to Win the Prince" — Part Eight
+## Chapter One: "The Princess Wants to Win Over the Prince" — Part Eight
 
 Senpai led me to a bench in the courtyard.
 

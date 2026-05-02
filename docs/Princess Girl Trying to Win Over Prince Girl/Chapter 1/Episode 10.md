@@ -1,9 +1,9 @@
 ---
-parent: "The Princess Wants to Win the Prince"
+parent: "The Princess Wants to Win Over the Prince"
 title: "Part Ten"
 nav_order: 10
 ---
-## Chapter One: "The Princess Wants to Win the Prince" — Part Ten
+## Chapter One: "The Princess Wants to Win Over the Prince" — Part Ten
 
 "You don't need to be embarrassed, Senpai. We're both girls — it's perfectly normal to share a bath."
 

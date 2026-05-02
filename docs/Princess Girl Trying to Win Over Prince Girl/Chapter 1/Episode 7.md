@@ -1,9 +1,9 @@
 ---
-parent: "The Princess Wants to Win the Prince"
+parent: "The Princess Wants to Win Over the Prince"
 title: "Part Seven"
 nav_order: 7
 ---
-## Chapter One: "The Princess Wants to Win the Prince" — Part Seven
+## Chapter One: "The Princess Wants to Win Over the Prince" — Part Seven
 
 "Is Himena-chan around?"
 

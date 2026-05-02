@@ -1,9 +1,9 @@
 ---
-parent: "The Princess Wants to Win the Prince"
+parent: "The Princess Wants to Win Over the Prince"
 title: "Part Twelve"
 nav_order: 12
 ---
-## Chapter One: "The Princess Wants to Win the Prince" — Part Twelve
+## Chapter One: "The Princess Wants to Win Over the Prince" — Part Twelve
 
 Iori-senpai led me by the hand to an empty classroom, away from everyone. Unused as it was, the room smelled faintly of dust.\
 I sat down in one of the old chairs, and Senpai gently stroked my head.

@@ -1,9 +1,9 @@
 ---
-parent: "The Princess Wants to Win the Prince"
+parent: "The Princess Wants to Win Over the Prince"
 title: "Part One"
 nav_order: 1
 ---
-## Chapter One: "The Princess Wants to Win the Prince" — Part One
+## Chapter One: "The Princess Wants to Win Over the Prince" — Part One
 
 It seemed the gods had no intention of staging a chance, fateful encounter between Senpai and me after all.
 
