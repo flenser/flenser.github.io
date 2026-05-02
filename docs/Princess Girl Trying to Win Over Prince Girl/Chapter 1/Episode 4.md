@@ -1,9 +1,9 @@
 ---
-parent: "The Princess Wants to Win the Prince"
+parent: "The Princess Wants to Win Over the Prince"
 title: "Part Four"
 nav_order: 4
 ---
-## Chapter One: "The Princess Wants to Win the Prince" — Part Four
+## Chapter One: "The Princess Wants to Win Over the Prince" — Part Four
 
 "Good — Senpai's not here yet. Thank goodness…!"
 

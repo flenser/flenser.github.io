@@ -1,9 +1,9 @@
 ---
-parent: "The Princess Wants to Win the Prince"
+parent: "The Princess Wants to Win Over the Prince"
 title: "Part Three"
 nav_order: 3
 ---
-## Chapter One: "The Princess Wants to Win the Prince" — Part Three
+## Chapter One: "The Princess Wants to Win Over the Prince" — Part Three
 
 I did a final fringe check in the corridor window and pushed open the door to the room where the environmental beautification committee was gathering. The meeting to decide the watering roster was about to begin.
 
@@ -92,7 +92,7 @@ My mind was about to short-circuit. Was my heartbeat really so loud that Senpai 
 
 Senpai tilted her head, still patting my hair. The way her eyes crinkled with amusement — it was doing something to a part of me that probably shouldn't be tampered with.
 
-*I think I want to be Iori-senpai's dog…*
+*I think I want to be Iori-senpai's dog….*
 
 "W-Woof…!!"\
 "What was that. Are you a dog, Himena-chan?"

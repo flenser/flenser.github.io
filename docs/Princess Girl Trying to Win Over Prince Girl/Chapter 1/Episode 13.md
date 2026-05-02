@@ -1,9 +1,9 @@
 ---
-parent: "The Princess Wants to Win the Prince"
+parent: "The Princess Wants to Win Over the Prince"
 title: "Part Thirteen"
 nav_order: 13
 ---
-## Chapter One: "The Princess Wants to Win the Prince" — Part Thirteen
+## Chapter One: "The Princess Wants to Win Over the Prince" — Part Thirteen
 
 "Thank you for the meal."
 
