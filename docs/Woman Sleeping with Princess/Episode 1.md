@@ -10,23 +10,23 @@ In one corner of the place, a group of a dozen or so young men and women had tak
 
 "Still can't believe Hatano actually came to one of these!"
 
-One of the group — a young man with dyed brown hair and an unremarkable face — pointed at a woman and laughed. He'd clearly been at it long enough for his face to flush a deep red. The woman he'd named — Hatano — knitted her brow at him, contempt barely disguised, and muttered "Me?" like she was spitting something out. She'd had a fair amount to drink herself, a faint blush spreading across her cheeks.
+One of the group, a young man with dyed brown hair and an unremarkable face, pointed at a woman and laughed. He'd clearly been at it long enough for his face to flush a deep red. The woman he'd named — Hatano — knitted her brow at him, contempt barely disguised, and muttered "Me?" like she was spitting something out. She'd had a fair amount to drink herself, a faint blush spreading across her cheeks.
 
 Black hair to the shoulder. Understated clothes. Not the type to dress herself up prettily, but the type who kept herself presentable — that was Hatano, twenty-one years old.
 
 "Yeah, you! I don't know if you think you're too good for us or what, but you never come to these things! So what gives? What brought you out tonight?"
 
-He could have just asked, if he wanted to know. But he didn't know how — couldn't help but make everything an attack, couldn't seem to factor in the feelings of the person he was talking to. Hatano knew she wasn't one to talk, but that quality in him grated on her. Among all the members of this university's Literary Appreciation Club — a gathering of misfits if ever there was one — he was the second person she hated most.
+He could have just asked, if he wanted to know. But he didn't know how — couldn't help but make everything an attack, couldn't seem to factor in the feelings of the person he was talking to. Hatano knew she wasn't one to talk, but that quality in him grated on her. Among all the members of this university's Literary Appreciation Club, a gathering of misfits if ever there was one, he was the second person she hated most.
 
 "I don't understand why a 'Literary Appreciation Club' needs to drink together once a week in the first place."
 
 "There she goes! Being all high and mighty again! Save the big talk for when you've actually gone pro, yeah? Still a wannabe, last I checked!"
 
-The young man knocked back his drink and cackled. The others around him offered diplomatic smiles or half-hearted rebukes. This was routine — Hatano had long since stopped rising to it, absorbing the jabs with a sigh and letting them pass, so no one felt the need to intervene too forcefully. But tonight was slightly different.
+The young man knocked back his drink and cackled. The others around him offered diplomatic smiles or half-hearted rebukes. This was routine, Hatano had long since stopped rising to it, absorbing the jabs with a sigh and letting them pass, so no one felt the need to intervene too forcefully. But tonight was slightly different.
 
-"Knock it off, Iizuka. I'm the one who invited her. The deadline for that fiction competition was three days ago — we both submitted, so I thought we could celebrate each other. That's why she's here."
+"Knock it off, Iizuka. I'm the one who invited her. The deadline for that fiction competition was three days ago, we both submitted, so I thought we could celebrate each other. That's why she's here."
 
-The one who stepped in was a man with a strikingly handsome face, watching from closer to the centre of the table with an expression of mild exasperation. His looks weren't merely notable among the club's members — it was more that you could have staked out Shibuya station all day and only maybe found someone comparable. More than a few women had joined the club specifically because of him. "If Shijima says so, fine," grumbled Iizuka, and fell silent; Shijima was not the kind of person Iizuka could argue with.
+The one who stepped in was a man with a strikingly handsome face, watching from closer to the centre of the table with an expression of mild exasperation. His looks weren't merely notable among the club's members, it was more that you could have staked out Shibuya station all day and only maybe found someone comparable. More than a few women had joined the club specifically because of him. "If Shijima says so, fine," grumbled Iizuka, and fell silent; Shijima was not the kind of person Iizuka could argue with.
 
 It was a sorry truth, but hierarchies form even in groups of a dozen people. At the undisputed top sat Shijima, and in this little world, his word was law.
 
@@ -38,11 +38,11 @@ Hatano said it with a thread of irritation running through her voice, and Shijim
 
 "Wait, Shijima-san, you're already a professional, aren't you? Aren't those new writer prizes for amateurs?"
 
-The question came from a petite young woman nearby, dressed in something that bared her shoulders, with a face that could stop a room. Her name was Shinomiya, and she was, if anything, even more striking than Shijima — though beautiful wasn't quite the right word for her. Cute was closer. Chestnut hair down to her shoulders, and dark, pretty eyes that seemed to look up at everything and everyone. She trained those eyes on Shijima now, her face flushed a warm pink, her voice doing something soft and deliberate. Several of the other women in the group watched her with thinly veiled annoyance.
+The question came from a petite young woman nearby, dressed in something that bared her shoulders, with a face that could stop a room. Her name was Shinomiya, and she was, if anything, even more striking than Shijima, though beautiful wasn't quite the right word for her. Cute was closer. Chestnut hair down to her shoulders, and dark, pretty eyes that seemed to look up at everything and everyone. She trained those eyes on Shijima now, her face flushed a warm pink, her voice doing something soft and deliberate. Several of the other women in the group watched her with thinly veiled annoyance.
 
-Shijima — to fill in the picture — had won a new writer award from one of the major mystery publishers while still a student, and had since been something of a local literary celebrity. He'd even taken a book prize. Hatano found herself envying him, despite herself; she respected him genuinely.
+Shijima — to fill in the picture, had won a new writer award from one of the major mystery publishers while still a student, and had since been something of a local literary celebrity. He'd even taken a book prize. Hatano found herself envying him, despite herself; she respected him genuinely.
 
-"Some competitions are amateurs-only, sure. But publishers have different needs depending on the season, and if sales aren't there, they'll look elsewhere — so most of them accept professionals too. I'm just trying to find places that suit the kind of work I want to write."
+"Some competitions are amateurs-only, sure. But publishers have different needs depending on the season, and if sales aren't there, they'll look elsewhere, so most of them accept professionals too. I'm just trying to find places that suit the kind of work I want to write."
 
 "Wow, Shijima-san, you're so driven! That's so admirable."
 
@@ -52,35 +52,35 @@ Hatano observed all of this from a remove, and let out a quiet breath.
 
 The club, she had long since decided, was made up of three distinct factions.
 
-First: people like herself and Shijima — people who actually read and wrote fiction, who engaged with the literary arts in some literal sense.
+First: people like herself and Shijima, people who actually read and wrote fiction, who engaged with the literary arts in some literal sense.
 
-Second: people like Shinomiya and a handful of the other women — people who had come because of Shijima.
+Second: people like Shinomiya and a handful of the other women, people who had come because of Shijima.
 
-Third: people like Iizuka — people who had come because of the women who had come because of Shijima.
+Third: people like Iizuka, people who had come because of the women who had come because of Shijima.
 
-The moment she laid it out in her head, she nearly laughed. What came out instead was something dry and hollow. She found the whole thing tiresome — and yet she stayed, because whatever the club actually was, Shijima was someone she could genuinely learn from. In practice, though, it was nothing more than a social circle for university students, and while she had nothing in principle against romance, having it imported into something she took seriously felt, not exactly insulting, but like a low-grade friction she could never quite ignore.
+The moment she laid it out in her head, she nearly laughed. What came out instead was something dry and hollow. She found the whole thing tiresome, and yet she stayed, because whatever the club actually was, Shijima was someone she could genuinely learn from. In practice, though, it was nothing more than a social circle for university students, and while she had nothing in principle against romance, having it imported into something she took seriously felt, not exactly insulting, but like a low-grade friction she could never quite ignore.
 
 "I think I've had a little too much to drink…"
 
-Shinomiya tilted her flushed face up at Shijima with those dark eyes. It was obvious to everyone present — probably obvious to Shijima too — but the infuriating thing was that even knowing exactly what she was doing, she still had enough of whatever it was about her that you found yourself half-inclined to let it go. She was trouble — and to be clear: of all the people in this hollowed-out club, she was the one Hatano hated most. More than Iizuka.
+Shinomiya tilted her flushed face up at Shijima with those dark eyes. It was obvious to everyone present, probably obvious to Shijima too, but the infuriating thing was that even knowing exactly what she was doing, she still had enough of whatever it was about her that you found yourself half-inclined to let it go. She was trouble, and to be clear: of all the people in this hollowed-out club, she was the one Hatano hated most. More than Iizuka.
 
-It wasn't the flirting with handsome men that bothered her, not really. What bothered her was that Shinomiya had a face that could have taken her anywhere — and this was what she chose to do with it. Flirt in a second-rate club. There was something close to resentment in Hatano's feeling, she knew that. She'd lived her life through modest effort and modest reward, grinding along step by step — and someone like Shinomiya, who didn't seem to fight at all, was maddening in a way that was almost indistinguishable from envy. She probably wasn't a bad person. But she was intolerable.
+It wasn't the flirting with handsome men that bothered her, not really. What bothered her was that Shinomiya had a face that could have taken her anywhere, and this was what she chose to do with it. Flirt in a second-rate club. There was something close to resentment in Hatano's feeling, she knew that. She'd lived her life through modest effort and modest reward, grinding along step by step, and someone like Shinomiya, who didn't seem to fight at all, was maddening in a way that was almost indistinguishable from envy. She probably wasn't a bad person. But she was intolerable.
 
-That type — that type was the kind of person Hatano hated most in the world.
+That type, that type was the kind of person Hatano hated most in the world.
 
 The lemon sour she lifted to her lips tasted, just for a moment, faintly bitter.
 
 An hour later, around ten in the evening, the gathering finally broke up.
 
-Everyone began drifting toward their own routes home, settling in for another night's sleep before the machinery of the next day started up again. It should have been a peaceable end to a day that amounted to nothing much — and then a bomb dropped.
+Everyone began drifting toward their own routes home, settling in for another night's sleep before the machinery of the next day started up again. It should have been a peaceable end to a day that amounted to nothing much, and then a bomb dropped.
 
 It came in the form of Shinomiya's voice.
 
 "I'm so sorry, I think I've had too much to drink… Could someone walk me home?"
 
-She looked up at Shijima with a crimson face and glistening eyes, pressing close to him with an air of helplessness. The women of the club — faces twisted into expressions normally reserved for finding cockroaches in the kitchen — formed a wall of barely-suppressed fury and revulsion that nobody wanted to approach. The more obtuse of the men, meanwhile, were doing a poor job of feigning indifference while clearly calculating their chances. Shijima himself looked apologetic and put his hands together.
+She looked up at Shijima with a crimson face and glistening eyes, pressing close to him with an air of helplessness. The women of the club, faces twisted into expressions normally reserved for finding cockroaches in the kitchen, formed a wall of barely-suppressed fury and revulsion that nobody wanted to approach. The more obtuse of the men, meanwhile, were doing a poor job of feigning indifference while clearly calculating their chances. Shijima himself looked apologetic and put his hands together.
 
-"Ah — sorry, I've got plans with a friend from home after this…"
+"Ah, sorry, I've got plans with a friend from home after this…"
 
 Shinomiya's brow faintly twitched. She looked openly put out for a moment, and then, within seconds, arranged her face into a smile and murmured "I see, that's a shame…" with a small, resigned drop of her shoulders. Then she swept the assembled men with a sidelong look of quiet desolation, and waited.
 
@@ -90,13 +90,13 @@ Shinomiya's brow faintly twitched. She looked openly put out for a moment, and t
 
 "You're a grown woman, you can get yourself home, can't you? Right, Shinomiya-san?"
 
-It was a grim spectacle. The men jostled; the women pushed back. Hatano was already turning toward the station — she wanted no part of this — when Shijima, that one unsullied thing in the whole sorry swamp, smoothed everything over.
+It was a grim spectacle. The men jostled; the women pushed back. Hatano was already turning toward the station, she wanted no part of this, when Shijima, that one unsullied thing in the whole sorry swamp, smoothed everything over.
 
-"Now, now — she really does seem to have had too much, and it's getting late. It might not be safe for a young woman to go home in that state. Hatano — could I ask you?"
+"Now, now, she really does seem to have had too much, and it's getting late. It might not be safe for a young woman to go home in that state. Hatano, could I ask you?"
 
 The arrow came out of nowhere and went straight through her temple.
 
-She stopped and turned, and found herself looking directly at Shinomiya, whose expression wore exactly the same disbelieving look Hatano's own face must have had. Two people from opposite ends of the world, who had nothing in common — and for one single moment, they were in complete and perfect agreement.
+She stopped and turned, and found herself looking directly at Shinomiya, whose expression wore exactly the same disbelieving look Hatano's own face must have had. Two people from opposite ends of the world, who had nothing in common, and for one single moment, they were in complete and perfect agreement.
 
 "Why me."
 
