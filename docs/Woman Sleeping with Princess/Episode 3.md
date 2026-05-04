@@ -3,7 +3,6 @@ parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
 title: "Episode 3"
 nav_order: 3
 ---
-Episode 3
 
 In the single room that still faintly carried Shinomiya's scent, Hatano sat at her desk facing the laptop. Mild late-morning light came through the window. The sound of keys — irregular, unhurried — rose and fell in the quiet, and characters accumulated on the screen one after another. When she mistyped a conversion she corrected it without expression, and when she had done it enough times the text had piled up into something substantial, and at a natural stopping point she lifted her hands.
 

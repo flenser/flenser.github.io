@@ -3,8 +3,9 @@ parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
 title: "Episode 2"
 nav_order: 2
 ---
-Episode 2
+![waking](/assets/images/woman-sleeping-with-princess-waking.jpg)
 
+\
 "…*Huh?*"
 
 They stared at each other for a few seconds, both of them wearing nothing. Then Shinomiya's eyes dropped. The next moment, her face went the colour of a boiled lobster, and she glared at Hatano over the top of the duvet she was yanking up to cover herself.
