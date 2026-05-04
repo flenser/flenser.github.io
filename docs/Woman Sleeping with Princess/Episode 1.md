@@ -3,7 +3,6 @@ parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
 title: "Episode 1"
 nav_order: 1
 ---
-Episode 1
 
 The smell of charcoal and oil, lemon and liquor, hung thick over the tables. The clinking of glasses and beer steins, the murmur of conversation, the burst of laughter — all of it filled the izakaya in overlapping waves.
 
