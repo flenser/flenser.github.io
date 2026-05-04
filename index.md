@@ -14,6 +14,7 @@ nav_exclude: true
 - [Eternal Rest (I'm Just Tired) ❌](/docs/Eternal Rest/eternal-rest.html)
 - [Good Night, Sleeping Beauty](/docs/Good Night, Sleeping Beauty/sleeping-beauty.html)
 - [How about afternoon tea? ✅](/docs/How about afternoon tea/how-about-afternoon-tea.html)
+- [I Want to Lick Your Tears. I Want You to Glare at Me](/docs/I Want to Lick Your Tears/i-want-to-lick-your-tears.html)
 - [If you kiss me, I'll tell you ✅](/docs/If you kiss me, I'll tell you/if-you-kiss-me.html)
 - [Love Grows in the Classroom After School ✅](/docs/Love Grows in the Classroom/love-grows-in-classroom.html)
 - [Monofilament Witch](/docs/Monofilament Witch/monofilament-witch.html)
@@ -26,9 +27,9 @@ nav_exclude: true
 - [You Bleed Into My Colourless World ✅](/docs/My Colourless World/my-colourless-world.html)
 
 {: .note }
-Most of these are still ongoing, new episodes will be translated and uploaded as soon as possible, usually same day or next.\
-✅ indicates the novel is completed, and all episodes are available on the site.\
-❌ indicates the novel is cancelled, the available episodes are on the site, but there won't be any more updates.
+>Most of these are still ongoing, new episodes will be translated and uploaded as soon as possible, usually same day or next.\
+>✅ indicates the novel is completed, and all episodes are available on the site.\
+>❌ indicates the novel is cancelled, the available episodes are on the site, but there won't be any more updates.
 
 ### Stories which are completed have been compiled into ePUBs
 
