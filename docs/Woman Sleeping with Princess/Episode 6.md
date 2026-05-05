@@ -60,7 +60,7 @@ The kind of voice that always sounds like it's amused by something.
 
 Hatano stopped, brows lifting.
 
-"Shindo."
+"Shindo."\
 "Out for a walk? That's unusual."
 
 Tall, good-looking, lean in the way athletes get. He was carrying a plastic bag — drinks, snacks; he was probably planning to drink somewhere tonight. He raised a hand in easy greeting while she was still registering surprise.
@@ -71,39 +71,39 @@ They drifted to a quieter spot near the convenience store — the side by the ru
 
 She looked away from it. "No," she said, flat. "Just walking. I hit a wall."
 
-"The novel?"
+"The novel?"\
 "Amateur, unfortunately. I can't sustain it for hours at a stretch."
 
 She drank the bitter coffee and looked at her own shadow, stretched by the fluorescent lamp. Shindo exhaled beside her.
 
-"The club, by the way — since you left."
-"Same as ever."
-"You already knew?"
+"The club, by the way — since you left."\
+"Same as ever."\
+"You already knew?"\
 "I don't flatter myself. It'd take you, or Shijima — or Shinomiya, maybe — to actually shift anything. I was a minority in that group."
 
 He fished a bag of rice crackers from his carrier and tossed them to her. She told him not to throw food. "My bad," he said, and shrugged. She helped herself to a peanut, and he started talking again.
 
-"…Shijima's been lonely. The last trace of actual literary activity in that room is gone — there's no one left for him to talk about writing with. Poor bastard."
-"If you feel that way, you could take it up yourself. You're his oldest friend."
+"…Shijima's been lonely. The last trace of actual literary activity in that room is gone — there's no one left for him to talk about writing with. Poor bastard."\
+"If you feel that way, you could take it up yourself. You're his oldest friend."\
 "Regrettably, I have zero interest in fiction. Manga is all I read, and I make no apologies."
 
 She couldn't summon the energy to reproach him, vaping with that complete lack of contrition. If he wasn't there for Shijima's sake, he was obviously there for the women. She was thinking exactly this when he read it off her face.
 
-"'Lecherous little creature, in it purely for the women' — that's what you're thinking."
-"Correct. Lecherous little creature, in it purely for the women."
+"'Lecherous little creature, in it purely for the women' — that's what you're thinking."\
+"Correct. Lecherous little creature, in it purely for the women."\
 "Correct. I am a lecherous little creature in it purely for the women."
 
 He said it with his chest out and not the slightest hint of apology. Hatano sighed. She felt sorry for Shijima. And then, with the air of someone who has just thought of something perfectly casual, Shindo said: "…Right, though."
 
 She looked at him. He smiled, the way people smile when they've been waiting to say something.
 
-"You're no longer a club member, so I'll share something interesting."
-"You're raising your own bar. Even professional comedians don't call their own material funny."
+"You're no longer a club member, so I'll share something interesting."\
+"You're raising your own bar. Even professional comedians don't call their own material funny."\
 "'Interesting' as in noteworthy, not as in amusing. And there's a small side story to go with it. I think you in particular will find it gets under your skin."
 
 He'd raised his own bar considerably. But the phrasing suggested it was something that actually involved her, and despite herself she made a small noise of interest.
 
-"How to seduce women?"
+"How to seduce women?"\
 "No. Why I joined this club."
 
 Hadn't he just said it was for the women? Hatano frowned.
@@ -118,12 +118,12 @@ So it wasn't general interest in the club's female membership. It was one partic
 
 He had that challenging half-smile. The answer that came to Hatano was the only one that made sense.
 
-"Shinomiya."
+"Shinomiya."\
 "Correct!"
 
 And then she waited for the rest of it, because the setup had been too elaborate for that to be the end. Shindo caught her flat expression and continued, with the timing of a game show host milking a moment:
 
-"Correct — and probably also incorrect."
+"Correct — and probably also incorrect."\
 "Make up your mind. You set the question."
 
 "Bear with me. Say I ask 'what do I love?' and you say 'apples.' Right answer — but the apple you're picturing, the Rosales-order, Rosaceae-family, Malus-genus apple, is the wrong one. The correct answer is Shiina Ringo, the greatest singer-songwriter in the world. That's what I mean."
@@ -148,7 +148,7 @@ She was interested, and was irritated to find herself interested, exactly as he'
 
 He shrugged. Their university was hardly unremarkable — it would qualify, by most external assessments, as a good institution, competitive to enter. The fact that he, at this university, had still found her out of reach said something about the sister.
 
-"She must be exceptionally academic."
+"She must be exceptionally academic."\
 "You'd think so."
 
 His tone deflected the assumption. She looked at him, asking with a glance, and he gave a rueful smile.
@@ -157,7 +157,7 @@ His tone deflected the assumption. She looked at him, asking with a glance, and 
 
 An artist. Not a word that appeared in Hatano's daily surroundings with any frequency — Shijima was the nearest equivalent, a novelist, if you counted literary fiction as art, which was its own argument. But that word, from Shindo's mouth, had a weight to it.
 
-"Is she at an art college?"
+"Is she at an art college?"\
 "No — straight sciences, extremely high-ranking institution. But as an artist, she's first-rate."
 
 Hatano couldn't quite picture it — a first-rate science student who was also a first-rate artist — and found she couldn't treat either half as ordinary. Shinomiya's sister, it was becoming clear, was a remarkable person.
@@ -174,15 +174,15 @@ In it: a foreign dignitary in an expensive suit, and standing beside him in fron
 
 Hatano handed the phone back. She had seen *first-rate* demonstrated, and she understood it now.
 
-"…She's Shinomiya's sister."
-"She is. And the one trying to work his way in through Shinomiya is me — Shindo."
+"…She's Shinomiya's sister."\
+"She is. And the one trying to work his way in through Shinomiya is me — Shindo."\
 "I didn't need that last part."
 
 She dismissed it cleanly. He shrugged without taking offence.
 
 It was true that an association with that woman could mean something — a university student with solo exhibitions in New York was not a person you encountered often, or perhaps ever. She pulled out her own phone and searched the name Shindo had given her. A long cascade of results: exhibitions, reviews, collections, artist profiles, a Wikipedia page. She found a forum thread and skimmed it; the comments were matter-of-fact about the scale of what she was doing. One post noted that it was probably only a matter of years before domestic media picked her up in earnest.
 
-"There are extraordinary people in the world."
+"There are extraordinary people in the world."\
 "There really are. Though — when it comes to the Shinomiya family specifically, it might be more accurate to say it's the *bloodline* that's extraordinary, not just the individual."
 
 Hatano considered that for a moment, and looked at the sister's Wikipedia entry.

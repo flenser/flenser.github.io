@@ -74,8 +74,8 @@ She bit her lip. Let distress move across her face. Let her head drop just sligh
 
 The effect on the young men nearby was immediate.
 
-"Hey, you don't have to talk to her like that!"
-"They're just having drinks together, what's the big deal?"
+"Hey, you don't have to talk to her like that!"\
+"They're just having drinks together, what's the big deal?"\
 "No matter how angry you are, you can't just say things like that to someone you've never met."
 
 The girl with glasses went "Excuse me?" at the chorus of rebukes, but her voice had developed a tremor. Shinomiya peeked at her from beneath lowered lashes, and turned her face so the hand pressed to her mouth would conceal the way her cheeks had softened with amusement.
@@ -144,7 +144,7 @@ By the time Hatano had spotted her, Shinomiya had been in the middle of the conf
 
 The club hierarchy was dissolved; the thin pretext of the one-night accident was fading. There was no particular reason Shinomiya would have followed when Hatano called out to her. And yet here she was. Hatano decided to be honest.
 
-"I happened to be passing and saw a familiar face in the middle of something. I said something."
+"I happened to be passing and saw a familiar face in the middle of something. I said something."\
 "…Are you blind? It was about to resolve itself."
 
 Shinomiya's cheeks puffed very slightly with dissatisfaction.
@@ -159,8 +159,8 @@ She didn't think Shinomiya was a good person. But she'd never thought of herself
 
 When Hatano tried to deflect the subject, Shinomiya sighed.
 
-"…Give me a break, Senpai. How I live my life is my business. What are you, my mother? You've only put your fingers in me, not given birth to me."
-"I might have put my tongue there too."
+"…Give me a break, Senpai. How I live my life is my business. What are you, my mother? You've only put your fingers in me, not given birth to me."\
+"I might have put my tongue there too."\
 "If you had, I wouldn't be symptom-free, so no you didn't."
 
 She stuck out her tongue. Impossible girl.
@@ -183,11 +183,11 @@ Hatano turned toward the station road, deciding the conversation had run its cou
 
 Then someone grabbed her arm.
 
-"Hey!" — a voice halfway between irritated and startled. She turned to find Shinomiya holding her arm with both hands, wearing an expression of unmistakable displeasure.
-"What?"
-"*What?* You were just going to leave like that?! Are you an idiot?!"
-"How is it that I'm the idiot here? I was leaving because you clearly wanted me gone!"
-"I said the *lecture* was annoying! I didn't say go home!"
+"Hey!" — a voice halfway between irritated and startled. She turned to find Shinomiya holding her arm with both hands, wearing an expression of unmistakable displeasure.\
+"What?"\
+"*What?* You were just going to leave like that?! Are you an idiot?!"\
+"How is it that I'm the idiot here? I was leaving because you clearly wanted me gone!"\
+"I said the *lecture* was annoying! I didn't say go home!"\
 "What other business do I have with you besides lectures, you impossible girl!"
 
 She finally snapped and insulted her properly, and Shinomiya's cheeks flushed with contained fury as she glared back. They had drifted off the main road, and there was no one around to witness this. Small mercy.
@@ -214,16 +214,16 @@ She was aware of her body responding, of something stirring in the direction of 
 
 She said it plainly. Shinomiya's brow knitted.
 
-"You already slept with me once — what's the difference? Or am I just not your type?"
-"You're the kind of person I hate most in the world. But I think your face is beautiful."
-"Then what's the problem?"
+"You already slept with me once — what's the difference? Or am I just not your type?"\
+"You're the kind of person I hate most in the world. But I think your face is beautiful."\
+"Then what's the problem?"\
 "You're a rotten little creature, but — that message you sent this afternoon, and things like that — I don't think you're a bad person. And because I don't think you're bad, I want you to reconsider how you're living. That's why I'm saying no."
 
 Hatano held her ground, stubborn. Shinomiya pouted.
 
-"You're like someone who turns down the bar tab but won't let me go to any other bar. Relax a little. One night doesn't mean anything."
-"No."
-"Even so?"
+"You're like someone who turns down the bar tab but won't let me go to any other bar. Relax a little. One night doesn't mean anything."\
+"No."\
+"Even so?"\
 "If you want me to take responsibility, I'll pay for a night somewhere else."
 
 She was already reaching for her wallet as she said it. It would sting, but she'd sooner take the financial hit than bend her own argument. She was pulling out the notes when Shinomiya made a defeated sound — "All right, fine, I give up" — and stopped her hand.

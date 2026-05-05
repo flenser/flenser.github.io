@@ -22,8 +22,7 @@ Third-round finalists: ten names. Unlike the previous rounds, it was the kind of
 
 She opened the page and scanned the titles and pen names. After a few seconds she let out a long, slow breath, dropped her head back against the pillow with a thud, and sent her phone sailing onto the duvet.
 
-She hadn't made it.
-
+She hadn't made it.\
 "…Shouldn't have looked."
 
 She lay there in a spread-eagle, speaking to the ceiling. Looking wouldn't have changed anything, but she could at least have made it through the day with her energy intact. She was half-tempted to skip lectures and stay here. She glanced at the page again, clutching at something, and then her eye caught a pen name she knew. 【Shijima Shijima】, the club president's name, in full.
@@ -42,8 +41,7 @@ A remarkable person, truly.
 
 Hatano pushed open the door with envy and admiration turning over each other in her chest. Inside, most of the club's members had already gathered, clustered around the tables in their usual groups, chatting. They glanced at her briefly as she came in and went back to their conversations. Shijima, notebook open as ever and keeping half an ear on the chatter around him, caught her eye with a look that managed to be apologetic and knowing at once. She understood what it meant, and gave a wry smile.
 
-"Congratulations."
-
+"Congratulations."\
 "…Sorry."
 
 He heard the layer of warmth beneath the word and looked genuinely mortified. He wasn't indifferent to competition results just because he was already professional, he would have checked the announcement, and he knew what it meant that one of them had passed and the other hadn't. It was usually the one who passed who felt awkward; the reversal was almost funny.
@@ -52,8 +50,7 @@ He heard the layer of warmth beneath the word and looked genuinely mortified. He
 
 She said it while pulling her notebook and the paperbacks she'd been using for reference from the locker and pressing them into her bag. Shijima gave her a look that was something close to admiration.
 
-"Yeah. That's the way."
-
+"Yeah. That's the way."\
 "That's my line. …Go and win it."
 
 They were not equals, Hatano knew that. She was still a wannabe, an amateur; he was a professional. The authority behind the instruction was more than a little uncertain. But they were in the same place, held the same commitment, and that made them something to each other, even if no clean word existed for it.
@@ -74,10 +71,8 @@ Then someone cut across the moment.
 
 The voice was soft and deliberate, just above a murmur. Shinomiya: shoulders bare, hair pulled up into a ponytail today, which bared a graceful nape that was almost certainly drawing a line of male attention across the room. The sound of her voice brought the other night briefly and vividly to mind, and Hatano stilled involuntarily and looked at her. Shinomiya, for her part, gave Hatano a single glance and then returned her full attention to Shijima, as though she weren't there.
 
-"Ah, right… we were talking about the fiction competition. She submitted to the same prize I did."
-
-"Wow, amazing~! Did you pass, Shijima-san?"
-
+"Ah, right… we were talking about the fiction competition. She submitted to the same prize I did."\
+"Wow, amazing~! Did you pass, Shijima-san?"\
 "Yes, the next round is the final selection. There's nothing I can do about it now, but I can't help being nervous."
 
 Shijima laughed awkwardly, visibly unsettled by Shinomiya pressing in close. She was formidably skilled at this, as always. The scene was exactly what it always was, the same gestures, the same performance. And yet something about it looked faintly different to Hatano now, since the other night, since she had heard what Shinomiya actually thought, since she had held her. Hatano glanced at the other women in the group and found several of them visibly fuming.
@@ -88,8 +83,7 @@ But Shinomiya, who seemed to treat their negative attention as sustenance, was s
 
 Hatano watched the women's suppressed resentment and thought: this is going to get complicated. She calculated the right moment to slip away. Shijima, however, seemed unaware of any of it; he couldn't seem to take his eyes off Shinomiya, standing there like that, and his voice went a little unsteady.
 
-"I, it's not a win yet!"
-
+"I, it's not a win yet!"\
 "But just reaching the final selection is incredible. Or are you saying that results are the only thing that matters, that effort without a result is worthless?"
 
 She used her eyes to indicate Hatano as she said it, quietly invoking her third-round elimination as a rhetorical hostage. Shijima found himself without a response for a moment. Then, with some effort, he gathered himself and put his hands together, apologetic.
@@ -104,18 +98,15 @@ A warm, clean smile. Shijima looked apologetic but relieved.
 
 Then a voice interjected from nearby, some young man leaning in.
 
-"So how about you come for a drink with me? You're not busy."
-
+"So how about you come for a drink with me? You're not busy."\
 "Oh, Shindo-san."
 
 Shindo, one of the better-looking men in the club, actually. Tall, lean, some muscle to him. A third-year, like Hatano and Shijima; childhood friends with Shijima, or close to it. He and Shijima were the club's acknowledged top tier of attractive men, and the female membership's attention was roughly divided between them. Iizuka, who had been about to say something, let his shoulders drop and listened to the exchange with a resigned expression.
 
 Shinomiya looked briefly surprised, then glanced at the women, and the corners of her mouth softened, just for a moment, before she rearranged it into a delighted smile.
 
-"Oh, really? Well, I won't say no to that~"
-
-"I found a good bar near the station. Quite stylish."
-
+"Oh, really? Well, I won't say no to that~"\
+"I found a good bar near the station. Quite stylish."\
 "Wonderful! I'll have to watch myself, though, can't drink too much."
 
 She made a face that suggested she was still mortified about the other night's lapse. Shindo laughed easily and said "Fair enough, I'll keep an eye on you." He was a self-confessed lover of women, but Hatano knew he was the kind of man who kept to certain lines. And he was Shijima's friend.
@@ -162,18 +153,15 @@ The quietly delivered observation turned Sasaki's face an even deeper red. She o
 
 It was spoken softly, in that same sweet register, and Sasaki went speechless. She scrambled to respond, and then, as if the obvious had only just occurred to her, made a sour face. But she tried anyway.
 
-"I, I read at home, I do it all the—"
-
+"I, I read at home, I do it all the—"\
 "Oh really."
 
 Shinomiya looked mildly surprised, then moved lightly over to where Sasaki was sitting and began touching the items on the table in turn, the snacks, the phone showing an entertainment video, the notebook filled with doodles and assignment worksheets, and indicated each of them. Sasaki watched each in sequence, growing more uncomfortable by the moment, and tried to object.
 
 Shinomiya didn't let her.
 
-"So then, what 'activities' exactly?"
-
-"…At, home—"
-
+"So then, what 'activities' exactly?"\
+"…At, home—"\
 "Come to the clubroom, chat with friends about your favourite idol. Eat snacks, work on assignments. Watch videos. That's what Sasaki-san's activities look like, in the Literary Appreciation Club. Very healthy, very normal, exactly what you'd expect from a third-year woman whose job-hunting is wrapped up."
 
 Shinomiya's smile went just a shade sharper. Sasaki's face curdled.

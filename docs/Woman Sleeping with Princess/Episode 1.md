@@ -18,8 +18,7 @@ Black hair to the shoulder. Understated clothes. Not the type to dress herself u
 
 He could have just asked, if he wanted to know. But he didn't know how — couldn't help but make everything an attack, couldn't seem to factor in the feelings of the person he was talking to. Hatano knew she wasn't one to talk, but that quality in him grated on her. Among all the members of this university's Literary Appreciation Club, a gathering of misfits if ever there was one, he was the second person she hated most.
 
-"I don't understand why a 'Literary Appreciation Club' needs to drink together once a week in the first place."
-
+"I don't understand why a 'Literary Appreciation Club' needs to drink together once a week in the first place."\
 "There she goes! Being all high and mighty again! Save the big talk for when you've actually gone pro, yeah? Still a wannabe, last I checked!"
 
 The young man knocked back his drink and cackled. The others around him offered diplomatic smiles or half-hearted rebukes. This was routine, Hatano had long since stopped rising to it, absorbing the jabs with a sigh and letting them pass, so no one felt the need to intervene too forcefully. But tonight was slightly different.
@@ -30,8 +29,7 @@ The one who stepped in was a man with a strikingly handsome face, watching from 
 
 It was a sorry truth, but hierarchies form even in groups of a dozen people. At the undisputed top sat Shijima, and in this little world, his word was law.
 
-"Sorry about him, Hatano. I was hoping we'd actually get to talk about writing tonight."
-
+"Sorry about him, Hatano. I was hoping we'd actually get to talk about writing tonight."\
 "It's fine. I just won't come again."
 
 Hatano said it with a thread of irritation running through her voice, and Shijima gave a rueful smile and said nothing more.
@@ -42,8 +40,7 @@ The question came from a petite young woman nearby, dressed in something that ba
 
 Shijima — to fill in the picture, had won a new writer award from one of the major mystery publishers while still a student, and had since been something of a local literary celebrity. He'd even taken a book prize. Hatano found herself envying him, despite herself; she respected him genuinely.
 
-"Some competitions are amateurs-only, sure. But publishers have different needs depending on the season, and if sales aren't there, they'll look elsewhere, so most of them accept professionals too. I'm just trying to find places that suit the kind of work I want to write."
-
+"Some competitions are amateurs-only, sure. But publishers have different needs depending on the season, and if sales aren't there, they'll look elsewhere, so most of them accept professionals too. I'm just trying to find places that suit the kind of work I want to write."\
 "Wow, Shijima-san, you're so driven! That's so admirable."
 
 Even Shijima's composure softened slightly under the full force of Shinomiya's attention. The other women in the group bristled at what was obviously a calculated move; some of the men were already angling for a way to cut in and talk to her themselves.
@@ -84,10 +81,8 @@ She looked up at Shijima with a crimson face and glistening eyes, pressing close
 
 Shinomiya's brow faintly twitched. She looked openly put out for a moment, and then, within seconds, arranged her face into a smile and murmured "I see, that's a shame…" with a small, resigned drop of her shoulders. Then she swept the assembled men with a sidelong look of quiet desolation, and waited.
 
-"I — I'll walk you! If that's okay!"
-
-"I was going to get a taxi anyway, so we could share!"
-
+"I — I'll walk you! If that's okay!"\
+"I was going to get a taxi anyway, so we could share!"\
 "You're a grown woman, you can get yourself home, can't you? Right, Shinomiya-san?"
 
 It was a grim spectacle. The men jostled; the women pushed back. Hatano was already turning toward the station, she wanted no part of this, when Shijima, that one unsullied thing in the whole sorry swamp, smoothed everything over.
@@ -120,12 +115,9 @@ She would not send Little Red Riding Hood home with the wolves. She gave in, gru
 
 The gathering dissolved on terms nobody was entirely happy with. Hatano took hold of Shinomiya's arm and steered her toward the station. The look on both their faces was deeply, mutually aggrieved. No one had won anything.
 
-"This is a nightmare. Why did it have to be you, Senpai…"
-
-"Say it somewhere I can't hear you, then. I'm walking you home."
-
-"If I say it somewhere you can't hear, it's gossip."
-
+"This is a nightmare. Why did it have to be you, Senpai…"\
+"Say it somewhere I can't hear you, then. I'm walking you home."\
+"If I say it somewhere you can't hear, it's gossip."\
 "If you say it to my face, it's just rude."
 
 With none of her carefully cultivated softness in evidence, Shinomiya grumbled with open hostility, cheeks still blazing. Her footing was genuinely unsteady — there would be no polished performance of being-just-drunk-enough-to-need-a-man-to-escort-her here. Months into knowing each other, and Hatano was only learning this now: Shinomiya was not, in fact, capable of that kind of calculation.
@@ -134,24 +126,19 @@ With none of her carefully cultivated softness in evidence, Shinomiya grumbled w
 
 Lip pushed out, muttering under her breath. So this is who she really is, Hatano thought — and if the coquettishness was a performance, this proved it. She walked on, absorbing the complaints with a sigh.
 
-"With a face like yours, you could have any man you wanted."
-
-"…I don't actually like men, you know."
-
+"With a face like yours, you could have any man you wanted."\
+"…I don't actually like men, you know."\
 "What?"
 
 Hatano turned to her, brow furrowed, and Shinomiya looked back with a vague, tipsy little smile.
 
-"When a man walks a cute girl home, that means he recognises that she's cute, right? And when he does that, other women get jealous."
-
-"Which is why it was a disaster back there."
-
+"When a man walks a cute girl home, that means he recognises that she's cute, right? And when he does that, other women get jealous."\
+"Which is why it was a disaster back there."\
 "Jealousy is admiration. It means they've acknowledged me."
 
 She said it with a certain private pride. Whatever reason she had for caring so much about that, the logic itself wasn't wrong — the urge to be near someone, the envy of someone being fussed over by men, both of those were in their own way a form of recognition.
 
-"That's why I hate you, Senpai. You don't dislike me — but you don't like me either. That's the worst thing. Probably the thing I hate most in the world. You, specifically."
-
+"That's why I hate you, Senpai. You don't dislike me — but you don't like me either. That's the worst thing. Probably the thing I hate most in the world. You, specifically."\
 "Good for you. You're the person I hate most in the world too."
 
 The words came out more lightly than Hatano intended — playing along with a drunk girl's ramblings, no more.
@@ -160,16 +147,13 @@ The words came out more lightly than Hatano intended — playing along with a dr
 
 Something a child would say. Hatano had to resist the urge to let go of her arm — but if she went over a guardrail, she'd be dreaming about it for weeks. She gritted her teeth and kept dragging her toward the station.
 
-"So. Which station?"
-
-"Tachikawa."
-
+"So. Which station?"\
+"Tachikawa."\
 "I beg your pardon?!"
 
 Hatano pulled out her phone to check the time, then muttered "That's the opposite direction" with what was nearly a click of the tongue. Tachikawa from here, and then all the way back — and she lived in the countryside, for her sins. The last train would certainly be gone by the time she returned.
 
-"The last train won't wait. You'll have to get home yourself from here."
-
+"The last train won't wait. You'll have to get home yourself from here."\
 "Excuse me?! That's so irresponsible! You're supposed to see me all the way back, even if it means a taxi!"
 
 Her words were already slurring at the edges, and her feet were uncertain, her eyes half-closed. Sleeping past her stop was one thing, but something happening between the station and her door was another kind of problem entirely. A taxi to Tachikawa was beyond Hatano's budget, but leaving her felt equally impossible.
@@ -180,8 +164,7 @@ She lectured her, irritated, and got back: "Men always make sure I get home prop
 
 Hatano raked a hand through her hair and let out a long, decisive breath.
 
-"…You can sleep at my place tonight."
-
+"…You can sleep at my place tonight."\
 "Eh?! Your place?! I'll catch something!"
 
 A concession worth a hundred million steps, received with a look of distinct displeasure. Hatano felt a powerful urge to tear out a fistful of that chestnut hair — but after a deep, drawn-out sigh, Shinomiya lifted her shoulders in a small shrug.
@@ -198,16 +181,11 @@ She resisted the impulse — too much effort after the fact — and with what fe
 
 There was probably no point saying anything at this stage, but Hatano would say what needed to be said before going to sleep herself. She addressed the closing eyes.
 
-"I have class tomorrow, so be up before I leave the house."
-
-"Mm."
-
-"I'll bill you for the cleaning. I'm not sleeping in a bed you've been in."
-
-"Yep yep."
-
-"And I'm taking the sofa, so be grateful."
-
+"I have class tomorrow, so be up before I leave the house."\
+"Mm."\
+"I'll bill you for the cleaning. I'm not sleeping in a bed you've been in."\
+"Yep yep."\
+"And I'm taking the sofa, so be grateful."\
 "Ehhm."
 
 The human language was dissolving. Hatano no longer had the energy to be annoyed. She watched Shinomiya's breathing settle into a rhythm, decided she would do the same, and let the thought go. She threw the duvet over her — a cold autumn night, and she didn't want to deal with a sick girl tomorrow — grabbed the blanket for herself, fell onto the sofa, and clicked off the light with the remote.
