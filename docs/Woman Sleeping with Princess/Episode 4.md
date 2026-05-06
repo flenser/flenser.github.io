@@ -84,7 +84,7 @@ She wasn't targeting anyone's husband. She wasn't stealing anyone's partner. She
 
 She felt wonderful. Someone had wanted to drink with her, and someone was jealous of that, and someone was now defending her. Every person in this small circle was registering *Shinomiya* — seeing her, measuring her, responding to her, whether with desire or resentment or protectiveness. She was real to all of them. That warmth settled through her in a way that was almost physical.
 
-Whatever else she might feel unequal to thanking her parents for, she owed them this, at least — a face that made rooms react.
+Whatever else she might have to thank her parents for, she owed them this, at least — a face that made rooms react.
 
 She suppressed a yawn that had crept up on her, and redirected the small involuntary tear it brought to the corner of her eye, and looked up at the most spirited of the men.
 
