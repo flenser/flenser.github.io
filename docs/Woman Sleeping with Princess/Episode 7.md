@@ -345,9 +345,9 @@ She was looking at the poster with something quiet in her face. Younger than she
 
 She said it softly, to the air, and Hatano felt something fold open in her chest. Shinomiya knew perfectly well what she was doing — Hatano was not a person she had reason to expect anything from in this direction, but she also knew what kind of person Hatano was by now. And saying this in front of her was, whether she meant it to be or not, a form of invitation.
 
-"Do you want to go?"
+"Want to go?"
 
-The words were out before Hatano had quite decided to say them. A proposal she couldn't have imagined making a few weeks ago. Shinomiya looked at her, taking a moment to process the meaning — two syllables, four sounds, the simplest possible sentence — and then she understood that she'd said something that sounded very much like someone who wanted to be invited somewhere, and her face went red and she rushed to undo it.
+The words were out before Hatano had quite decided to say them. A proposal she couldn't have imagined making a few weeks ago. Shinomiya looked at her, taking a moment to process the meaning — three words, the simplest possible sentence — and then she understood that she'd said something that sounded very much like someone who wanted to be invited somewhere, and her face went red and she rushed to undo it.
 
 "N — no! Please! Are you asking me on a *date?!* This is why women who can't get anyone are such a problem — you're nice to them for five minutes and they take it the wrong way! I can practically *see* your ulterior motives! Your ulterior motives are doing most of the talking at this point! They're so loud I can hear them from the inside!"\
 "Your vocabulary for insults really is exceptional."
