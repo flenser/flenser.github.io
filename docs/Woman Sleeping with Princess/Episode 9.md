@@ -30,7 +30,7 @@ The red light ahead blurred softly in the mist of their breath. Shinomiya narrow
 
 Hatano thought about it.
 
-"I'm told I'm very sensible."
+"I'm told I'm very sensible."\
 "That's a lie."
 
 No inflection, no follow-up — just a flat instant denial. No room for rebuttal. And it was true, she supposed. She had friends; not many, but most of them would call her unusual without hesitation. She shrugged, and Shinomiya watched her with something almost like amusement. "Common sense is just a slightly more constricting way to live," Shinomiya murmured.
@@ -75,7 +75,7 @@ Hatano looked at her. Shinomiya took that as acknowledgement.
 
 The *interesting place* she would only describe as interesting turned out to be an art museum, a ten-minute walk from a station in central Tokyo. The grounds were startling in their scale; the exterior was large and immaculate. Hatano lost her words. Shinomiya walked as though she knew every step. But — the gates were closed, the route through was dark, and the hour was approaching ten. The museum was clearly not open.
 
-"It's closed, isn't it."
+"It's closed, isn't it."\
 "It's fine."
 
 Shinomiya approached the security guard stationed near the gate, drew something from her bag, and presented it. The guard had been watching them with some wariness, but the moment he saw the pass — or whatever it was — he straightened, offered a proper bow, and said "Confirmed. Thank you for your cooperation." He murmured something into his radio, looking toward the building.
@@ -124,7 +124,7 @@ A voice Hatano hadn't heard from her before — flat, mechanical. She stood to o
 
 The tall woman glanced briefly at Hatano, then turned to Shinomiya.
 
-"So late in the evening — what brings you?"
+"So late in the evening — what brings you?"\
 "I came to see the exhibition. My sister's — Rōkai's."
 
 At that, the tension in the woman's posture released — and something almost like relief moved across her face. The particular expression of someone who had wanted something understood for a long time and now found that it had been.
@@ -133,15 +133,15 @@ At that, the tension in the woman's posture released — and something almost li
 
 She looked at Shinomiya quietly, with a small smile.
 
-"If you had come during the day, the sensei would have been so pleased."
+"If you had come during the day, the sensei would have been so pleased."\
 "The family wouldn't want a dropout appearing in daylight as Rōkai's sister."
 
 Shinomiya said it coolly, dismissively. The woman went still — neither agreement nor denial available. The museum staff looked uncertain. Hatano closed her eyes briefly and absorbed the confirmation of what she'd already suspected. A family that didn't want its less accomplished member showing up in the same light as its star. The shape of Shinomiya's world assembled itself more clearly, and the feeling it left was bleak.
 
 The tall woman composed herself and redirected.
 
-"The contractors left a short while ago, so the exhibition rooms are empty. We'll keep the lights on for a while longer — please let the security desk know before you leave."
-"Understood. Thank you."
+"The contractors left a short while ago, so the exhibition rooms are empty. We'll keep the lights on for a while longer — please let the security desk know before you leave."\
+"Understood. Thank you."\
 "Please take your time. The sensei's *Gunjō* from last year is extraordinary."
 
 Shinomiya nodded, looking down, and started walking. Hatano followed. But the tall woman had been curious about Hatano, and spoke up before they could pass.
@@ -150,7 +150,7 @@ Shinomiya nodded, looking down, and started walking. Hatano followed. But the ta
 
 Hatano had been prepared to remain unintroduced. Shinomiya stopped, looked briefly at Hatano, and seemed to consider for a moment how to put it. Something safe and practical was forming in her expression — she turned back to the woman and began:
 
-"She's my university senpai—"
+"She's my university senpai—"\
 "—She's my friend."
 
 Hatano said it before Shinomiya's sentence could close, looking steadily at the tall woman.
@@ -193,7 +193,7 @@ She resumed walking. Hatano wanted to argue — but the language of *effort is a
 
 She paused.
 
-"What you and your sister both found was watercolour."
+"What you and your sister both found was watercolour."\
 "…Yes."
 
 Shinomiya looked around at the paintings as though caught in a current.
@@ -228,7 +228,7 @@ What remains in a piece of art when there's nothing — no acknowledgement, no r
 
 She had chased after someone she could never reach, had been sheltered by that person's rage on her behalf, and had seen what her protected and sheltered painting amounted to: nothing. If the most ordinary human desire — to be seen by someone, to exist in someone's awareness — was something she'd been denied in every other part of her life, and if a beautiful face turned out to offer a simple, immediate way to have it — wasn't running toward that the natural thing to do?
 
-"Senpai — you said once that you understood something of what I feel."
+"Senpai — you said once that you understood something of what I feel."\
 "…I did."
 
 The night she'd had Shinomiya stay over the second time. And Shinomiya had said to her: *doesn't it hurt, when no one acknowledges you* — and she had answered: *of course it hurts, that's why I write, to make them acknowledge it.* The difference between them surfaced cleanly.
@@ -277,8 +277,8 @@ She was thinking this when Shinomiya looked at her and her eyes went wide in sur
 
 Shinomiya watched this, and her expression did something that had no name in any category Hatano had assembled for her.
 
-"I think you're a good person. I'm grateful for today. And — for the first time, I felt something that had nothing to do with painting, or with desire, or with wanting to be wanted. Just — enjoyment. Because of you."
-"But," she went on, and her face turned just slightly sad.
+"I think you're a good person. I'm grateful for today. And — for the first time, I felt something that had nothing to do with painting, or with desire, or with wanting to be wanted. Just — enjoyment. Because of you."\
+"But," she went on, and her face turned just slightly sad.\
 "I'm not going to change. I'll probably keep living this way, and keep filling myself up this way. So if you're hoping for something different from me — please give up on that. Please let me go. You're someone who can live on your own."
 
 She said it in front of *Gunjō*, with the deep blue painting behind her, and she looked very lonely.

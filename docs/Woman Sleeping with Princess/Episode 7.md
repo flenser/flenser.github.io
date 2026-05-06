@@ -34,9 +34,9 @@ Shinomiya's voice, wary and faintly puzzled.
 
 Hatano had called on impulse, with no particular plan — and she realised this now, with the phone to her ear, and for a moment could not find anything to say.
 
-"Ah, yes. It's Hatano."
-*"It's not a rotary phone — I can see who's calling. Are you slow? The question I was asking was: what possible reason do you have for calling me out of nowhere on a holiday, and you should answer it immediately".*
-"I'd prefer you didn't try to compress an entire paragraph into a single sentence."
+"Ah, yes. It's Hatano."\
+*"It's not a rotary phone — I can see who's calling. Are you slow? The question I was asking was: what possible reason do you have for calling me out of nowhere on a holiday, and you should answer it immediately".*\
+"I'd prefer you didn't try to compress an entire paragraph into a single sentence."\
 *"Please use warm and kind words to decompress it".*
 
 Whatever she said next, Hatano already wanted to say it back harder. But then Shinomiya continued:
@@ -45,13 +45,13 @@ Whatever she said next, Hatano already wanted to say it back harder. But then Sh
 
 And Hatano's mouth closed. Because asked again directly, she had to admit she had no specific reason. The fog in her chest — whatever was clearing it was going to be somewhere on the other side of a real conversation with this girl, that was all she'd known. But she could hardly say *I wanted to talk to you*. She made some preparatory noise — "ah, well, that's" — and searched for words, and came up empty.
 
-*"Wait, did you just call with nothing to say"?*
-"N — no. I have something."
+*"Wait, did you just call with nothing to say"?*\
+"N — no. I have something."\
 *"Then say it. I don't want to allocate my finite life resources to you".*
 
 Caustic, yes, but not entirely unfair given the current silence. Hatano turned it over for another moment, and then decided that if she'd called on impulse, she might as well go the rest of the way on impulse. She said the true thing.
 
-"…I wanted to talk to you."
+"…I wanted to talk to you."\
 *"Ew, gross".*
 
 Hatano hung up reflexively. She stared at the call-ended screen, anger and involuntary laughter arriving at the same moment, and threw the phone onto the bed. "*That little—!*" she said, out loud, to no one. "*Why do I have to agonise over you, you absolute*—" she followed it with a few more words and pressed her fingers against her forehead and breathed.
@@ -70,8 +70,8 @@ Her thumb almost pressed End again. She held the impulse back with her entire re
 
 Someone had to be the grown-up. Hatano offered the apology with some restraint. The unexpectedness of it seemed to knock Shinomiya slightly off balance; she made a disgruntled sound, then sighed. *"Fine,"* she said, magnanimous about it.
 
-*"So what were you going to say? I'm free right now, so I'll give you a little time. But if you don't make me laugh at least once a minute, I'm hanging up."*\
-"Is this a comedy audition."
+*"So what were you going to say? I'm free right now, so I'll give you a little time. But if you don't make me laugh at least once a minute, I'm hanging up."*\\
+"Is this a comedy audition."\
 *"Pfft — …all right, two minutes."*\
 
 She'd broken through involuntarily, and Shinomiya granted two minutes in a voice still softened by the laugh. It was a surprisingly low bar from someone who'd set it. Hatano pressed on before the moment closed.
@@ -80,7 +80,7 @@ She'd broken through involuntarily, and Shinomiya granted two minutes in a voice
 
 She assembled the words in her head as she went, the way she might work through a passage that needed to be right. Shinomiya heard her out, and said *"…I see"* — no quick deflection, no easy mockery. There was something in it that suggested she was actually sitting with it.
 
-"I don't live well enough to go around weighing in on other people's choices, and the need to be recognised — I understand that, I really do. But—"
+"I don't live well enough to go around weighing in on other people's choices, and the need to be recognised — I understand that, I really do. But—"\
 *"…Acting like my girlfriend because we slept together once?"*\
 
 The complaint came out slightly sulky, with a faint edge of displeasure — but no real refusal in it. The tone of someone who felt they ought to object, rather than someone who meant it. Hatano knew this about her by now: when it came to conversations that mattered, Shinomiya's mouth might deflect, but the rest of her was present and paying attention. That was precisely why she was so hungry to be taken seriously.
@@ -113,18 +113,18 @@ It was a weekend, and the crowds near the station were considerable, but it took
 
 She looked up at Hatano's approach. Those deep black eyes. She wasn't in a particular mood — just slightly, atmospherically subdued. Without a word she tucked her phone into her bag and pushed herself off the wall. She studied Hatano's face for a moment, then exhaled something faintly melancholy.
 
-"What am I doing. Spending a holiday looking at Senpai's face."
+"What am I doing. Spending a holiday looking at Senpai's face."\
 "I could say the same thing. I'm not sure what I'm doing either."
 
 Hatano pressed her fingers briefly against her forehead, then shook it off.
 
-"…Thank you for coming. I didn't expect you to agree."
+"…Thank you for coming. I didn't expect you to agree."\
 "It's only the towel. And, I was planning to go out anyway. This is just on the way."
 
 Whether or not that was true, Hatano was willing to accept it as stated. She had doubted that a conversation like this could really be finished over the phone. When Hatano let herself smile slightly, Shinomiya caught the expression and looked briefly put out.
 
-"Well? You drag a junior out to meet you and then stand here talking in the street?"
-"It's better than sitting together somewhere more comfortable."
+"Well? You drag a junior out to meet you and then stand here talking in the street?"\
+"It's better than sitting together somewhere more comfortable."\
 "That's fair. I'd sooner do a lap of the sewers than go on a date with Senpai."
 
 The sewers would get her tetanus well before anything else.
@@ -143,7 +143,7 @@ Shinomiya said it quietly, and her eyes lit up.
 
 She was obviously interested — and just as obviously trying not to show it, biting her lip, pulling her expression back into something composed, fidgeting slightly. Hatano had been operating on the assumption that this was a person whose diet consisted exclusively of alcohol and the company of men, and the entirely age-appropriate reaction was unexpectedly affecting. She couldn't even think of something condescending to say.
 
-"I'll pay."
+"I'll pay."\
 "Obviously."
 
 Still impossible. Still.
@@ -204,13 +204,13 @@ Shinomiya watched the scene, and let the words drift out on the air.
 
 Vague enough to take Hatano a moment — but she followed it, broadly. What surprised her more was that it was Shinomiya who'd said it — that this was a register she apparently inhabited.
 
-"I wouldn't have guessed that about you. That you had that kind of sensitivity."
+"I wouldn't have guessed that about you. That you had that kind of sensitivity."\
 "I have a normal life I just don't have reasons to show it most of the time."
 
 Shinomiya pouted in mild protest, then grew nostalgic.
 
-"I watched a Western movie recently on a streaming service. About a chef who gets fired from a hotel and starts a food truck with his son — their relationship was strained."
-"…*Chef.* Jon Favreau."
+"I watched a Western movie recently on a streaming service. About a chef who gets fired from a hotel and starts a food truck with his son — their relationship was strained."\
+"…*Chef.* Jon Favreau."\
 "That's it!"
 
 Her expression brightened immediately. Hatano found herself more surprised that Shinomiya had seen it than pleased at getting the title right. She'd written off this person's cultural landscape entirely.
@@ -233,8 +233,8 @@ Not the smile she used as armour. Not the smile she used on men. Something behin
 
 Shinomiya leaned back against the bench and watched a leaf come down, and spoke.
 
-"That film — most people would call it a feel-good comedy with a happy ending. Washed-up chef falls from grace and then surpasses even his own peak again."
-"Low-stress viewing. Cheerful, forward-moving — I have a soft spot for that register."
+"That film — most people would call it a feel-good comedy with a happy ending. Washed-up chef falls from grace and then surpasses even his own peak again."\
+"Low-stress viewing. Cheerful, forward-moving — I have a soft spot for that register."\
 "Maybe we're compatible in the things we watch. In the things we watch."
 
 An oblique, meaningful little smile. "Maybe," Hatano agreed, and let it pass.
@@ -267,8 +267,8 @@ Shinomiya's eyes opened wide — the pupils caught and held Hatano like a pin go
 
 Hatano had been about to follow up with questions — the kind that would have sounded like a lecture — and looking at that face, she stopped herself. She waited instead.
 
-"…I didn't know Shindo-san knew all that."
-"He was in your sister's year at school, apparently."
+"…I didn't know Shindo-san knew all that."\
+"He was in your sister's year at school, apparently."\
 "Of course. He was after Nee-chan all along."
 
 She said it with understanding rather than bitterness.
@@ -301,7 +301,7 @@ But then Shinomiya's expression did something new.
 
 It wasn't the amused predator's look. It wasn't discomfort, or the performance of softness, or the unguarded delight she'd shown over the crepe. It was none of the faces Hatano had catalogued. It was a smile with nothing behind it — clear, easy, the kind you show a friend without thinking about it.
 
-"You're a strange person. Probably an endangered species. But—"
+"You're a strange person. Probably an endangered species. But—"\
 "—thank you. I'm all right — please don't worry about it."
 
 In that moment, Hatano saw Shinomiya — the real one, the core of her.
@@ -310,7 +310,7 @@ She wasn't disappointed to have the offer turned away. She was only, very slight
 
 There was nothing left on that subject worth pressing. She needed to get Shinomiya back before it got dark. She tossed the wrappers in the bin and indicated the direction of the station.
 
-"Let's head back. I'll walk you."
+"Let's head back. I'll walk you."\
 "Thank you for the food."
 
 Shinomiya slung her bag over her shoulder and fell into step behind Hatano.
@@ -327,12 +327,12 @@ One of the largest in the country, not far from the station. The kind of place m
 
 Shinomiya looked at the poster with a vague, dreaming quality in her voice.
 
-"I'd forgotten it was near here."
+"I'd forgotten it was near here."\
 "The aquarium. Do you like it?"
 
 She shook her head, a little offhand.
 
-"Not especially. It's just — the penguin show."
+"Not especially. It's just — the penguin show."\
 "The penguin show?"
 
 The poster listed the show's times. The next one: eight o'clock. It was just past five. Plenty of time.
@@ -349,7 +349,7 @@ She said it softly, to the air, and Hatano felt something fold open in her chest
 
 The words were out before Hatano had quite decided to say them. A proposal she couldn't have imagined making a few weeks ago. Shinomiya looked at her, taking a moment to process the meaning — two syllables, four sounds, the simplest possible sentence — and then she understood that she'd said something that sounded very much like someone who wanted to be invited somewhere, and her face went red and she rushed to undo it.
 
-"N — no! Please! Are you asking me on a *date?!* This is why women who can't get anyone are such a problem — you're nice to them for five minutes and they take it the wrong way! I can practically *see* your ulterior motives! Your ulterior motives are doing most of the talking at this point! They're so loud I can hear them from the inside!"
+"N — no! Please! Are you asking me on a *date?!* This is why women who can't get anyone are such a problem — you're nice to them for five minutes and they take it the wrong way! I can practically *see* your ulterior motives! Your ulterior motives are doing most of the talking at this point! They're so loud I can hear them from the inside!"\
 "Your vocabulary for insults really is exceptional."
 
 There was probably embarrassment in there too, but the sheer inventiveness of it was impressive in its own way. Still, if she genuinely didn't want to go, Hatano wasn't going to drag her. She'd make it there on her own one day if she actually cared.

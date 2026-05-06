@@ -40,7 +40,7 @@ Hatano said nothing, and looked at a tank nearby, where a moray eel regarded her
 
 The watercolour surfaced again in Hatano's mind — the image Shindo had shown her on his phone, the one she hadn't managed to stop seeing since. The figure standing beside the dignitary, the painting behind them, the quality of the still water rendered in pale pastels reaching through the photograph with an immediacy that had no right to be there.
 
-"She sounds like a good sister."
+"She sounds like a good sister."\
 "She was. Everything she did for me. When my work stopped developing and I didn't know what to do, it was my sister who taught me. When I was about to give up, it was my sister who kept me going. The time she brought me to the aquarium — it was exactly when I was thinking of walking away from painting."
 
 She said it with a look in her eyes of someone reaching back to something they're not sure they can still touch. *She must have kept close watch*, she added quietly — not quite to Hatano, perhaps not quite to anyone.
@@ -115,8 +115,8 @@ The straightforward apology left Shinomiya nowhere to go. She stayed quiet. It w
 
 After a moment, Hatano seemed to reach a decision — she lifted her head and looked at Shinomiya, and her expression was pained.
 
-"I'm not bored. I was thinking."
-"…Thinking?"
+"I'm not bored. I was thinking."\
+"…Thinking?"\
 "*Doesn't it hurt. When no one acknowledges you.*"
 
 She returned Shinomiya's own question to her, word for word.
@@ -129,7 +129,7 @@ Shinomiya opened her mouth and found she didn't know what to say.
 
 The answer was obviously yes. But saying so risked pulling Hatano further into a concern that was Shinomiya's own to carry, and besides, it wasn't a comfortable topic to lay out simply, like facts on a table. She couldn't deny it at this point either. She closed her eyes, the gesture of someone conceding.
 
-"…And if it was?"
+"…And if it was?"\
 "I was trying to think of what I could do."
 
 Shinomiya looked up at her, startled. Hatano was staring at the stage with the complete seriousness of someone who meant exactly what they were saying — one of those transparently good-hearted statements that most people would feel slightly embarrassed to say aloud in full sincerity. She meant it from the bottom of herself. She really was doing this.
