@@ -3,7 +3,6 @@ parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
 title: "Episode 11"
 nav_order: 11
 ---
-Episode 11
 
 The day had gone and the room was dark. Turning on the lights felt like more effort than it was worth.
 
