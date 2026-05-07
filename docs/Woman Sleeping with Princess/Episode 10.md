@@ -3,7 +3,6 @@ parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
 title: "Episode 10"
 nav_order: 10
 ---
-Episode 10
 
 She was taken to an authentic bar in the city — the kind of place appointed with antique pieces that looked as though they cost a great deal, and very probably had.
 
