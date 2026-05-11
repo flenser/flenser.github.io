@@ -42,7 +42,7 @@ Just as fiction turned out to be something I could abandon without too much trou
 
 Class rep. That's me. Below the word *日直* on the blackboard:
 
-**Ogawa Uta (小川 詩)**\
+**Ogawa Uta (小川 詩).**
 
 My name. *Uta* — poetry. A name given to me by a mother besotted with literature. Even that feels like a taunt now. Like a curse. I shake the thought loose and use muscles I don't normally bother with to project my voice.
 
