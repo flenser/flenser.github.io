@@ -1,10 +1,11 @@
 ---
-parent: "Chapter 1"
+parent: "Chapter 1 - From the Place Without Barlines"
 title: "Episode 1 — From the Place Without Barlines"
 nav_order: 1
 ---
 ## Episode 1 — From the Place Without Barlines
 
+\
 I quit writing fiction. I quit when I started high school.
 
 I'd post to novel sites every day, but my view counts stayed on the floor, and the prose I'd poured my soul into sank into the digital sea without catching anyone's eye.
