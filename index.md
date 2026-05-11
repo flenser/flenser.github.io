@@ -8,10 +8,11 @@ nav_exclude: true
 
 ### Stories translated so far
 
-- [A Closet Romance](/docs/A Closet Romance/closet-romance.html)
+- [A Closet Romance ✅](/docs/A Closet Romance/closet-romance.html)
 - [A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend](/docs/Married Woman Falls for Daughters Friend/married-woman-falls-for-friend.html)
 - [Don't you feel ashamed to be overpowered by a maid? ✅](/docs/Don't you feel ashamed to be overpowered by a maid/overpowered-by-maid.html)
 - [Eternal Rest (I'm Just Tired) ❌](/docs/Eternal Rest/eternal-rest.html)
+- [From the Place Without Barlines](/docs/From the Place Without Barlines/place-without-barlines.html)
 - [Good Night, Sleeping Beauty](/docs/Good Night, Sleeping Beauty/sleeping-beauty.html)
 - [How about afternoon tea? ✅](/docs/How about afternoon tea/how-about-afternoon-tea.html)
 - [I Want to Lick Your Tears. I Want You to Glare at Me](/docs/I Want to Lick Your Tears/i-want-to-lick-your-tears.html)
@@ -22,7 +23,7 @@ nav_exclude: true
 - [My Neighbor, Kataba-san](/docs/Neighbour Kataba/neighbour-kataba.html)
 - [She, expressionless and transparent, seems to be someone you could hold tight if you paid the price ✅](/docs/She seems to be someone you could hold tight if you paid the price/embrace-for-a-price.html)
 - [The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl](/docs/Princess Girl Trying to Win Over Prince Girl/princess-wins-prince.html)
-- [The Story of the Woman Who Ended Up Sleeping with the Club Princess](/docs/Woman Sleeping with Princess/woman-sleeping-with-princess.html)
+- [The Story of the Woman Who Ended Up Sleeping with the Club Princess ✅](/docs/Woman Sleeping with Princess/woman-sleeping-with-princess.html)
 - [The White Witch and the Black Witch — A Twisted Secret Between Them](/docs/White Witch, Black Witch/white-witch-black-witch.html)
 - [You Bleed Into My Colourless World ✅](/docs/My Colourless World/my-colourless-world.html)
 
