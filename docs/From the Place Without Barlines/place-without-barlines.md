@@ -15,7 +15,7 @@ A co-dependent, emotionally charged story of a girl who writes fiction × a girl
 ![From the Place Without Barlines](/assets/images/place-without-barlines.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: Mumei [無銘]\
+Author: Mumei [無銘]
 
 [kakuyomu]: https://kakuyomu.jp/works/16818622175578090000
 [無銘]: https://kakuyomu.jp/users/caferatetoicigo
