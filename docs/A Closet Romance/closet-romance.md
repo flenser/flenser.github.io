@@ -20,7 +20,7 @@ That's what I thought, anyway. But then an unexpected turn of events brought me 
 
 This is the story of a lesbian high schooler utterly swept along by a straight girl who plays hard to get. 🫶
 
-![A Closet Romance](/assets/images/closet-romance.png)
+![A Closet Romance](/assets/images/a-closet-romance.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: [桃田ロウ]
