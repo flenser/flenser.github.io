@@ -108,12 +108,3 @@ There was an edge to the way my husband spoke, something sharp visible here and 
 
 My husband's careful roundabout phrasing, born of consideration, meant the warning didn't reach me then for what it was.\
 It would be a little while before I came to understand firsthand whether those rumours held any truth, but truly, I wish I could have spent my whole life without knowing. Yet from the day Chitaira Kai came to the house, any hope of that was already gone.
-
----
-
-**Translation notes:**\
-- **Structure:** Closing lines separated, matching the original.\
-- **大五郎 (*Daigoro*):** A famous character from the classic chambara series *Kozure Ōkami* (Lone Wolf and Cub), the infant son carried by the wandering assassin father. The joke is my husband steering the trolley one-handed like Ogami Ittō pushing Daigoro's cart, and the increasingly absurd exchange about where Daigoro *is* now. Kept as-is since the reference is obscure enough in English that a footnote would kill the comedy; the silliness of the exchange comes through regardless.\
-- **チトゥーイラ:** My husband's invented "original pronunciation" of 地平 is pure nonsense, which is the point. It sounds vaguely Eastern European and completely made up. The romanisation *Chitooo-ee-ra* tries to capture the drawn-out, elaborate quality of the bluff.\
-- **バカが十個はつくくらいデカい屋敷:** "So stupidly big you'd need at least ten *baka*s to describe it" — a colloquial intensifier construction in Japanese where you stack *baka* (idiot/stupid) as a prefix to indicate scale. "Stupidly" works in English but loses the stacking quality; keeping *baka* in the text and letting the surrounding words carry the meaning seemed the better call.\
-- **口に出すのもはばかられる:** "Not really fit to say out loud" — a formal expression of reluctance to verbalise something, stronger than mere hesitation. The husband's careful, circling response to the Chitaira name is one of the episode's most ominous moments precisely because he is normally so open.
