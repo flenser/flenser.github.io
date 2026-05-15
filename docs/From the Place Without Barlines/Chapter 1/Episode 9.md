@@ -16,8 +16,8 @@ That signal releases the noise, worse than before, and my heart goes on expectin
 
 A ripple ran through the noise. Whispers reaching my ears.
 
-"Isn't that Kanzaki-san?"
-"Oh wow, she's so pretty."
+"Isn't that Kanzaki-san?"\
+"Oh wow, she's so pretty."\
 "Who do you think she's here for?"
 
 Led by those voices, I shifted my gaze — and there was Kanzaki-san, stepping lightly and directly toward something, in a straight line. In a classroom brimming with tedium, she was the only one shining, and the contrast threw my already-loud heartbeat into even sharper relief.
@@ -30,9 +30,9 @@ And yet, as if to answer that question, Kanzaki-san's step didn't falter — and
 
 And then, in her usual still, calm beauty, she murmured:
 
-"Morning."
-"Morning. Though it isn't morning."
-"Yeah. Not morning."
+"Morning."\
+"Morning. Though it isn't morning."\
+"Yeah. Not morning."\
 "No…"
 
 I was swept along by Kanzaki-san's rhythm, nodding blankly. No matter how disconnected the exchange, Kanzaki-san transmutes it — through the shimmer of eyes that reflect light like a mirror, through skin like a painted transparency, through the sway of lustrous hair — into something enigmatic and magnetic.
@@ -41,19 +41,19 @@ None of it is anything I can resist. All I can do is receive it, desperately.
 
 Unaware that I'm suffering a sweet kind of anguish, Kanzaki-san continues at her own distinctive tempo.
 
-"You're coming today, right?"
-"Yes. I was planning to."
-"I know."
-"Oh…"
+"You're coming today, right?"\
+"Yes. I was planning to."\
+"I know."\
+"Oh…"\
 "Shall we go, then."
 
 The halting exchange passes like flowing water, and after it, Kanzaki-san simply begins to walk. I hurriedly grab my bag and follow.
 
 When the conversation fell away and our footsteps took its place, the familiar voices returned — the same undifferentiated sound as yesterday — and struck my eardrums again.
 
-"What's the deal with Kanzaki-san and Ogawa-san?"
-"No idea."
-"They seem so mismatched, don't they."
+"What's the deal with Kanzaki-san and Ogawa-san?"\
+"No idea."\
+"They seem so mismatched, don't they."\
 "Right? Like, is she being blackmailed or something?"
 
 *She isn't.* I murmured it inside. *I'm just the one who's had my heart seized, unilaterally.*
