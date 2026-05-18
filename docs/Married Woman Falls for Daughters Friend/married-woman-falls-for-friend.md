@@ -8,7 +8,7 @@ has_children: true
 
 ## Description
 
-### "You dirty old lady." \"...You're hardly one to talk, you little pervert."
+### "You dirty old lady."  "...You're hardly one to talk, you little pervert."
 
 ---
 
