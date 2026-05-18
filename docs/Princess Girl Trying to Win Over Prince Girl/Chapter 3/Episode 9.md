@@ -3,7 +3,7 @@ parent: "The Princess Wants to Win the Prince"
 title: "Part Nine"
 nav_order: 9
 ---
-## Chapter Three: "The Princess Wants to Have the Prince" — Part Nine
+## Chapter Three: "The Princess Wants to Win the Prince" — Part Nine
 
 "I'm so sorry, getting changed took longer than I expected…!"
 
