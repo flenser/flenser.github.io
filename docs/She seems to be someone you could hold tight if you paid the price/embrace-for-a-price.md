@@ -14,6 +14,9 @@ One fateful day their eyes meet and Amamiya approaches Mashiro with 2 questions:
 
 Thus begins a complicated relationship.
 
+*This story is a work of fiction and does not condone or encourage any acts that contravene laws or regulations.\
+*Trigger warning: This story contains themes of suicide, abuse, self-harm, and violence. Reader discretion is advised.
+
 ![Embrace for a price](/assets/images/embrace-for-a-price.png)
 
 The original Japanese Web Novel can be found on [kakuyomu]. \

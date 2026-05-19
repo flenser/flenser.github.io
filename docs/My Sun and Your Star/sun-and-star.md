@@ -19,6 +19,8 @@ The sweet yet bittersweet romance between the prettiest girl in the year and the
 
 Watch as the girl who wanted to die and the girl living with her own burdens become entangled, their feelings gradually shifting.
 
+*Trigger warning: This story contains themes of suicide.
+
 ![My Sun and Your Star](/assets/images/sun-star-cover.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
