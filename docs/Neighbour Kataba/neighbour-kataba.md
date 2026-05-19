@@ -31,7 +31,7 @@ A story of girls who long to be perfect, yet remain somehow incomplete—
 A yuri story of co-dependent girls harbouring deep worries within their hearts.
 
 *This story is a work of fiction and does not condone or encourage any acts that contravene laws or regulations.\
-*Trigger warning: This story contains themes of abuse, self-harm, and violence. Reader discretion is advised.
+*Trigger warning: This story contains themes of suicide, abuse, self-harm, and violence. Reader discretion is advised.
 
 ![My Neighbour, Kataba-san](/assets/images/neighbour-kataba.jpg)
 
