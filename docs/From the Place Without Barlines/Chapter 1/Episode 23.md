@@ -52,8 +52,7 @@ As if to say: and is there some problem with that? The embrace tightened further
 
 Even so, scraping together what little reason I had left. My heartbeat and the heat rising to my face were both at their limit, and I found the next words.
 
-"It'll get in other people's way, here…"
-
+"It'll get in other people's way, here…"\
 "True."
 
 This time, easily, the warmth separated. It should have been what I'd asked for — and yet it was nothing like what I'd wanted, and I felt the pull of something left behind.
