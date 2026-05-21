@@ -1,6 +1,6 @@
 ---
 parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 27 — "Nothingness""
+title: 'Episode 27 — "Nothingness"'
 nav_order: 27
 ---
 ## Episode 27 — "Nothingness"
