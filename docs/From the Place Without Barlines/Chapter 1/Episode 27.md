@@ -1,5 +1,11 @@
+---
+parent: "Chapter 1 - From the Place Without Barlines"
+title: "Episode 27 — "Nothingness""
+nav_order: 27
+---
 ## Episode 27 — "Nothingness"
 
+\
 In the brief interval between the end of the performance and going home, Shion is on my lap as a matter of course — today again, facing me this time. The arms around the back of my neck are slender and cool, and almost weightless. And yet they leave something of definite substance behind in me.
 
 Like music, which leaves something real despite having no material form — the influence Shion exerts on the physical and the influence she exerts on the heart are not proportional. And as if to tip that scale further, Shion's voice rang out from much too close a distance.

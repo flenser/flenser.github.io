@@ -1,5 +1,11 @@
+---
+parent: "Chapter 1 - From the Place Without Barlines"
+title: "Episode 25 — Finally Under the Same Sky"
+nav_order: 25
+---
 ## Episode 25 — Finally Under the Same Sky
 
+\
 The train sways. In time with it, the book-shaped strap on Shion's phone sways too. Inside my bag, my phone carries its matching musical note strap.
 
 That fact, hitting me belatedly, produces a ticklish warmth. A book and a musical note — as if we'd exchanged each other's emblems.

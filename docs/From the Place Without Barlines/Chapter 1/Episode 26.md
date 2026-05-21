@@ -1,5 +1,11 @@
+---
+parent: "Chapter 1 - From the Place Without Barlines"
+title: "Episode 26 — Now I Think Only of You"
+nav_order: 26
+---
 ## Episode 26 — Now I Think Only of You
 
+\
 I like rereading my own fiction. It brings back, with surprising clarity, what I was thinking and feeling at the time, and what I'd intended by each turn of phrase. There are passages that seem clumsy compared to now, of course — but I imagine the same will be true when I look back from further ahead. Feeling the clumsiness is proof that I've grown, which makes even that something to be glad of.
 
 As it happens, right now I'm rereading a section I wrote not long ago. And what I'm feeling as I do is not that kind of positive satisfaction — rather, I'm being ambushed by something much closer to anguish and embarrassment.
