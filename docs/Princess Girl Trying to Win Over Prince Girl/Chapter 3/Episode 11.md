@@ -3,7 +3,7 @@ parent: "The Princess Wants to Win the Prince"
 title: "Part Eleven"
 nav_order: 11
 ---
-## Chapter Three: "The Princess Wants to Have the Prince" — Part Eleven
+## Chapter Three: "The Princess Wants to Win the Prince" — Part Eleven
 
 "My aunt means well, but I do rest properly. I massage my muscles so I don't get injured, and I sleep enough too."
 
