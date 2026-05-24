@@ -5,6 +5,7 @@ nav_order: 2
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Two
 
+\
 "Thank you for earlier, Himena-chan."
 
 We'd searched until we found somewhere to be alone, and ended up on a bench in the courtyard. Senpai's face was still flushed, though her ears had come back to their usual colour.

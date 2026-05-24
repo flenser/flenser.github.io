@@ -5,6 +5,7 @@ nav_order: 3
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Three
 
+\
 I did a final fringe check in the corridor window and pushed open the door to the room where the environmental beautification committee was gathering. The meeting to decide the watering roster was about to begin.
 
 Watering duty was once a week, done in pairs. Which meant that if I could get paired with Iori-senpai, I'd have a guaranteed slot of alone time with her every single week.

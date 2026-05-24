@@ -5,6 +5,7 @@ nav_order: 9
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Nine
 
+\
 *This is completely different from what I imagined — what is happening?!*
 
 I desperately swallowed the urge to cry that out in the middle of the library and tightened my grip on my mechanical pencil. In front of me: a flustered Iori-senpai, and a mountain of study guides.\

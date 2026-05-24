@@ -5,6 +5,7 @@ nav_order: 11
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Eleven
 
+\
 "I did it…! I managed average marks across every subject…!"
 
 I couldn't help letting out a little squeal when the results sheets were handed out. I'd gone in just hoping to avoid failing grades — and in some subjects I'd actually come in above average.

@@ -5,6 +5,7 @@ nav_order: 6
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Six
 
+\
 "Sorry to keep you waiting, Himena-chan?"\
 "…I — Iori-senpai?! Aren't you just a little bit too radiant today?!"
 

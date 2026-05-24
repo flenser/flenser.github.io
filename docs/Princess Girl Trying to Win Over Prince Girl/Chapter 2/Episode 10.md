@@ -5,6 +5,7 @@ nav_order: 10
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Ten
 
+\
 The five-minutes-to-closing bell rang and we began packing up. Thanks to Yuuri's thorough — and thoroughly demanding — tutoring, my head was nearly at capacity.\
 But because of her, a solid amount of the exam material had actually made it in. At this rate, failing grades in any subject should be avoidable.
 

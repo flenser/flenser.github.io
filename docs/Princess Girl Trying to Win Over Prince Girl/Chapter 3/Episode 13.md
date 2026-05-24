@@ -5,6 +5,7 @@ nav_order: 13
 ---
 ## Chapter Three: "The Princess Wants to Have the Prince" — Part Thirteen
 
+\
 A quiet knock at the door. I answered, and it opened slowly.\
 And Senpai came in, wearing the maid uniform.
 

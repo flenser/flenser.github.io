@@ -5,6 +5,7 @@ nav_order: 9
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Nine
 
+\
 "I'm so sorry, getting changed took longer than I expected…!"
 
 The ribbon at the back had given me trouble and eaten up more time than planned.\

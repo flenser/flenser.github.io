@@ -5,6 +5,7 @@ nav_order: 6
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Six
 
+\
 "Himena, it's nearly time to go."\
 "What? Already?"\
 "Already."

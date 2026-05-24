@@ -5,6 +5,7 @@ nav_order: 3
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Three
 
+\
 "Um — Iori-senpai!"
 
 She'd just finished morning practice and was coming out of the gymnasium for lunch break. I called out the moment I saw her.\

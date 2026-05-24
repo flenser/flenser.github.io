@@ -5,6 +5,7 @@ nav_order: 13
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Thirteen
 
+\
 "Thank you for the meal."
 
 I pressed my hands together and tucked the small lunchbox back into its bag. Iori-senpai was nearly done too.

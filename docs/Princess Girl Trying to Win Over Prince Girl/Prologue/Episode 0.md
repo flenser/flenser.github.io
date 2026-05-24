@@ -4,6 +4,7 @@ title: "You'd Better Brace Yourself, Senpai"
 ---
 ## Prologue: "You'd Better Brace Yourself, Senpai"
 
+\
 "…Right. Perfect as always."
 
 I set down the powder puff and lean in close to my dressing table mirror. The face I've spent a whole hour crafting is, of course, flawlessly cute today. No — today I'm *especially* cute.

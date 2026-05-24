@@ -5,6 +5,7 @@ nav_order: 2
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Two
 
+\
 "Excuse me—"
 
 I announced myself out of habit as I pushed open the home economics room door. Yuuri and Kanami-senpai were already there.\

@@ -5,6 +5,7 @@ nav_order: 8
 ---
 ## Chapter Three: "The Princess Wants to Have the Prince" — Part Eight
 
+\
 "I'm so nervous and excited I feel sick."
 
 I got off at an unfamiliar station and followed the map app toward my destination. Today was the start of our work experience placement, just the two of us.\

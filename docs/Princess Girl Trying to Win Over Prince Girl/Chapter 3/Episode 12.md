@@ -5,6 +5,7 @@ nav_order: 12
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Twelve
 
+\
 "This is my place."
 
 Iori-senpai's home was a high-rise apartment building a ten-minute walk from the café. A well-appointed family-sized complex with auto-lock entry, and a high-end supermarket on the ground floor.\

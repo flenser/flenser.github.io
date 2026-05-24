@@ -5,6 +5,7 @@ nav_order: 11
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Eleven
 
+\
 "My aunt means well, but I do rest properly. I massage my muscles so I don't get injured, and I sleep enough too."
 
 Iori-senpai ate her curry and launched into excuses with the energy of a small child defending herself.

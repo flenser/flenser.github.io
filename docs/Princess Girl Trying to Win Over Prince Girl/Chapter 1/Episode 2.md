@@ -5,6 +5,7 @@ nav_order: 2
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Two
 
+\
 "So? How was she? The real Iori-senpai, in the flesh?"
 
 When I got back to the classroom, Yuuri — who had already started on her lunch — asked me straight away. Yuuri is my childhood friend and the only person who knows about my feelings for Iori-senpai.

@@ -5,6 +5,7 @@ nav_order: 5
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Five
 
+\
 "Iori-senpai — have you heard about the prospectus yet?"
 
 I asked before even opening my lunchbox. *More or less*, Iori-senpai nodded. From her reaction, she didn't seem particularly keen.\
