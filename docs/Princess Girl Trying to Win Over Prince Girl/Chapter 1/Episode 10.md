@@ -5,6 +5,7 @@ nav_order: 10
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Ten
 
+\
 "You don't need to be embarrassed, Senpai. We're both girls — it's perfectly normal to share a bath."
 
 Even so, Iori-senpai showed no sign of taking her clothes off.

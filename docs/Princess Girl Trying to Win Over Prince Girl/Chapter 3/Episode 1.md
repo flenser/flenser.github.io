@@ -5,6 +5,7 @@ nav_order: 1
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part One
 
+\
 "Himena, that outfit is way too lacking in motivation, isn't it?"\
 "What do you want me to do. I don't want to get sunburned."
 

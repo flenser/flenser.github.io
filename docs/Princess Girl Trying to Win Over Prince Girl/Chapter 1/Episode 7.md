@@ -5,6 +5,7 @@ nav_order: 7
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Seven
 
+\
 "Is Himena-chan around?"
 
 The next day, at lunch. Without any warning, Iori-senpai appeared at my classroom door.

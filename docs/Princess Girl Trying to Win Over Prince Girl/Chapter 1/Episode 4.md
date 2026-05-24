@@ -5,6 +5,7 @@ nav_order: 4
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Four
 
+\
 "Good — Senpai's not here yet. Thank goodness…!"
 
 I'd come to school thirty minutes early and was waiting by the flower beds, our agreed meeting spot. I'd arrived fifteen minutes before the appointed time, because keeping Senpai waiting was simply not an option.

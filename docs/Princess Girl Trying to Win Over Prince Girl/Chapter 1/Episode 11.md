@@ -5,6 +5,7 @@ nav_order: 11
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Eleven
 
+\
 "Hm? Iori-senpai's not here?"
 
 I'd come to Class 2-1 the moment lunch break started, but Iori-senpai was nowhere to be seen.\

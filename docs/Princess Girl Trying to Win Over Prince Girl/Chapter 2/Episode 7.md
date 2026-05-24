@@ -5,6 +5,7 @@ nav_order: 7
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Seven
 
+\
 "Could you wait just a moment while I check the data?"
 
 Tanoura-san asked us that once the shoot was done. We moved to a corner of the classroom so as not to get in her way.

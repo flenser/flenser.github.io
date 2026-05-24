@@ -5,6 +5,7 @@ nav_order: 1
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part One
 
+\
 "I want to get even closer to Iori-senpai."\
 "What? All of a sudden."\
 "I want to be lovey-dovey with Iori-senpai."\

@@ -5,6 +5,7 @@ nav_order: 9
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Nine
 
+\
 "About time, I think."
 
 I packed my study things into my bag and left the library. Club activities were almost over.

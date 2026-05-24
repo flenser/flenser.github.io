@@ -5,6 +5,7 @@ nav_order: 10
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Ten
 
+\
 Our work experience hours were set to end at the same time as regular school lessons. The part-timer arrived to take over, so we were able to leave right on time.
 
 "Good work today, Himena-chan. This is from my aunt."

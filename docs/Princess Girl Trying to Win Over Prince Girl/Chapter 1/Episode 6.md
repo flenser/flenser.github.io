@@ -5,6 +5,7 @@ nav_order: 6
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Six
 
+\
 "There. Perfect."
 
 I pulled my long hair into a ponytail and tied it tight so it wouldn't come loose. When you're doing sport, you have to keep it out of the way.

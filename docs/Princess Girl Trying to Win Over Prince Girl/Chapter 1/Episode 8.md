@@ -5,6 +5,7 @@ nav_order: 8
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Eight
 
+\
 Senpai led me to a bench in the courtyard.
 
 "It's at least in the shade — is this all right?"\

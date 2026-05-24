@@ -5,6 +5,7 @@ nav_order: 4
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Four
 
+\
 In the end, Senpai's team won without conceding a single goal. She walked toward me through the surrounding cheers.
 
 "Thanks for cheering me on. Was I cool?"

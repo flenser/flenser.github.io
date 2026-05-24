@@ -5,6 +5,7 @@ nav_order: 4
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Four
 
+\
 "Hanasaki-san. I have a favour to ask — is that all right?"
 
 Monday morning. I was still fighting off sleep as I walked into the classroom when my classmate Tanoura-san stopped me.

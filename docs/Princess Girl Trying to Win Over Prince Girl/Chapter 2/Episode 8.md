@@ -5,6 +5,7 @@ nav_order: 8
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Eight
 
+\
 After practice, I came to the bookshop by the station with Iori-senpai. It was a large six-storey shop, each floor devoted to a different genre.
 
 "Is there any section you'd like to look at, Senpai? Actually — do you read much at all normally?"\

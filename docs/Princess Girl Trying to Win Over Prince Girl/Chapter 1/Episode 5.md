@@ -5,6 +5,7 @@ nav_order: 5
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Five
 
+\
 "I cannot wait for the club showcase."\
 "You just want to see Iori-senpai."\
 "Obviously. She'll be in her uniform."

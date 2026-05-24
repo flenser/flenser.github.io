@@ -5,6 +5,7 @@ nav_order: 3
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Three
 
+\
 "You did your best, Himena-chan."
 
 When I went over to Senpai after the match, she patted me on the head.\

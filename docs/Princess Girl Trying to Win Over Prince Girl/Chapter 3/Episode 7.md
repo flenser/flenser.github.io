@@ -5,6 +5,7 @@ nav_order: 7
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Seven
 
+\
 Just as the station was coming into sight, Yuuri spoke up as though she'd just remembered something.
 
 "By the way, Iori-senpai. Have you decided where you're applying for work experience yet?"\

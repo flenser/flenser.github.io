@@ -5,6 +5,7 @@ nav_order: 5
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Five
 
+\
 In the end, the ball games tournament wrapped up with Iori-senpai's class taking first place.\
 Our class came sixth. With twelve classes across the whole year, that put us right in the middle.
 
