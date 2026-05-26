@@ -33,7 +33,7 @@ I called her name meaning only to say thank you, but she didn't wake. When I tri
 
 Something about that felt wrong.
 
-"Nanoha, you're awake, aren't you."\
+"Nanoha, you're awake, aren't you?"\
 "...Caught me?"
 
 Her long lashes lifted slowly. She opened her eyes a little, looking drowsy.
