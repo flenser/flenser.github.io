@@ -61,7 +61,7 @@ She tried to touch my temple again with that same hand. I caught it with a snap.
 
 I didn't want to keep being on the receiving end and building up a debt.
 
-"Where's that cream from before."\
+"Where's that cream from before?"\
 "You mean this...?"
 
 Nanoha looked puzzled as she handed me the tube that had been sitting by my head. I squeezed some of the thick ointment onto my hand and spread it gently across her fingers.
