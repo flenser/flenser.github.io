@@ -12,7 +12,7 @@ has_children: true
 
 ---
 
-Amamiya Setsu. Designer. Her relationship with her husband and daughter is warm and easy — a picture-perfect happy home. She had never once doubted it. She had assumed these days would go on forever.
+Amamiya Setsu. Designer. Her relationship with her husband and daughter is warm and easy — a picture-perfect happy home. She had never once doubted it. She had assumed these days would go on forever.\
 ...Until that day. Until she met Chitaira Kai.
 
 A classmate of her daughter's — a girl a full twenty centimetres shorter than her, and yet one whose words and gaze have a way of turning adults completely upside down. But then there are those moments, glimpsed only occasionally, of an instability that is entirely her age — and there's no looking away from that.
