@@ -1,6 +1,6 @@
 ---
 parent: "Chapter 2 - BELIEVE"
-title: 'Episode 44 — Because I'm Not Annoying'
+title: "Episode 44 — Because I'm Not Annoying"
 nav_order: 44
 ---
 ## Episode 44 — Because I'm Not Annoying
