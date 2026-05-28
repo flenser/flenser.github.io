@@ -1,6 +1,6 @@
 ---
 parent: "The Princess Wants to Be Chosen by the Prince"
-title: "Part One"
+title: "Part One *(Iori's perspective)*"
 nav_order: 1
 ---
 ## Chapter Four: "The Princess Wants to Be Chosen by the Prince" — Part One
