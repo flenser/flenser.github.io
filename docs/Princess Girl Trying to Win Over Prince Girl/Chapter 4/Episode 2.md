@@ -76,6 +76,6 @@ I was the one who'd said *taking up*, and yet Yuuri-chan's response sat wrong wi
 "Senpai, is something the matter?"\
 "Hm?"\
 "You had a bit of a look on your face just then. Are you feeling unwell? Should I, sh-should I call an ambulance?!"\
-"The nurse's office, at least. And I'm fine. Thank you for worrying."
+"The nurse's office, at most. And I'm fine. Thank you for worrying."
 
 I gave a wave and walked off. Until I rounded a corner and she disappeared from view, Himena-chan was still waving at me.
