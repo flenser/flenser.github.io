@@ -29,7 +29,7 @@ A high school yuri about a strait-laced, secretly pent-up discipline committee c
 ---
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [しきもと ホノ] (Shikimoto Hono).\
+Author: [しきもと ホノ] (Shikimoto Hono).
 
 [kakuyomu]: https://kakuyomu.jp/works/822139838789126245
 [しきもと ホノ]: https://kakuyomu.jp/users/4kimo10hono
