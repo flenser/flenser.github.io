@@ -14,8 +14,8 @@ Much earlier than the usual time — Shion's incoming call was already on screen
 
 I kick off the duvet against the clinging heat and press the phone to my ear. One long stretch, and a drowsy sound escapes me.
 
-"Morning…"
-"Morning! Uta!"
+"Morning…"\
+"Morning! Uta!"\
 "Volume."
 
 The words came out on reflex. I thought a gong had gone off next to my ear. Well — too clear and transparent for a gong, to be fair. Even so, Shion was more energetic and highly strung than usual.
@@ -26,8 +26,8 @@ Shion hurried to turn the volume down, but her voice still had more spring in it
 
 And dragged along by it, my own consciousness headed helplessly toward wakefulness. My newly-awake mind released words.
 
-"You're up quite early today."
-"I'm not that early…!"
+"You're up quite early today."\
+"I'm not that early…!"\
 "No, you really are."
 
 Another deflection, delivered in the same breath. Shion's state was so unusual that I'd been pulled into the role of straight man — basically, I'm Shion's unconditional ally, and the fact that I'd ended up pushing back at all showed just how thoroughly buoyant and unmoored she was.
@@ -58,7 +58,7 @@ In a voice larger than usual for Shion, from a distance still a little too far t
 
 I watched that arc of motion vaguely, and moved toward it slowly, the way you'd move toward light. At the point where those asymmetric speeds converged — quite literally like a collision — Shion threw her arms around me with her full momentum.
 
-"Morning! Uta!"
+"Morning! Uta!"\
 "Morning. You really are full of energy today."
 
 I said it with my usual deliberate composure. Honestly, I'd had some vague sense she was going to do exactly this, so the surprise wasn't overwhelming. Even with the surprise reduced to near zero — my heart was still impossibly noisy, which meant this was terminal.
@@ -97,9 +97,9 @@ The sight of her was too dear — the words came out in the tone I'd use with a 
 
 Shion seemed displeased at being treated like one, and fired back quickly:
 
-"It's not nice! Mama kept going on and on about it. *'Shall I drive you both to the sea, you and Uta-chan?'*"
-"I'd actually be grateful for that…"
-"I wouldn't. Because I like taking the train with you, Uta. I like sitting next to you and talking. So Mama is being a busybody."
+"It's not nice! Mama kept going on and on about it. *'Shall I drive you both to the sea, you and Uta-chan?'*"\
+"I'd actually be grateful for that…"\
+"I wouldn't. Because I like taking the train with you, Uta. I like sitting next to you and talking. So Mama is being a busybody."\
 "Fair enough."
 
 I nodded, smiling.
@@ -108,7 +108,7 @@ An unusual grumble from Shion. And yet even that was an indulgence rooted in tru
 
 At that I felt gladness, and a small pinch of something like loneliness. A feeling like the sea — beautiful but a little salty.
 
-"The train will be here soon — shall we go?"
+"The train will be here soon — shall we go?"\
 "Yes!"
 
 The hands that joined naturally were heading toward a real sea.

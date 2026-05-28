@@ -64,7 +64,7 @@ As if performing the task of confirming that answer, the announcement rang throu
 
 At the announcement, Shion said — leaning in toward me from close range, pressing even closer:
 
-"Let's get off here…! The sea looks close."
+"Let's get off here…! The sea looks close."\
 "Okay."
 
 I nodded gently. Wherever we got off, I thought naturally, there is nothing I want to see except what's inside those eyes.

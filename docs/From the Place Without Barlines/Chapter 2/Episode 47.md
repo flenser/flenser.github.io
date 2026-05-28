@@ -32,8 +32,8 @@ And so I sink frequently. In a room with no air conditioning, as if tracing the 
 
 At those times, without fail, like something illuminating the deep sea — Shion's messages make my phone tremble.
 
-*finally on my lunch break*
-*apparently there's a contest at the end of summer break. mama is getting excited*
+*finally on my lunch break*\
+*apparently there's a contest at the end of summer break. mama is getting excited*\
 *i'm always thinking of you while I play, uta*
 
 Shion's words always make my heart tremble. She runs so cold, and yet they make me feel warm.
@@ -42,7 +42,7 @@ Shion's words always make my heart tremble. She runs so cold, and yet they make 
 
 I send that back — and:
 
-*i'll do my best because talking to uta tonight is something to look forward to*
+*i'll do my best because talking to uta tonight is something to look forward to*\
 *it's a promise today too, okay*
 
 She presses the point as if to make sure I won't forget, and heads back to her lesson. Messages like that — weighted, leaning into me — and yet somehow they make me feel weightless, floating. I'm painfully aware that in front of Shion, all my sharpness collapses into something embarrassingly simple.
@@ -57,7 +57,7 @@ Write the novel, feel as though I've touched Shion's existence, just a little.
 
 And then, finally, Shion's voice again. Around the time I throw my flushed body onto the bed floating in the tropical night, Shion's call arrives.
 
-"Uta — I'm home."
+"Uta — I'm home."\
 "Welcome back, Shion."
 
 Without noticing when it happened, that exchange had become the standard. During the school term, I was the one who went to Shion — that was the daily shape of things. Over summer break, Shion is the one who comes home to me. Each of us was the other's only place to belong.

@@ -26,13 +26,13 @@ In that spirit of resignation, I kept talking.
 
 I asked, remembering her usual buoyant voice, the puppy running toward me.
 
-"Yeah. Tired. Mama's been fired up lately."
+"Yeah. Tired. Mama's been fired up lately."\
 "Is that right?"
 
 I can't quite picture that cool, beautiful mother of Shion's being *fired up*.
 
-"Yeah. The practice schedule has gotten harder. And she's kind of — come alive."
-"Come alive?"
+"Yeah. The practice schedule has gotten harder. And she's kind of — come alive."\
+"Come alive?"\
 "Like, she asks about you sometimes. *'Are things going well with Uta-chan?'* She never used to initiate conversation before. I think it's strange."
 
 Even as she said it in a slightly complaining tone, there was equal parts bewilderment and embarrassment in her voice. That small change in the Kanzaki household was, somehow, endearing.
@@ -45,14 +45,14 @@ I found myself answering in an involuntarily coaxing, soft tone — the kind you
 
 And she says something that dismantles my expression all over again. Though it's true — I haven't heard Shion play in a while, and thinking about it that way, it is a little lonely — when:
 
-"So I've been doing my best lately, looking forward to the day after tomorrow."
+"So I've been doing my best lately, looking forward to the day after tomorrow."\
 "The day after tomorrow…?"
 
 *The day after tomorrow* arrived from an unexpected direction, and I raised a questioning voice. Shion told me, as if it were the most natural thing in the world:
 
-"Yeah. The day after tomorrow, we're going out."
-"I haven't heard anything about this."
-"I'm telling you for the first time right now."
+"Yeah. The day after tomorrow, we're going out."\
+"I haven't heard anything about this."\
+"I'm telling you for the first time right now."\
 "That's outrageous."
 
 I lamented, helpless before a Shion who showed not a trace of remorse. Utterly free-spirited, entirely natural.
@@ -79,12 +79,12 @@ I pulled out the shallowest edge of that question mark and asked instead. And th
 
 Something straight out of a coming-of-age novel.
 
-"Fine by me — but what's brought this on?"
+"Fine by me — but what's brought this on?"\
 "I looked it up on my phone and it came up. *'For a date with the girl you can't stop thinking about — the sea is recommended.'*"
 
 At those words, my heartbeat multiplied several times over. The room was suddenly very hot again, and there were frogs somewhere outside, and the fan was grating on my nerves. But none of it was louder than my own heart.
 
-"A *date* — we're friends, though…?"
+"A *date* — we're friends, though…?"\
 "But you've always been someone I can't stop thinking about, Uta. There's nothing outside of you that I think about…"
 
 Shion's murmur, and my heart goes noisy again. And yet my eardrums catch her voice regardless, always.
