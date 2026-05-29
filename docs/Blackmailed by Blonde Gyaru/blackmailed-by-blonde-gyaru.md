@@ -26,7 +26,7 @@ To protect her reputation, Maya finds herself wearing Hiyori's perfume, shut awa
 
 A high school yuri about a strait-laced, secretly pent-up discipline committee chair and a white-haired gyaru.
 
----
+![Blackmailed by Blonde Gyaru](/assets/images/blackmailed-by-blonde-gyaru.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: [しきもと ホノ] (Shikimoto Hono).
