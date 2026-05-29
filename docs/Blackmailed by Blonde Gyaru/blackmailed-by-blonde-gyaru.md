@@ -8,7 +8,7 @@ has_children: true
 
 ## Synopsis
 
-### Wow. All that melting sweetness — it's coming from inside Yamaumi, isn't it?
+### Wow. All that melting sweetness — it's coming from inside Yamami, isn't it?
 
 ---
 
