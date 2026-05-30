@@ -44,8 +44,8 @@ From inside the terminus station we made our way to our separate platform exits.
 
 Still carrying a trace of drowsiness, Shion murmured it quietly.
 
-"It was fun for me too."
-"I don't want to say goodbye."
+"It was fun for me too."\
+"I don't want to say goodbye."\
 "Me neither. But if it gets too late, your mother will be cross with you. So — tomorrow, all the time outside your lesson, let's stay on the phone?"
 
 I said it soothingly — and:
