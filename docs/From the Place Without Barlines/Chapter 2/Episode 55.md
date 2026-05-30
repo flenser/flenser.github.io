@@ -10,7 +10,7 @@ The sound of the phone trembling forces my heavy eyelids open. The matching musi
 
 I reached for the phone with a slow, unhurried movement and pressed it to my ear. No need to check the caller.
 
-"Shion, morning~"
+"Shion, morning~"\
 "Uta, morning…!"
 
 Shion's voice has a slightly stiffer quality than usual. I finally get my eyelids open, check the time, and ask carefully — surprised by the number on the screen.
@@ -23,7 +23,7 @@ The display showed an even earlier time than the day we'd gone to the seaside, a
 
 Shion said it in a voice faintly edged with anxiety. The kind of small, thin voice like a penguin chick trotting hesitantly toward its parent — and I found myself lining up words to stay close alongside her.
 
-"Thank you for waking me. We were out late yesterday — are you all right, not too tired?"
+"Thank you for waking me. We were out late yesterday — are you all right, not too tired?"\
 "I'm not tired at all…! Because I get to see you again today, Uta. Because you'll be listening to my sound."
 
 Shion answered quickly, then whispered softly, as if holding the fact close — her voice carrying a particular lustre. Strange — just that resonance alone was enough to make my heart warm, to blow away whatever small tiredness or drowsiness remained.
@@ -62,7 +62,7 @@ But Shion paid no attention whatsoever, rubbing her head against my palm and mak
 
 I could hardly push her away. And yet the gaze of Shion's mother lingering in the doorway was weighing on me. After stroking Shion's head for a while, I ventured carefully:
 
-"Shall we go inside? I don't mind being close — but I really want to hear your piano soon…!"
+"Shall we go inside? I don't mind being close — but I really want to hear your piano soon…!"\
 "…All right."
 
 Shion murmured it with a trace of reluctance, then slowly let go of the embrace and this time took my hand tight, fingers winding together, and started walking toward the entrance. Over Shion's shoulder I could see Shion's mother exhaling a half-resigned sigh and bowing to me with what seemed like commiseration. I nodded back — *it's all right* — and let myself be pulled, stepping into the Kanzaki household's entrance.
