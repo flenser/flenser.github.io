@@ -1,6 +1,6 @@
 ---
 parent: "Chapter Two: The Two of Us Playing Yuri Friends"
-title: "Episode 15: Say "Aah" — Let Me Feed You?"
+title: 'Episode 15: Say "Aah" — Let Me Feed You?'
 nav_order: 15
 ---
 **Episode 15: Say "Aah" — Let Me Feed You?**
