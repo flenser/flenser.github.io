@@ -146,7 +146,7 @@ Without a flicker of hesitation.\
 With the most natural expression in the world, she pressed the last packet into the little girl's hand.\
 After hunting through shop after shop with that single-minded intensity.
 
-I didn't know that profile of hers.\
+I didn't know that side of her.\
 Just a kind girl, the easy-going type you'd find anywhere.
 
 "Are you sure...?"
