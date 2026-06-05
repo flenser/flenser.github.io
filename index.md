@@ -19,6 +19,7 @@ nav_exclude: true
 - [If you kiss me, I'll tell you ✅](/docs/If you kiss me, I'll tell you/if-you-kiss-me.html)
 - [Love Grows in the Classroom After School ✅](/docs/Love Grows in the Classroom/love-grows-in-classroom.html)
 - [Monofilament Witch](/docs/Monofilament Witch/monofilament-witch.html)
+- [My Crush Became My Stepsister](/docs/My Crush Became My Stepsister/crush-on-stepsister.html)
 - [My Sun and Your Star ✅](/docs/My Sun and Your Star/sun-and-star.html)
 - [My Neighbor, Kataba-san](/docs/Neighbour Kataba/neighbour-kataba.html)
 - [She, expressionless and transparent, seems to be someone you could hold tight if you paid the price ✅](/docs/She seems to be someone you could hold tight if you paid the price/embrace-for-a-price.html)
