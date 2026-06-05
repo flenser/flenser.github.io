@@ -12,10 +12,10 @@ has_children: true
 
 ---
 
-I'm in love with Nagai Ao. Hopelessly, irreversibly in love.
+I'm in love with Nagai Ao. Hopelessly, irreversibly in love.\
 For over a year I've carried a secret crush on one of my classmates. I can't even bring myself to talk to her. All I can do is watch from a distance.
 
-Then one day, out of nowhere, she became my stepsister.
+Then one day, out of nowhere, she became my stepsister.\
 The person I love is close enough to touch. But she's not my "classmate" anymore. She's "family."
 
 There's no way I can tell her how I've felt all this time. I'll just have to live the rest of my life keeping these feelings hidden.
