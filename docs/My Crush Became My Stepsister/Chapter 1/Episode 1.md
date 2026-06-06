@@ -1,6 +1,7 @@
 ---
 parent: "My Crush and My Stepsister"
 title: "Episode One"
+nav_order: 1
 ---
 ## Episode One
 
