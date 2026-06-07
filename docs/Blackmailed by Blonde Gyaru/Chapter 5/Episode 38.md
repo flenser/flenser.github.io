@@ -150,7 +150,7 @@ Fallen into the illusion that this was normal.
 *Oh, good,* I thought.\
 *Just self-defence. Just a glitch in my brain.*
 
-\
+---
 
 But.
 
