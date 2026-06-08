@@ -1,6 +1,6 @@
 ---
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-title: 'Chapter Two: *"The Snow Finds the Clod of Earth"* — Part One'
+title: 'Chapter Two: "The Snow Finds the Clod of Earth" — Part One'
 nav_order: 15
 ---
 ## Chapter Two: *"The Snow Finds the Clod of Earth"* — Part One
