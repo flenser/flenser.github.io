@@ -1,5 +1,5 @@
 ---
-parent: "Chapter Six: Look at Me. (Hiyori's POV — Past)"
+parent: "Chapter Seven: I Don't Want You to Look at Me. (Hiyori's POV)"
 title: "Episode 42: She Is Invading Me."
 nav_order: 42
 ---
