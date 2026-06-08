@@ -1,5 +1,5 @@
 ---
-parent: "Chapter Six: Look at Me. (Hiyori's POV — Past)"
+parent: "Chapter Seven: I Don't Want You to Look at Me. (Hiyori's POV)"
 title: "Episode 43: We Reach for Each Other."
 nav_order: 43
 ---
