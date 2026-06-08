@@ -14,6 +14,7 @@ nav_order: 0
 - [Love Grows in the Classroom After School](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/Love.Grows.in.the.Classroom.Epub)
 - [My Sun and Your Star](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/My.Sun.and.Your.Star.epub)
 - [She, expressionless and transparent, seems to be someone you could hold tight if you paid the price](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/She.Expressionless.and.Transparent.Epub)
+- [The Story of the Woman Who Ended Up Sleeping with the Club Princess](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.Story.of.the.Woman.Who.Ended.Up.Sleeping.with.the.Club.Princess.epub)
 - [The White Witch and the Black Witch — A Twisted Secret Between Them](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.White.Witch.and.the.Black.Witch.A.Twisted.Secret.Between.Them.epub)
 - [You Bleed Into My Colourless World](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/You.Bleed.Into.My.Colourless.World.epub)
 
