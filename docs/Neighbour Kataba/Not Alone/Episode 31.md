@@ -1,5 +1,5 @@
 ---
-parent: "A Reward"
+parent: "Not Alone"
 title: "Episode 31"
 nav_order: 31
 ---
