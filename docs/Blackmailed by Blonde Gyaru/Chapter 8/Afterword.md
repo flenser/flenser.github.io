@@ -1,6 +1,6 @@
 ---
 parent: "Epilogue: I Am Blackmailing Her"
-title: "Afterword"
+title: "Afterword (Shikimoto Hono)"
 nav_order: 48
 ---
 **Afterword**
