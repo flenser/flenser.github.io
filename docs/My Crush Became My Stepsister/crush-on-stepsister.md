@@ -22,7 +22,7 @@ There's no way I can tell her how I've felt all this time. I'll just have to liv
 
 Sisters and lovers. Two relationships that should never intersect. Caught between them, where will the two of us end up?
 
----
+![My Crush Became My Stepsister](/assets/images/my-crush-became-my-stepsister.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: [莉乃]
