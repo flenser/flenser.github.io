@@ -1,5 +1,5 @@
 ---
-parent: "A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague"
+parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
 title: "Episode 2: Isn't That Distance a Little Unfair."
 nav_order: 2
 ---

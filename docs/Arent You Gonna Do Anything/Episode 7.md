@@ -1,5 +1,5 @@
 ---
-parent: "A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague"
+parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
 title: "Episode 7: One Step at a Time, Nice and Slow."
 nav_order: 7
 ---

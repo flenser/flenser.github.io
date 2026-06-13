@@ -1,5 +1,5 @@
 ---
-parent: "A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague"
+parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
 title: "Episode 4: Mio-chan — Have You Ever Done It?"
 nav_order: 4
 ---

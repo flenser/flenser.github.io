@@ -1,5 +1,5 @@
 ---
-parent: "A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague"
+parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
 title: "Prologue: Hey, You're Not Gonna Do Anything? And We're Even Sharing a Bed."
 nav_order: 0
 ---

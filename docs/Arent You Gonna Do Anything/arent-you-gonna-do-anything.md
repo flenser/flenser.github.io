@@ -1,5 +1,5 @@
 ---
-title: 'A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague'
+title: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
 has_children: true
 ---
 ## Original Title

@@ -1,5 +1,5 @@
 ---
-parent: "A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague"
+parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
 title: "Episode 3: No Last Train — Wanna Stay at Mine?"
 nav_order: 3
 ---
