@@ -70,19 +70,3 @@ In all that stillness, only the ticking of the clock rang out, absurdly loud.
 I can't remember.
 But one thing I know for certain, right now:
 Tonight, I am closer to *a girl* — to *what it means to be a girl* — than I have ever been in my life.
-
----
-
-**Translator's Notes — Prologue**
-
-**Title rendering:** 「なぁ、なんもせえへんの？ふたりで寝てるのに。」 — "Hey, You're Not Gonna Do Anything? And We're Even Sharing a Bed." I've kept the mild Kansai flavour of なんもせえへんの in a casual, slightly compressed English register ("You're really not gonna do anything?") rather than flattening to standard "aren't you going to do anything." The "And we're even sharing a bed" is a slight softening of ふたりで寝てるのに (lit. "even though we're sleeping together just the two of us") — the のに carries a gentle reproach; "and we're even sharing a bed" preserves that implicature without sounding too stilted.
-
-**Opening line:** 「なぁ、*女性同士*って、なしな人？」 — The italicised 女性同士 ("women together" / "girls together") flags that Riwa is naming the thing carefully — not "are you into women" exactly, but "you're not against *women [with women]*?" I've rendered it as "you're not, like, *against* girls, are you?" — the "like" does some of the casual work, and the italics carry across to convey the same highlighted weight.
-
-**Dialect strategy:** Riwa's speech uses classic Kansai forms — せえへん (standard: しない), やない (standard: ではないか), なぁ as opener. I'm rendering these as colloquial English: dropped auxiliaries, softened cadence, "not gonna," "Hey" rather than "Say." She sounds casual and slightly careless, contrasting with Mio's careful, formal-ish narration.
-
-**「ふつうじゃない感じ」:** Rendered as "that *not-quite-normal* quality of hers." The italics preserve the fact that Mio is reaching for language that doesn't quite fit — she hasn't found a word for what Riwa is, and the phrase marks that uncertainty.
-
-**Closing lines:** 「今、私は人生で、*女の子*という*存在*にいちばん近い。」 — The double italics in the original (*女の子* and *存在*) isolate the two concepts: "girl" and "existence/being." I've preserved both: "closer to *a girl* — to *what it means to be a girl*." The separation honours the author's emphasis without turning it into an awkward gloss. It's the emotional and thematic keynote of the whole novel: Mio experiencing her own desire and womanhood at once, for the first time.
-
-**Structural note:** Shikimoto uses the staggered, short-line format here as in the White Gyaru novel — isolated lines for suspended moments ("— This is bad."), short paragraphs for sensory accumulation. I've preserved this throughout.
