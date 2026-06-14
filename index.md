@@ -10,6 +10,7 @@ nav_exclude: true
 
 - [A Closet Romance ✅](/docs/A Closet Romance/closet-romance.html)
 - [A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend](/docs/Married Woman Falls for Daughters Friend/married-woman-falls-for-friend.html)
+- [A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks](/docs/Female CEO Yuri/female-ceo-yuri.html)
 - [Don't you feel ashamed to be overpowered by a maid? ✅](/docs/Don't you feel ashamed to be overpowered by a maid/overpowered-by-maid.html)
 - [Eternal Rest (I'm Just Tired) ❌](/docs/Eternal Rest/eternal-rest.html)
 - [From the Place Without Barlines ✅](/docs/From the Place Without Barlines/place-without-barlines.html)
