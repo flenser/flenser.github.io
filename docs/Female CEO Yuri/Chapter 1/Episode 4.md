@@ -1,10 +1,7 @@
 ---
-layout: episode
-grand_parent: "A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks"
 parent: "Chapter 1 - I Picked Up a Woman. In an Alley."
 title: "Episode 4: The Beginning of Sweet Control"
 nav_order: 4
-sequence: 4
 ---
 **Episode 4: The Beginning of Sweet Control**
 
