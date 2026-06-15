@@ -1,7 +1,10 @@
 ---
+layout: episode
+grand_parent: "A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks"
 parent: "Chapter 1 - I Picked Up a Woman. In an Alley."
 title: "Episode 5: Last Night's Heat, and Morning Coffee"
 nav_order: 5
+sequence: 5
 ---
 **Episode 5: Last Night's Heat, and Morning Coffee**
 
