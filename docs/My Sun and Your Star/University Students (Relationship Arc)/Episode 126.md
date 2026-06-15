@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 126: First Date (1)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 126
+parent: University Students (Relationship Arc)
+sequence: 126
+title: 'Episode 126: First Date (1)'
 ---
 Episode 126: First Date (1)
 

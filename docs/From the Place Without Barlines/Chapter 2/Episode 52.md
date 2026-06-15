@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 52 — I Want to Eat Prawn Crackers"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 52
+parent: Chapter 2 - BELIEVE
+sequence: 52
+title: Episode 52 — I Want to Eat Prawn Crackers
 ---
 ## Episode 52 — I Want to Eat Prawn Crackers
 

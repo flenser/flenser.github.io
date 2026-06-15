@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 82: I'm Not Aware of Being Jealous"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 110
+parent: Second year as a working adult, autumn
+sequence: 86
+title: "Episode 82: I'm Not Aware of Being Jealous"
 ---
 Episode 82: I'm Not Aware of Being Jealous
 

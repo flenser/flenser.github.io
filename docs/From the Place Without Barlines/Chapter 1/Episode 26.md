@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 26 — Now I Think Only of You"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 26
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 26
+title: Episode 26 — Now I Think Only of You
 ---
 ## Episode 26 — Now I Think Only of You
 

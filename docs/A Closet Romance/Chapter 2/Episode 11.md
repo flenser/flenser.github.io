@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: "Episode 11: Hmm, I'll head over there now"
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 50
+parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
+sequence: 11
+title: "Episode 11: Hmm, I'll head over there now"
 ---
 Episode 11: Hmm, I'll head over there now
 

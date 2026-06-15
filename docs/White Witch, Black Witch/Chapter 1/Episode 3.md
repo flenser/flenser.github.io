@@ -1,7 +1,10 @@
 ---
-parent: "The White Witch and the Black Witch"
-title: "Episode Three"
+grand_parent: The White Witch and the Black Witch — A Twisted Secret Between Them
+layout: episode
 nav_order: 3
+parent: The White Witch and the Black Witch
+sequence: 3
+title: Episode Three
 ---
 Episode Three
 

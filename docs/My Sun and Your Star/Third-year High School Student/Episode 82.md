@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 82: The Final Match"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 82
+parent: Third-year High School Student
+sequence: 82
+title: 'Episode 82: The Final Match'
 ---
 Episode 82: The Final Match
 

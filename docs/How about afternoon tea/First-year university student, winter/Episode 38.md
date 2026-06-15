@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, winter"
-title: "Episode 38: Will You Marry Me?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, winter
+sequence: 38
+title: 'Episode 38: Will You Marry Me?'
 ---
 Episode 38: Will You Marry Me?
 

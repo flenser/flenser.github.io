@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 8: The Story Only I Can Write"
-title: "Digression ④ Touch me with those hands and save that night"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 4
+parent: 'Chapter 8: The Story Only I Can Write'
+sequence: 78
+title: Digression ④ Touch me with those hands and save that night
 ---
 Digression ④ Touch me with those hands and save that night
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Six: Look at Me. (Hiyori's POV — Past)"
-title: "Episode 40: Asahina Hiyori, Part 2"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 40
+parent: "Chapter Six: Look at Me. (Hiyori's POV — Past)"
+sequence: 41
+title: 'Episode 40: Asahina Hiyori, Part 2'
 ---
 **Episode 40: Asahina Hiyori, Part 2**
 

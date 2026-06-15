@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 50 — Waves Drawing Near"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 50
+parent: Chapter 2 - BELIEVE
+sequence: 50
+title: Episode 50 — Waves Drawing Near
 ---
 ## Episode 50 — Waves Drawing Near
 

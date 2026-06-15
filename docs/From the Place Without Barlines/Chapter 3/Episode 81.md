@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 81 — Melting"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 81
+parent: Chapter 3 - Always
+sequence: 81
+title: Episode 81 — Melting
 ---
 ## Episode 81: Melting
 

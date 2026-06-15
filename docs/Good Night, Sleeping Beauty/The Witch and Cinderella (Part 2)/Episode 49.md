@@ -1,7 +1,10 @@
 ---
-parent: "The Witch and Cinderella (Part Two)"
-title: Episode Forty-Nine
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 1
+parent: The Witch and Cinderella (Part Two)
+sequence: 49
+title: Episode Forty-Nine
 ---
 Episode Forty-Nine
 

@@ -1,7 +1,10 @@
 ---
-parent: "The Witches' Day Off"
-title: "Episode One"
+grand_parent: The White Witch and the Black Witch — A Twisted Secret Between Them
+layout: episode
 nav_order: 1
+parent: "The Witches' Day Off"
+sequence: 16
+title: Episode One
 ---
 Episode One
 

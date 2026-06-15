@@ -1,6 +1,9 @@
 ---
-parent: "Winter"
-title: "Episode 24: You Look More Miserable Than Me"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Winter
+sequence: 24
+title: 'Episode 24: You Look More Miserable Than Me'
 ---
 Episode 24: You Look More Miserable Than Me
 

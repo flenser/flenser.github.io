@@ -1,9 +1,11 @@
 ---
-parent: Chapter 1
-title: Episode 9
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 nav_order: 80
+parent: Chapter 1
+sequence: 9
+title: Episode 9
 ---
-
 —Could she possibly be doing anything wrong?\
 She was merely trying to learn about things that genuinely interested her through books.\
 That’s not something anyone could blame her for.\

@@ -1,6 +1,9 @@
 ---
-parent: "A Changing Future"
-title: "Episode 3"
+grand_parent: You Bleed Into My Colourless World
+layout: episode
+parent: A Changing Future
+sequence: 38
+title: Episode 3
 ---
 Episode 3
 

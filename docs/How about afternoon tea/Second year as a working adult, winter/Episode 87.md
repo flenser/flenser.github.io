@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 87: Always, Just Look at Me"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 30
+parent: Second year as a working adult, winter
+sequence: 92
+title: 'Episode 87: Always, Just Look at Me'
 ---
 Episode 87: Always, Just Look at Me
 

@@ -1,7 +1,10 @@
 ---
-parent: "Long Interlude"
-title: "Sleeping Beauty and the Kind Witch. Part 2"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 13
+parent: Long Interlude
+sequence: 86
+title: Sleeping Beauty and the Kind Witch. Part 2
 ---
 Sleeping Beauty and the Kind Witch. Part 2
 

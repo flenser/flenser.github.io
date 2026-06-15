@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 80: You're unusually proactive today, aren't you?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 90
+parent: Second year as a working adult, autumn
+sequence: 84
+title: "Episode 80: You're unusually proactive today, aren't you?"
 ---
 Episode 80: You're unusually proactive today, aren't you?
 

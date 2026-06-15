@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 4
+sequence: 36
 title: Episode 36
 ---
-
 "What on earth happened?"
 
 Yet Alisha seemed more concerned for Lotte.\

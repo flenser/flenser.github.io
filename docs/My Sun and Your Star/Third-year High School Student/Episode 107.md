@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 107: The Whirlpool"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 107
+parent: Third-year High School Student
+sequence: 107
+title: 'Episode 107: The Whirlpool'
 ---
 Episode 107: The Whirlpool
 

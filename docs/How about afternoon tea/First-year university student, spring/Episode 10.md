@@ -1,7 +1,10 @@
 ---
-parent: "First-year university student, spring"
-title: "Episode 10: How Can I Make It Right?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 10
+parent: First-year university student, spring
+sequence: 10
+title: 'Episode 10: How Can I Make It Right?'
 ---
 Episode 10: How Can I Make It Right?
 

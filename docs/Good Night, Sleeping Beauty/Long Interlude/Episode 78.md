@@ -1,7 +1,10 @@
 ---
-parent: "Long Interlude"
-title: "Sleeping Beauty, Following Her. Part 3"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 5
+parent: Long Interlude
+sequence: 78
+title: Sleeping Beauty, Following Her. Part 3
 ---
 Sleeping Beauty, Following Her. Part 3
 

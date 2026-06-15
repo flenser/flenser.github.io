@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2: First Love and the Holy Night"
-title: "Episode Twelve: Christmas Party – December 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 12
+parent: 'Chapter 2: First Love and the Holy Night'
+sequence: 23
+title: 'Episode Twelve: Christmas Party – December 2032 —'
 ---
 Episode Twelve: Christmas Party ―December 2032―
 

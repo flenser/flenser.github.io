@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter One: Another Day, Another Run'
+sequence: 2
 title: 'Episode 2: The Definition of a Magical Girl'
 ---
-
 M-Particle Magic changed the world.
 
 　These luminous particles possessed the property of connecting to human thought and freely transmitting corresponding signals. They only reacted to humans with aptitude, yet that was sufficient to alter the world.

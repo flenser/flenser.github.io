@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 2
+sequence: 18
 title: Episode 18
 ---
-
 Returning to the room with Alisha, Lotte helped her change her clothes.\
 Once she had finished changing,
 

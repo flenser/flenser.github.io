@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 18 — Refrain"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 18
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 18
+title: Episode 18 — Refrain
 ---
 ## Episode 18 — Refrain
 

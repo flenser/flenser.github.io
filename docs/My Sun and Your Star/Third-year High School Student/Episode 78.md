@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 78: Someone Special"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 78
+parent: Third-year High School Student
+sequence: 78
+title: 'Episode 78: Someone Special'
 ---
 Episode 78: Someone Special
 

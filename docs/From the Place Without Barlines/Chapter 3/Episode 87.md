@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 87: If Only I Could Become Words"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 87
+parent: Chapter 3 - Always
+sequence: 87
+title: 'Episode 87: If Only I Could Become Words'
 ---
 ## Episode 87: If Only I Could Become Words
 

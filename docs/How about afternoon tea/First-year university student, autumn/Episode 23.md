@@ -1,5 +1,8 @@
 ---
-parent: "First-year university student, autumn"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, autumn
+sequence: 23
 title: "Episode 23: When Did I Become Yui-san's?"
 ---
 Episode 23: When Did I Become Yui-san's?

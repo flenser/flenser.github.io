@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 22: Worry"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 22
+parent: Second-year High School Student
+sequence: 22
+title: 'Episode 22: Worry'
 ---
 Episode 22: Worry
 

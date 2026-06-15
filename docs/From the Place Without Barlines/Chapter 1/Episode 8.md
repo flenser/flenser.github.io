@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 8 — Heroine"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 8
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 8
+title: Episode 8 — Heroine
 ---
 ## Episode 8 — Heroine
 

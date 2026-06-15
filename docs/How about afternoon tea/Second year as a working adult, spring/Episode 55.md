@@ -1,6 +1,9 @@
 ---
-parent: "Second year as a working adult, spring"
-title: "Episode 55: I Reckon You Could Send a Message In Three Seconds Flat"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, spring
+sequence: 58
+title: 'Episode 55: I Reckon You Could Send a Message In Three Seconds Flat'
 ---
 Episode 55: I Reckon You Could Send a Message In Three Seconds Flat
 

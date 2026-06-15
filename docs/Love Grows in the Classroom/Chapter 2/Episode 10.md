@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2: First Love and the Holy Night"
-title: "Episode Ten: The Run-Up to Farewell – December 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 10
+parent: 'Chapter 2: First Love and the Holy Night'
+sequence: 21
+title: 'Episode Ten: The Run-Up to Farewell – December 2032 —'
 ---
 Episode Ten: The Run-Up to Farewell ―December 2032―
 

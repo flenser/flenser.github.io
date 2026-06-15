@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 17 — A World Without Sound"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 17
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 17
+title: Episode 17 — A World Without Sound
 ---
 ## Episode 17 — A World Without Sound
 

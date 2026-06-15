@@ -1,7 +1,10 @@
 ---
-parent: "Autumn"
-title: "Episode 15: In the end, it's the one who falls in love who loses, isn't it?"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
 nav_order: 80
+parent: Autumn
+sequence: 15
+title: "Episode 15: In the end, it's the one who falls in love who loses, isn't it?"
 ---
 Episode 15: In the end, it's the one who falls in love who loses, isn't it?
 

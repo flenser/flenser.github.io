@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter One: Another Day, Another Run'
+sequence: 5
 title: 'Episode 5: Backflow'
 ---
-
 The magic cyberdeck's wand pierces the heart-shaped Magus Engine.\
 Black and peach phosphorescent energy surges backwards.\
 An operational sound akin to a girl's scream pierces Strawberry Pink's ears.

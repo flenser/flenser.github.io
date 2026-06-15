@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 7 — The Curse Is Violet"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 7
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 7
+title: Episode 7 — The Curse Is Violet
 ---
 ## Episode 7 — The Curse Is Violet
 

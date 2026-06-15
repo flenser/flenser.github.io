@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Hot Springs"
-title: "Episode Ninety-Four"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 4
+parent: Sleeping Beauty and the Hot Springs
+sequence: 94
+title: Episode Ninety-Four
 ---
 Episode Ninety-Four
 

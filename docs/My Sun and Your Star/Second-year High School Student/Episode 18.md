@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 18: Looking Backwards"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 18
+parent: Second-year High School Student
+sequence: 18
+title: 'Episode 18: Looking Backwards'
 ---
 Episode 18: Looking Backwards
 

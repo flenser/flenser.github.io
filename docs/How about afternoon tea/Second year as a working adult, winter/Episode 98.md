@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 98: I Might Never Be Able to Beat Kanata, Even If It Takes Me a Lifetime"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 140
+parent: Second year as a working adult, winter
+sequence: 103
+title: 'Episode 98: I Might Never Be Able to Beat Kanata, Even If It Takes Me a Lifetime'
 ---
 Episode 98: I Might Never Be Able to Beat Kanata, Even If It Takes Me a Lifetime
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 43 — About Children'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 43
+parent: Chapter 2 - BELIEVE
+sequence: 43
+title: Episode 43 — About Children
 ---
 ## Episode 43 — About Children
 

@@ -1,5 +1,8 @@
 ---
-parent: "Epilogue: Christmas"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: 'Epilogue: Christmas'
+sequence: 28
 title: "Final Episode: I'll Love Your Clumsy Ways Too"
 ---
 Final Episode: I'll Love Your Clumsy Ways Too

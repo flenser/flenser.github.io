@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 96: I love you so much that I don't mind even if it's like that"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 120
+parent: Second year as a working adult, winter
+sequence: 101
+title: "Episode 96: I love you so much that I don't mind even if it's like that"
 ---
 Episode 96: I love you so much that I don't mind even if it's like that
 

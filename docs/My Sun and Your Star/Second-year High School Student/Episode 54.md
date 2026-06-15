@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 54: Mayo and Hikari"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 54
+parent: Second-year High School Student
+sequence: 54
+title: 'Episode 54: Mayo and Hikari'
 ---
 Episode 54: Mayo and Hikari
 

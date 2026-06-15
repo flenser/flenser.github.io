@@ -1,3 +1,8 @@
+---
+grand_parent: Love Grows in the Classroom After School
+layout: episode
+sequence: 95
+---
 ‘Love Gathers in the Classroom After School’ – A Story Based on the Original Concept
 
 Supporters-Only Article

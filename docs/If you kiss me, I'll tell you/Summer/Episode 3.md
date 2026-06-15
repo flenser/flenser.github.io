@@ -1,6 +1,9 @@
 ---
-parent: "Summer"
-title: "Episode 3: Who on Earth Would Notice Someone Like You?"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Summer
+sequence: 3
+title: 'Episode 3: Who on Earth Would Notice Someone Like You?'
 ---
 Episode 3: Who on Earth Would Notice Someone Like You?
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Five: The End of Pretend"
-title: "Episode 35: I Think I'll Call It Done."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 35
+parent: 'Chapter Five: The End of Pretend'
+sequence: 36
+title: "Episode 35: I Think I'll Call It Done."
 ---
 **Episode 35: I Think I'll Call It Done.**
 

@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, summer"
-title: "Episode 17: Even Women Should Pursue Love Seriously"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, summer
+sequence: 17
+title: 'Episode 17: Even Women Should Pursue Love Seriously'
 ---
 Episode 17: Even Women Should Pursue Love Seriously
 

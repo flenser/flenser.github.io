@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 12 — Flower Fortune"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 12
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 12
+title: Episode 12 — Flower Fortune
 ---
 ## Episode 12 — Flower Fortune
 

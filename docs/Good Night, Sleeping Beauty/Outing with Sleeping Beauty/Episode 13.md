@@ -1,7 +1,10 @@
 ---
-parent: "Outing with Sleeping Beauty"
-title: Episode Thirteen
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 13
+parent: Outing with Sleeping Beauty
+sequence: 13
+title: Episode Thirteen
 ---
 Episode Thirteen
 

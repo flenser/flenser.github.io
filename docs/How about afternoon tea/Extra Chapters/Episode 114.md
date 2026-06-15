@@ -1,6 +1,9 @@
 ---
-parent: "Extra Chapters"
-title: "I really want to go to Disney Sea! part 2"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Extra Chapters
+sequence: 121
+title: I really want to go to Disney Sea! part 2
 ---
 I really want to go to Disney Sea! part 2
 

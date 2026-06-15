@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 7: A New After-School Routine"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 7
+parent: Second-year High School Student
+sequence: 7
+title: 'Episode 7: A New After-School Routine'
 ---
 Episode 7: A New After-School Routine
 

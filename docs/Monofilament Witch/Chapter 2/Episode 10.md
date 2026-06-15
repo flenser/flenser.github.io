@@ -1,9 +1,11 @@
 ---
-parent: 'Chapter Two: Crisps and Cola'
-title: 'Episode 10: Night Journey'
+grand_parent: Monofilament Witch
+layout: episode
 nav_order: 50
+parent: 'Chapter Two: Crisps and Cola'
+sequence: 10
+title: 'Episode 10: Night Journey'
 ---
-
 Haruka Momotsuki, in the car, was ruminating on the lingering taste on her tongue.\
 Potato crisps and cola.\
 The snacks she'd eaten with Sere.

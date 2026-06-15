@@ -1,7 +1,10 @@
 ---
-parent: "Goodnight, Sleeping Beauty"
-title: "Part One: Epilogue"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 7
+parent: Goodnight, Sleeping Beauty
+sequence: 37
+title: 'Part One: Epilogue'
 ---
 Part One: Epilogue
 

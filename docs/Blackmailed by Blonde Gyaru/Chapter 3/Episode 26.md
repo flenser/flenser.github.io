@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Three: Yuri Girlfriends"
-title: "Episode 26: We're Not Friends Anymore."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 26
+parent: 'Chapter Three: Yuri Girlfriends'
+sequence: 27
+title: "Episode 26: We're Not Friends Anymore."
 ---
 **Episode 26: We're Not Friends Anymore.**
 

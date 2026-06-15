@@ -1,9 +1,11 @@
 ---
-parent: Chapter 1
-title: Episode 8
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 nav_order: 70
+parent: Chapter 1
+sequence: 8
+title: Episode 8
 ---
-
 "—Trying to forget it, I threw myself even more desperately into my duties as a knight. Striving to be pure and incorruptible... Ah, I thought it was unthinkable to take an interest in such things!"
 
 Indeed, a brothel would hardly be a place compatible with someone like Alisha.\

@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 143: New Year's (1)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 143
+parent: University Students (Relationship Arc)
+sequence: 143
+title: "Episode 143: New Year's (1)"
 ---
 Episode 143: New Year's (1)
 

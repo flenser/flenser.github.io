@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Two: The Two of Us Playing Yuri Friends"
-title: "Episode 17: In Search of Bonbondrop Stickers."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 17
+parent: 'Chapter Two: The Two of Us Playing Yuri Friends'
+sequence: 18
+title: 'Episode 17: In Search of Bonbondrop Stickers.'
 ---
 **Episode 17: In Search of Bonbondrop Stickers.**
 

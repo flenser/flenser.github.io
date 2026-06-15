@@ -1,6 +1,9 @@
 ---
-parent: "Third year as a working adult, spring"
-title: "Episode 101: Kanata, What About the Welcome Home Kiss?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Third year as a working adult, spring
+sequence: 108
+title: 'Episode 101: Kanata, What About the Welcome Home Kiss?'
 ---
 Episode 101: Kanata, What About the Welcome Home Kiss?
 

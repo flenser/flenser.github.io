@@ -1,5 +1,8 @@
 ---
-parent: "Second-year university student, spring"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second-year university student, spring
+sequence: 48
 title: "Episode 48: You know, when I'm feeling down, that's exactly when I do my makeup to perfection"
 ---
 Episode 48: You know, when I'm feeling down, that's exactly when I do my makeup to perfection

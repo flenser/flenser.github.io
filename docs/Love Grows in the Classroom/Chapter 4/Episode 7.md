@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 4: Can I Come Over?"
-title: "Episode Seven: What Are You Thinking? ―August 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 7
+parent: 'Chapter 4: Can I Come Over?'
+sequence: 42
+title: 'Episode Seven: What Are You Thinking? ―August 2032―'
 ---
 Episode Seven: What Are You Thinking? ―August 2032―
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 4: [Yuri Friends] When the Lips Part."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 4
+parent: 'Chapter One: Yuri Friends'
+sequence: 5
+title: 'Episode 4: [Yuri Friends] When the Lips Part.'
 ---
 **Episode 4: [Yuri Friends] When the Lips Part.**
 

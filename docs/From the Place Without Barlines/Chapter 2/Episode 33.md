@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 33 — Studying'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 33
+parent: Chapter 2 - BELIEVE
+sequence: 33
+title: Episode 33 — Studying
 ---
 ## Episode 33 — Studying
 

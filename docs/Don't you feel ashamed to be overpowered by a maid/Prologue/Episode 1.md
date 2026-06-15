@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Prologue
+sequence: 1
 title: Episode 1
 ---
-
 ――Within the dimly lit room, its curtains drawn tight, the creaking of a bed echoed.\
 It was spacious enough for one person to live in, its décor exuding an air of refinement.\
 Upon the large bed lay the figures of two young girls.

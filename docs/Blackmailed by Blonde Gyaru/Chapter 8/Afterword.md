@@ -1,7 +1,10 @@
 ---
-parent: "Epilogue: I Am Blackmailing Her"
-title: "Afterword (Shikimoto Hono)"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 48
+parent: 'Epilogue: I Am Blackmailing Her'
+sequence: 49
+title: Afterword (Shikimoto Hono)
 ---
 **Afterword**
 

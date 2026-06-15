@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 8: The Story Only I Can Write"
-title: "Digression ⑤ Ryōka, Seventeen — February 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 15
+parent: 'Chapter 8: The Story Only I Can Write'
+sequence: 89
+title: Digression ⑤ Ryōka, Seventeen — February 2033 —
 ---
 Digression ⑤ Ryōka, Seventeen — February 2033 —
 

@@ -1,7 +1,10 @@
 ---
-parent: "First-year university student, spring"
-title: "Episode 2: Yui-san's Naughty Side"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 2
+parent: First-year university student, spring
+sequence: 2
+title: "Episode 2: Yui-san's Naughty Side"
 ---
 Episode 2: Yui-san's Naughty Side
 

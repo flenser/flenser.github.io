@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 53: The Beautiful Older Woman"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 53
+parent: Second-year High School Student
+sequence: 53
+title: 'Episode 53: The Beautiful Older Woman'
 ---
 Episode 53: The Beautiful Older Woman
 

@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 32: Summer Festival with Takisawa Beside Me ⑵"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 32
+parent: Second-year High School Student
+sequence: 32
+title: 'Episode 32: Summer Festival with Takisawa Beside Me ⑵'
 ---
 Episode 32: Summer Festival with Takisawa Beside Me ⑵
 

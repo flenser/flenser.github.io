@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 32 — Music'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 32
+parent: Chapter 2 - BELIEVE
+sequence: 32
+title: Episode 32 — Music
 ---
 ## Episode 32 — Music
 

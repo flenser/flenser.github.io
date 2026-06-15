@@ -1,7 +1,10 @@
 ---
-parent: "First-year university student, spring"
-title: "Episode 7: Fancy Having Sex with Me?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 7
+parent: First-year university student, spring
+sequence: 7
+title: 'Episode 7: Fancy Having Sex with Me?'
 ---
 Episode 7: Fancy Having Sex with Me?
 

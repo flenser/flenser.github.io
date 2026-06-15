@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Four: Yuri Girlfriends Won't Stop"
-title: "Episode 32: [Yuri Girlfriends] I'll Touch You Lots and Lots."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 32
+parent: "Chapter Four: Yuri Girlfriends Won't Stop"
+sequence: 33
+title: "Episode 32: [Yuri Girlfriends] I'll Touch You Lots and Lots."
 ---
 **Episode 32: [Yuri Girlfriends] I'll Touch You Lots and Lots.**
 

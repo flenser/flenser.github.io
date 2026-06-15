@@ -1,9 +1,11 @@
 ---
-parent: Chapter 1
-title: Episode 10
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 nav_order: 90
+parent: Chapter 1
+sequence: 10
+title: Episode 10
 ---
-
 "My apologies for the sudden intrusion. I came to enquire about the bandits who raided this village earlier."\
 "Ah, well... y-yes, I'm aware. The bandits...?"\
 "We've already taken custody of them. However, we'd also like to speak with those who assisted in capturing them. We heard information that someone entered this shop earlier."

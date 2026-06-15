@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 60 — Streetlight"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 60
+parent: Chapter 2 - BELIEVE
+sequence: 60
+title: Episode 60 — Streetlight
 ---
 ## Episode 60 — Streetlight
 

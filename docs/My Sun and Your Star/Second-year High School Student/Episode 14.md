@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 14: What the Eyes Follow ⑵"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 14
+parent: Second-year High School Student
+sequence: 14
+title: 'Episode 14: What the Eyes Follow ⑵'
 ---
 Episode 14: What the Eyes Follow ⑵
 

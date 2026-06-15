@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 6: The Twisted Valentine"
-title: "Episode Eight: So, We Pass Each Other By Again Today ―March 2033―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 8
+parent: 'Chapter 6: The Twisted Valentine'
+sequence: 63
+title: 'Episode Eight: So, We Pass Each Other By Again Today ―March 2033―'
 ---
 Episode Eight: So, We Pass Each Other By Again Today ―March 2033―
 

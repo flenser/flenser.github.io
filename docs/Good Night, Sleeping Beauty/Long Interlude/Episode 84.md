@@ -1,7 +1,10 @@
 ---
-parent: "Long Interlude"
-title: "The Witch's Sister's True Feelings"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 11
+parent: Long Interlude
+sequence: 84
+title: "The Witch's Sister's True Feelings"
 ---
 The Witch's Sister's True Feelings.
 

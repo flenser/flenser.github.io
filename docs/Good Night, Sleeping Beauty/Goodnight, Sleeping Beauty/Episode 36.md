@@ -1,7 +1,10 @@
 ---
-parent: "Goodnight, Sleeping Beauty"
-title: Episode Thirty-Six
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 6
+parent: Goodnight, Sleeping Beauty
+sequence: 36
+title: Episode Thirty-Six
 ---
 Episode Thirty-Six
 

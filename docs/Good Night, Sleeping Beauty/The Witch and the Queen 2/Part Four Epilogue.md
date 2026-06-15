@@ -1,7 +1,10 @@
 ---
-parent: "The Witch and the Queen (Part Two)"
-title: "Part Four: Epilogue"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 5
+parent: The Witch and the Queen (Part Two)
+sequence: 117
+title: 'Part Four: Epilogue'
 ---
 Part Four: Epilogue
 

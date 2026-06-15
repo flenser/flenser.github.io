@@ -1,7 +1,10 @@
 ---
-parent: "Long Interlude"
-title: "Sleeping Beauty and the Witch's Sister. Part 2"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 2
+parent: Long Interlude
+sequence: 75
+title: "Sleeping Beauty and the Witch's Sister. Part 2"
 ---
 Sleeping Beauty and the Witch's Sister. Part 2
 

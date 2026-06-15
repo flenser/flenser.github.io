@@ -1,9 +1,11 @@
 ---
-parent: 'Chapter Two: Crisps and Cola'
-title: 'Episode 8: Bubbles'
+grand_parent: Monofilament Witch
+layout: episode
 nav_order: 30
+parent: 'Chapter Two: Crisps and Cola'
+sequence: 8
+title: 'Episode 8: Bubbles'
 ---
-
 "...What the—!? Don't cry! Don't cry! Er, what!? Sorry! Were you scared? Were you scared? I'll apologise! Don't cry like that... But where are Mummy and Daddy? Hey, where are they? Are you lost...?"
 
 　Haruka Momotsuki couldn't tell what was running down her cheeks.\

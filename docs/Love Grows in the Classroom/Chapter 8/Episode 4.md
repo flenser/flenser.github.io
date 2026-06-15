@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 8: The Story Only I Can Write"
-title: "Episode Four: Nightmare, Once More ― December 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 5
+parent: 'Chapter 8: The Story Only I Can Write'
+sequence: 79
+title: 'Episode Four: Nightmare, Once More ― December 2033 —'
 ---
 Episode Four: Nightmare, Once More ―December 2033―
 

@@ -1,7 +1,10 @@
 ---
-parent: "The Witch and the Queen (Part Two)"
-title: "Episode One Hundred and Fifteen"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 3
+parent: The Witch and the Queen (Part Two)
+sequence: 115
+title: Episode One Hundred and Fifteen
 ---
 Episode One Hundred and Fifteen
 

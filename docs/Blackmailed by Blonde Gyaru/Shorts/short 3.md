@@ -1,7 +1,10 @@
 ---
-parent: "Short Stories: ♡3000 and ⭐️400 Thank You Bonus"
-title: "⭐️400 Thank-You Bonus Short Story (Hiyori's POV): The Smell She Likes — My Smell."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 50
+parent: 'Short Stories: ♡3000 and ⭐️400 Thank You Bonus'
+sequence: 52
+title: "⭐️400 Thank-You Bonus Short Story (Hiyori's POV): The Smell She Likes — My Smell."
 ---
 **⭐️400 Thank-You Bonus Short Story (Hiyori's POV): The Smell She Likes — My Smell.**
 

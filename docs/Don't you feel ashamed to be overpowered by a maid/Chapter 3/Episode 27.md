@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 3
+sequence: 27
 title: Episode 27
 ---
-
 Lotte and Alisha returned to the mansion sometime after noon.\
 By now, evening was drawing near —Lotte had quietly made her way back to Alisha's room.\
 　She had instructed the head maid that 'Alisha is resting alone in her room', ensuring no one approached.\

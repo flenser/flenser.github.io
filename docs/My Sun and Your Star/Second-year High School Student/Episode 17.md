@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 17: A Small Step ⑵"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 17
+parent: Second-year High School Student
+sequence: 17
+title: 'Episode 17: A Small Step ⑵'
 ---
 Episode 17: A Small Step ⑵
 

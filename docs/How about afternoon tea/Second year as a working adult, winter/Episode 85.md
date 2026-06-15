@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 85: This Year, We're Leaving It to Father Christmas"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 10
+parent: Second year as a working adult, winter
+sequence: 90
+title: "Episode 85: This Year, We're Leaving It to Father Christmas"
 ---
 Episode 85: This Year, We're Leaving It to Father Christmas
 

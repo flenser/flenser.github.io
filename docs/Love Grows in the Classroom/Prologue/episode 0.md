@@ -1,6 +1,9 @@
 ---
-parent: "Prologue: In the Classroom After School"
-title: "Episode 0: In the Classroom After School"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
+parent: 'Prologue: In the Classroom After School'
+sequence: 1
+title: 'Episode 0: In the Classroom After School'
 ---
 Prologue: In the Classroom After School
 

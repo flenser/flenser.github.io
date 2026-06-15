@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 79: I'll Spend My Whole Life Making It Happen"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 80
+parent: Second year as a working adult, autumn
+sequence: 83
+title: "Episode 79: I'll Spend My Whole Life Making It Happen"
 ---
 Episode 79: I'll Spend My Whole Life Making It Happen
 

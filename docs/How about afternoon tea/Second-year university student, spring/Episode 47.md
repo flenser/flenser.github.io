@@ -1,6 +1,9 @@
 ---
-parent: "Second-year university student, spring"
-title: "Episode 47: It Was the First Time I Had Ever Liked a Woman"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second-year university student, spring
+sequence: 47
+title: 'Episode 47: It Was the First Time I Had Ever Liked a Woman'
 ---
 Episode 47: It Was the First Time I Had Ever Liked a Woman
 

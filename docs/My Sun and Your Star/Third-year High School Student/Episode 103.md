@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 103: A Worried Mind"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 103
+parent: Third-year High School Student
+sequence: 103
+title: 'Episode 103: A Worried Mind'
 ---
 Episode 103: A Worried Mind
 

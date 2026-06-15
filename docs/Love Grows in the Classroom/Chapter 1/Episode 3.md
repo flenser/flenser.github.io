@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1: The Plain and Serious Japanese Teacher"
-title: "Episode Three: You Reap What You Sow — October 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 3
+parent: 'Chapter 1: The Plain and Serious Japanese Teacher'
+sequence: 4
+title: 'Episode Three: You Reap What You Sow — October 2032 —'
 ---
 Episode Three: You Reap What You Sow — October 2032 —
 

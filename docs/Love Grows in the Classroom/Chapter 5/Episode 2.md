@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 5: All Because of Sensei"
-title: "Episode Two: I Want to Start Over — September 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 2
+parent: 'Chapter 5: All Because of Sensei'
+sequence: 47
+title: 'Episode Two: I Want to Start Over — September 2032―'
 ---
 Episode Two: I Want to Start Over — September 2032 —
 

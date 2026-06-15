@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 8: The Story Only I Can Write"
-title: "Episode Six: Future Value ― December 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 7
+parent: 'Chapter 8: The Story Only I Can Write'
+sequence: 81
+title: 'Episode Six: Future Value ― December 2033 —'
 ---
 Episode Six: Future Value ―December 2033―
 

@@ -1,7 +1,10 @@
 ---
-parent: "Less Than Friends"
-title: "Episode 24"
+grand_parent: My Neighbour, Kataba-san
+layout: episode
 nav_order: 24
+parent: Less Than Friends
+sequence: 24
+title: Episode 24
 ---
 Episode 24
 

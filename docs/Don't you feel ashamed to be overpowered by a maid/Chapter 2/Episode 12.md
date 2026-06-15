@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 2
+sequence: 12
 title: Episode 12
 ---
-
 Saying it in a hushed tone was out of consideration for Alisha, even though there were only the two of them in the room.\
 Alisha, due to her earnest nature, carried stress within her —though unseen by others, it was said that such mental strain often caused people to collapse.\
 But stress relief... was that really something Lotte could help with?

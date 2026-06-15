@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2: First Love and the Holy Night"
-title: "Digression ➁: For Whom the White Plate"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 15
+parent: 'Chapter 2: First Love and the Holy Night'
+sequence: 26
+title: 'Digression ➁: For Whom the White Plate'
 ---
 Digression ➁: For Whom the White Plate
 

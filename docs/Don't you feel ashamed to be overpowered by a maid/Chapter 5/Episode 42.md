@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 5
+sequence: 42
 title: Episode 42
 ---
-
 I asked the innkeeper for some rope and secured it near the head of the bed.
 
 "Does it hurt?"\

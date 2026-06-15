@@ -1,7 +1,10 @@
 ---
-parent: "Good Night, Sleeping Beauty: Short Stories"
-title: "Sleeping Beauty and the Tsundere"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 1
+parent: 'Good Night, Sleeping Beauty: Short Stories'
+sequence: 143
+title: Sleeping Beauty and the Tsundere
 ---
 **Sleeping Beauty and the Tsundere**
 

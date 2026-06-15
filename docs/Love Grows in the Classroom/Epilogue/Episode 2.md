@@ -1,7 +1,10 @@
 ---
-parent: "Epilogue: In the Classroom After School"
-title: "Episode Two: To Anyone But the Teacher ― June 2037 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 2
+parent: 'Epilogue: In the Classroom After School'
+sequence: 92
+title: 'Episode Two: To Anyone But the Teacher ― June 2037 —'
 ---
 Episode Two: To Anyone But the Teacher ―June 2037―
 

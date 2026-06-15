@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, summer"
-title: "Episode 12: Are They Dating? The Two of Them"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, summer
+sequence: 12
+title: 'Episode 12: Are They Dating? The Two of Them'
 ---
 Episode 12: Are They Dating? The Two of Them
 

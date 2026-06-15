@@ -1,5 +1,8 @@
 ---
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 parent: "Interlude Queen's Attendant (Part Two)"
+sequence: 112
 title: "Sleeping Beauty and the Queen's Attendant"
 ---
 Sleeping Beauty and the Queen's Attendant.

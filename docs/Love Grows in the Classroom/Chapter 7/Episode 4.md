@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 7: As a Teacher"
-title: "Episode Four: Change and Worry ― June 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 4
+parent: 'Chapter 7: As a Teacher'
+sequence: 67
+title: 'Episode Four: Change and Worry ― June 2033 —'
 ---
 Episode Four: Change and Worry ―June 2033―
 

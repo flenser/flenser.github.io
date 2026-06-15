@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 61 — Always"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 61
+parent: Chapter 3 - Always
+sequence: 61
+title: Episode 61 — Always
 ---
 ## Episode 61 — Always
 

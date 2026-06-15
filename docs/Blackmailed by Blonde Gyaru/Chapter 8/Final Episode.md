@@ -1,7 +1,10 @@
 ---
-parent: "Epilogue: I Am Blackmailing Her"
-title: "Final Episode: Just Because We're Doing It Together Doesn't Mean You Can Film It?!"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 47
+parent: 'Epilogue: I Am Blackmailing Her'
+sequence: 48
+title: "Final Episode: Just Because We're Doing It Together Doesn't Mean You Can Film It?!"
 ---
 **Final Episode: Just Because We're Doing It Together Doesn't Mean You Can Film It?!**
 

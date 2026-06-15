@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: "Episode 8: I Can't Go Back to a Daily Life Without Nana"
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 20
+parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
+sequence: 8
+title: "Episode 8: I Can't Go Back to a Daily Life Without Nana"
 ---
 Episode 8: I Can't Go Back to a Daily Life Without Nana
 

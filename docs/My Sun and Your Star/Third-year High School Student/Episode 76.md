@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 76: Sports Day (3)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 76
+parent: Third-year High School Student
+sequence: 76
+title: 'Episode 76: Sports Day (3)'
 ---
 Episode 76: Sports Day (3)
 

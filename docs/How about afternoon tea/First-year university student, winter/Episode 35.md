@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, winter"
-title: "Episode 35: For me, kissing Kanata is what matters most"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, winter
+sequence: 35
+title: 'Episode 35: For me, kissing Kanata is what matters most'
 ---
 Episode 35: For me, kissing Kanata is what matters most
 

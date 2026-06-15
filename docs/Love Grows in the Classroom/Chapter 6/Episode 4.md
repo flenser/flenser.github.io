@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 6: The Twisted Valentine"
-title: "Episode Four: The World We See — February 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 4
+parent: 'Chapter 6: The Twisted Valentine'
+sequence: 59
+title: 'Episode Four: The World We See — February 2033 —'
 ---
 Episode Four: The World We See ―February 2033―
 

@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 92: Yui-san, you really do adore me, don't you?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 80
+parent: Second year as a working adult, winter
+sequence: 97
+title: "Episode 92: Yui-san, you really do adore me, don't you?"
 ---
 Episode 92: Yui-san, you really do adore me, don't you?
 

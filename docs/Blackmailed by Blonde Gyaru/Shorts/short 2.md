@@ -1,7 +1,10 @@
 ---
-parent: "Short Stories: ♡3000 and ⭐️400 Thank You Bonus"
-title: "♡3000 Thank-You Bonus Short Story (Hiyori's POV): Wait, How Much Is Maya Doing This? (Part 2)"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 49
+parent: 'Short Stories: ♡3000 and ⭐️400 Thank You Bonus'
+sequence: 51
+title: "♡3000 Thank-You Bonus Short Story (Hiyori's POV): Wait, How Much Is Maya Doing This? (Part 2)"
 ---
 **♡3000 Thank-You Bonus Short Story: Wait, How Much Is Maya Doing This? (Part 2)**
 

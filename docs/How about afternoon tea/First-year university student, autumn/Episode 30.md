@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, autumn"
-title: "Episode 30: Just a Little While Longer, Let Me Stay Like This"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, autumn
+sequence: 30
+title: 'Episode 30: Just a Little While Longer, Let Me Stay Like This'
 ---
 Episode 30: Just a Little While Longer, Let Me Stay Like This
 

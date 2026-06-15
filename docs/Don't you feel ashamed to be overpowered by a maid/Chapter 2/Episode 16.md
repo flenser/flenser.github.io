@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 2
+sequence: 16
 title: Episode 16
 ---
-
 "I-I-I'm sorry, I... I went too far...!"
 
 Lotte blurted out an apology in a panic —but it might have been too late.\

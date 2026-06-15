@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: 'Episode 15: Can I Come and Stay Over Next Time?'
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 10
+parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
+sequence: 15
+title: 'Episode 15: Can I Come and Stay Over Next Time?'
 ---
 Episode 15: Can I Come and Stay Over Next Time?
 

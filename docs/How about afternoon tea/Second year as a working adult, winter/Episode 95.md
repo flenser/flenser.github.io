@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 95: Just because you're lonely doesn't mean you should cheat"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 110
+parent: Second year as a working adult, winter
+sequence: 100
+title: "Episode 95: Just because you're lonely doesn't mean you should cheat"
 ---
 Episode 95: Just because you're lonely doesn't mean you should cheat
 

@@ -1,6 +1,9 @@
 ---
-parent: "Epilogue - Colour"
-title: "Part One - A World Coloured by You"
+grand_parent: You Bleed Into My Colourless World
+layout: episode
+parent: Epilogue - Colour
+sequence: 42
+title: Part One - A World Coloured by You
 ---
 ## *A World Coloured by You*
 

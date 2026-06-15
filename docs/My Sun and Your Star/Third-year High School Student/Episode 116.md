@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 116: New Year’s Shrine Visit"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 116
+parent: Third-year High School Student
+sequence: 116
+title: 'Episode 116: New Year’s Shrine Visit'
 ---
 Episode 116: New Year’s Shrine Visit
 

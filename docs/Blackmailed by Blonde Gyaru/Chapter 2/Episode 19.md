@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Two: The Two of Us Playing Yuri Friends"
-title: "Episode 19: [Yuri Friends] I Want to Know You, Here on My Lap."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 19
+parent: 'Chapter Two: The Two of Us Playing Yuri Friends'
+sequence: 20
+title: 'Episode 19: [Yuri Friends] I Want to Know You, Here on My Lap.'
 ---
 **Episode 19: [Yuri Friends] I Want to Know You, Here on My Lap.**
 

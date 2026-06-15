@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 49: Bonus – Morning"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 49
+parent: Second-year High School Student
+sequence: 49
+title: 'Episode 49: Bonus – Morning'
 ---
 Episode 49: Bonus – Morning
 

@@ -1,3 +1,8 @@
+---
+grand_parent: Love Grows in the Classroom After School
+layout: episode
+sequence: 97
+---
 To You 150 Years Ago
 by Tsuzuro Hibi
 

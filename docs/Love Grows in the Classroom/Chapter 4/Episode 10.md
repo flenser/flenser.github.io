@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 4: Can I Come Over?"
-title: "Episode Ten: The Desired Partner ―August 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 10
+parent: 'Chapter 4: Can I Come Over?'
+sequence: 45
+title: 'Episode Ten: The Desired Partner ―August 2032―'
 ---
 Episode Ten: The Desired Partner ―August 2032―
 

@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 93: I'm So Happy Right Now"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 90
+parent: Second year as a working adult, winter
+sequence: 98
+title: "Episode 93: I'm So Happy Right Now"
 ---
 Episode 93: I'm So Happy Right Now
 

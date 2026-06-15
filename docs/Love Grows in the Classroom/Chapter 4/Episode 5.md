@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 4: Can I Come Over?"
-title: "Episode Five: The Teacher's Home ―August 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 5
+parent: 'Chapter 4: Can I Come Over?'
+sequence: 40
+title: "Episode Five: The Teacher's Home ―August 2032―"
 ---
 Episode 5: The Teacher's Home ―August 2032―
 

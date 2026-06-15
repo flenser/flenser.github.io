@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Three: Yuri Girlfriends"
-title: "Episode 25: And Then Hiyori—"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 25
+parent: 'Chapter Three: Yuri Girlfriends'
+sequence: 26
+title: 'Episode 25: And Then Hiyori—'
 ---
 **Episode 25: And Then Hiyori—**
 

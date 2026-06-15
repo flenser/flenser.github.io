@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Appeal to the Prince"
-title: "Part Five"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 5
+parent: The Princess Wants to Appeal to the Prince
+sequence: 19
+title: Part Five
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Five
 

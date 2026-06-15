@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 10: Mid-Term Exams"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 10
+parent: Second-year High School Student
+sequence: 10
+title: 'Episode 10: Mid-Term Exams'
 ---
 Episode 10: Mid-Term Exams
 

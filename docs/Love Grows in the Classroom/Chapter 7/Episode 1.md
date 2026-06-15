@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 7: As a Teacher"
-title: "Episode One: Homeroom Teacher ― April 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 1
+parent: 'Chapter 7: As a Teacher'
+sequence: 64
+title: 'Episode One: Homeroom Teacher ― April 2033 —'
 ---
 Episode One: Homeroom Teacher ―April 2033―
 

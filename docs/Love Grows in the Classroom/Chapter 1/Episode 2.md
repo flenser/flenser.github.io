@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1: The Plain and Serious Japanese Teacher"
-title: "Episode Two: An Extremely Peculiar and Troublesome Pupil — October 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 2
+parent: 'Chapter 1: The Plain and Serious Japanese Teacher'
+sequence: 3
+title: 'Episode Two: An Extremely Peculiar and Troublesome Pupil — October 2032 —'
 ---
 Episode Two: An Extremely Peculiar and Troublesome Pupil — October 2032 —
 

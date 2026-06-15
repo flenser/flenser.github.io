@@ -1,3 +1,8 @@
+---
+grand_parent: Love Grows in the Classroom After School
+layout: episode
+sequence: 96
+---
 ‘Love Gathers in the Classroom After School’ Christmas Short Story (Post-Epilogue)
 
 Supporters-Only Article

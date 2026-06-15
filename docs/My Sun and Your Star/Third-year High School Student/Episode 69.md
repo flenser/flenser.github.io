@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 69: Bonus – The Switch"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 69
+parent: Third-year High School Student
+sequence: 69
+title: 'Episode 69: Bonus – The Switch'
 ---
 Episode 69: Bonus – The Switch
 

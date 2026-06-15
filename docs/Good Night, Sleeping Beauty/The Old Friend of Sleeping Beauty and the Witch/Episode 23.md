@@ -1,7 +1,10 @@
 ---
-parent: "The Old Friend of Sleeping Beauty and the Witch"
-title: Episode Twenty-Three
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 5
+parent: The Old Friend of Sleeping Beauty and the Witch
+sequence: 23
+title: Episode Twenty-Three
 ---
 Episode Twenty-Three
 

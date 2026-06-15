@@ -1,7 +1,10 @@
 ---
-parent: Interlude
-title: "The Cheer Squad for Their Romance"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 2
+parent: Interlude
+sequence: 52
+title: The Cheer Squad for Their Romance
 ---
 The Cheer Squad for Their Romance
 

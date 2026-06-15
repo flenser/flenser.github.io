@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 123: Bonus - Reunion (2)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 123
+parent: Third-year High School Student
+sequence: 123
+title: 'Episode 123: Bonus - Reunion (2)'
 ---
 Episode 123: Bonus - Reunion (2)
 

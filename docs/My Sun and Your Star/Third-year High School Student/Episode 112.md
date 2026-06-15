@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 112: The Christmas Party"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 112
+parent: Third-year High School Student
+sequence: 112
+title: 'Episode 112: The Christmas Party'
 ---
 Episode 112: The Christmas Party
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 23 — Continued in the Music Room"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 23
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 23
+title: Episode 23 — Continued in the Music Room
 ---
 ## Episode 23 — Continued in the Music Room
 

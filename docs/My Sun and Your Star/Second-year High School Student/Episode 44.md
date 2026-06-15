@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 44: Bonus – The Black Cat and the Labrador"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 44
+parent: Second-year High School Student
+sequence: 44
+title: 'Episode 44: Bonus – The Black Cat and the Labrador'
 ---
 Episode 44: Bonus – The Black Cat and the Labrador
 

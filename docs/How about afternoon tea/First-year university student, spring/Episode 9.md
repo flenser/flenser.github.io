@@ -1,7 +1,10 @@
 ---
-parent: "First-year university student, spring"
-title: "Episode 9: Have You Sobered Up Yet?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 9
+parent: First-year university student, spring
+sequence: 9
+title: 'Episode 9: Have You Sobered Up Yet?'
 ---
 Episode 9: Have You Sobered Up Yet?
 

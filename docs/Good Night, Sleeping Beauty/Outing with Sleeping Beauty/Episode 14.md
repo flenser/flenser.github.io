@@ -1,7 +1,10 @@
 ---
-parent: "Outing with Sleeping Beauty"
-title: Episode Fourteen
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 14
+parent: Outing with Sleeping Beauty
+sequence: 14
+title: Episode Fourteen
 ---
 Episode Fourteen
 

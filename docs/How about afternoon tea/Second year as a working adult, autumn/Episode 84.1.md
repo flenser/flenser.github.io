@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Autumn Special: To the Ends of the Earth"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 140
+parent: Second year as a working adult, autumn
+sequence: 89
+title: 'Autumn Special: To the Ends of the Earth'
 ---
 Autumn Special: To the Ends of the Earth
 

@@ -1,5 +1,8 @@
 ---
-parent: "Interlude Soliloquy"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
+parent: Interlude Soliloquy
+sequence: 18
 title: "Princess Ibara's Soliloquy"
 ---
 Princess Ibara's Soliloquy

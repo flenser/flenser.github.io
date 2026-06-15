@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 7: As a Teacher"
-title: "Episode Nine: Special Treatment ― June 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 9
+parent: 'Chapter 7: As a Teacher'
+sequence: 72
+title: 'Episode Nine: Special Treatment ― June 2033 —'
 ---
 Episode 9: Special Treatment ―June 2033―
 

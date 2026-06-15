@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and Valentine's Day Memories"
-title: Episode Sixty-Eight
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 3
+parent: "Sleeping Beauty and Valentine's Day Memories"
+sequence: 68
+title: Episode Sixty-Eight
 ---
 Episode Sixty-Eight
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
-title: "Episode Six: Cheating? ―July 2032—"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 6
+parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
+sequence: 33
+title: 'Episode Six: Cheating? ―July 2032—'
 ---
 Episode Six: Cheating? ―July 2032―
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 71 — Classroom"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 71
+parent: Chapter 3 - Always
+sequence: 71
+title: Episode 71 — Classroom
 ---
 ## Episode 71: Classroom
 

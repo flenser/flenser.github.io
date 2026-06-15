@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 149: The Two of Us (3)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 149
+parent: University Students (Relationship Arc)
+sequence: 149
+title: 'Episode 149: The Two of Us (3)'
 ---
 Episode 149: The Two of Us (3)
 

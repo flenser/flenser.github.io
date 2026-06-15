@@ -1,7 +1,10 @@
 ---
-parent: "The Witch and Cinderella (Part One)"
-title: Episode Forty-Four
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 1
+parent: The Witch and Cinderella (Part One)
+sequence: 44
+title: Episode Forty-Four
 ---
 Episode Forty-Four
 

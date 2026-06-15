@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Four: Raven from Hell'
+sequence: 22
 title: 'Episode 22: The Definition of a Witch'
 ---
-
 M-Particle Magic changed the world.\
 And it transformed humanity.
 

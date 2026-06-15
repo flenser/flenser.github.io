@@ -1,6 +1,9 @@
 ---
-parent: "Afterword"
-title: "To You Who Read to the End"
+grand_parent: You Bleed Into My Colourless World
+layout: episode
+parent: Afterword
+sequence: 44
+title: To You Who Read to the End
 ---
 ## *To You Who Read to the End*
 

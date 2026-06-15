@@ -1,6 +1,9 @@
 ---
-parent: "The Colourless Purist"
-title: "Episode 2"
+grand_parent: You Bleed Into My Colourless World
+layout: episode
+parent: The Colourless Purist
+sequence: 2
+title: Episode 2
 ---
 Episode 2
 

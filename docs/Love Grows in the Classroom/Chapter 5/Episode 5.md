@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 5: All Because of Sensei"
-title: "Episode Five: Sophistry and Guilt ―September 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 5
+parent: 'Chapter 5: All Because of Sensei'
+sequence: 50
+title: 'Episode Five: Sophistry and Guilt ―September 2032―'
 ---
 Episode Five: Sophistry and Guilt ―September 2032―
 

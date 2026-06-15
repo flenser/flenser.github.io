@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 4
+sequence: 37
 title: Episode 37
 ---
-
 Alisha had departed on her expedition, and Lotte was working at the Zekrosia family mansion.\
 Though she was no longer summoned by Alisha and should have been able to focus on her actual duties, she found herself making simple mistakes more often.\
 As she spent her days like this, she remembered — why she had become a maid in the first place was surely because she wanted to be of use to Alisha.\

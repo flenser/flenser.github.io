@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 55 — Home"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 55
+parent: Chapter 2 - BELIEVE
+sequence: 55
+title: Episode 55 — Home
 ---
 ## Episode 55 — Home
 

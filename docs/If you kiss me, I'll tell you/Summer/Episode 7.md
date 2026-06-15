@@ -1,5 +1,8 @@
 ---
-parent: "Summer"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Summer
+sequence: 7
 title: "Episode 7: Even the time spent longing could turn into hellish memories, couldn't it?"
 ---
 Episode 7: Even the time spent longing could turn into hellish memories, couldn't it?

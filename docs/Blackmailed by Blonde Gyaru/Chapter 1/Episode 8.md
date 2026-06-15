@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 8: Held, and Dizzy."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 8
+parent: 'Chapter One: Yuri Friends'
+sequence: 9
+title: 'Episode 8: Held, and Dizzy.'
 ---
 **Episode 8: Held, and Dizzy.**
 

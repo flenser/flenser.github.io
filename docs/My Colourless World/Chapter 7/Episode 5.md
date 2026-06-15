@@ -1,6 +1,9 @@
 ---
-parent: "A Changing Future"
-title: "Episode 5"
+grand_parent: You Bleed Into My Colourless World
+layout: episode
+parent: A Changing Future
+sequence: 40
+title: Episode 5
 ---
 Episode 5
 

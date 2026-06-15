@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 67: A Peaceful Day"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 67
+parent: Third-year High School Student
+sequence: 67
+title: 'Episode 67: A Peaceful Day'
 ---
 Episode 67: A Peaceful Day
 

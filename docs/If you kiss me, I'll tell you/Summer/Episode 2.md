@@ -1,5 +1,8 @@
 ---
-parent: "Summer"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Summer
+sequence: 2
 title: "Episode 2: My Pride Won't Allow Me to Be Held by You"
 ---
 Episode 2: My Pride Won't Allow Me to Be Held by You

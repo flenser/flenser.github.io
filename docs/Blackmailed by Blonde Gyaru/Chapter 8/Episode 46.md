@@ -1,7 +1,10 @@
 ---
-parent: "Epilogue: I Am Blackmailing Her"
-title: "Episode 46: Not Pretend — Real."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 46
+parent: 'Epilogue: I Am Blackmailing Her'
+sequence: 47
+title: 'Episode 46: Not Pretend — Real.'
 ---
 **Episode 46: Not Pretend — Real.**
 

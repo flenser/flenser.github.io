@@ -1,5 +1,8 @@
 ---
-parent: "Interlude Summer Class"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
+parent: Interlude Summer Class
+sequence: 133
 title: "Sleeping Beauty's Summer Class"
 ---
 Sleeping Beauty's Summer Class

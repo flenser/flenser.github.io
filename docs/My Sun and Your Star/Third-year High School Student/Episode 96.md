@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 96: Bonus - The Fireworks Festival with My Senior"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 96
+parent: Third-year High School Student
+sequence: 96
+title: 'Episode 96: Bonus - The Fireworks Festival with My Senior'
 ---
 Episode 96: Bonus - The Fireworks Festival with My Senior
 

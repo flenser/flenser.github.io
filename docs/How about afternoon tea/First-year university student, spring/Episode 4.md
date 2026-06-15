@@ -1,7 +1,10 @@
 ---
-parent: "First-year university student, spring"
-title: "Episode 4: An Emotion Without a Name"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 4
+parent: First-year university student, spring
+sequence: 4
+title: 'Episode 4: An Emotion Without a Name'
 ---
 Episode 4: An Emotion Without a Name
 

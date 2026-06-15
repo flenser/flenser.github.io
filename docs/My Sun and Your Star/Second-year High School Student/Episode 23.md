@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 23: Human-like"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 23
+parent: Second-year High School Student
+sequence: 23
+title: 'Episode 23: Human-like'
 ---
 Episode 23: Human-like
 

@@ -1,5 +1,8 @@
 ---
-parent: "First-year university student, winter"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, winter
+sequence: 37
 title: "Episode 37: Don't You Want to Do Something Else?"
 ---
 Episode 37: Don't You Want to Do Something Else?

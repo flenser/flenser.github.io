@@ -1,7 +1,10 @@
 ---
-parent: "Two with Broken Distance"
-title: "Episode 10"
+grand_parent: My Neighbour, Kataba-san
+layout: episode
 nav_order: 10
+parent: Two with Broken Distance
+sequence: 10
+title: Episode 10
 ---
 Episode 10
 

@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
+sequence: 23
 title: "Episode 23: It's perfectly normal for a girl to like another girl"
 ---
 Episode 23: It's perfectly normal for a girl to like another girl

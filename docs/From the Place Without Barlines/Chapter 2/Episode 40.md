@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 40 — The Wrong Answer'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 40
+parent: Chapter 2 - BELIEVE
+sequence: 40
+title: Episode 40 — The Wrong Answer
 ---
 ## Episode 40 — The Wrong Answer
 

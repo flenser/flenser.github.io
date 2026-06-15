@@ -1,6 +1,9 @@
 ---
-parent: "Interlude First Night"
-title: "Sleeping Beauty and the First Night"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
+parent: Interlude First Night
+sequence: 97
+title: Sleeping Beauty and the First Night
 ---
 Sleeping Beauty and the First Night
 

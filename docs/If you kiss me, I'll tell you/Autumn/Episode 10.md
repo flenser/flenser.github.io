@@ -1,7 +1,10 @@
 ---
-parent: "Autumn"
-title: "Episode 10: I feel both of you lack enthusiasm and a sense of urgency in your work"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
 nav_order: 30
+parent: Autumn
+sequence: 10
+title: 'Episode 10: I feel both of you lack enthusiasm and a sense of urgency in your work'
 ---
 Episode 10: I feel both of you lack enthusiasm and a sense of urgency in your work
 

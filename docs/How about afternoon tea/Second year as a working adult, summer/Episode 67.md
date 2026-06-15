@@ -1,5 +1,8 @@
 ---
-parent: "Second year as a working adult, summer"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, summer
+sequence: 70
 title: "Episode 67: Please, Don't Say We Won't Meet Again"
 ---
 Episode 67: Please, Don't Say We Won't Meet Again

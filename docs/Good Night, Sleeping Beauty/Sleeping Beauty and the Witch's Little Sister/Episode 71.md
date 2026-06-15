@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Witch's Little Sister"
-title: Episode Seventy-One
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 1
+parent: "Sleeping Beauty and the Witch's Little Sister"
+sequence: 71
+title: Episode Seventy-One
 ---
 Episode Seventy-One
 

@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 3
+sequence: 20
 title: Episode 20
 ---
-
 ――Several days had passed since Lotte returned to the Zekrosia household.\
 The main change was that the whispering behind Lotte's back had ceased.\
 Perhaps they'd simply stopped speaking within earshot of her – but even that alone made things considerably more bearable.\

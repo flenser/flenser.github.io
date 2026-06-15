@@ -1,5 +1,8 @@
 ---
-parent: "Winter"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Winter
+sequence: 25
 title: "Episode 25: You Can't Possibly Refuse, Can You?"
 ---
 Episode 25: You Can't Possibly Refuse, Can You?

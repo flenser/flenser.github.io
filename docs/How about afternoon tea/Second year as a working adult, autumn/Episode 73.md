@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 73: Cheating is Not Good"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 20
+parent: Second year as a working adult, autumn
+sequence: 77
+title: 'Episode 73: Cheating is Not Good'
 ---
 Episode 73: Cheating is Not Good
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 9 — Your Note"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 9
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 9
+title: Episode 9 — Your Note
 ---
 ## Episode 9 — Your Note
 

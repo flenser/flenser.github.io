@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Five: The End of Pretend"
-title: "Episode 37: I Can't Be Glad About This."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 37
+parent: 'Chapter Five: The End of Pretend'
+sequence: 38
+title: "Episode 37: I Can't Be Glad About This."
 ---
 **Episode 37: I Can't Be Glad About This.**
 

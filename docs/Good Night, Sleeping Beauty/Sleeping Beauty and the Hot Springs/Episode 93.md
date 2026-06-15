@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Hot Springs"
-title: "Episode Ninety-Three"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 3
+parent: Sleeping Beauty and the Hot Springs
+sequence: 93
+title: Episode Ninety-Three
 ---
 Episode Ninety-Three
 

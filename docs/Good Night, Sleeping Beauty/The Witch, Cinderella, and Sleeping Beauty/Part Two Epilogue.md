@@ -1,7 +1,10 @@
 ---
-parent: "The Witch, Cinderella, and Sleeping Beauty"
-title: "Part Two: Epilogue"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 3
+parent: The Witch, Cinderella, and Sleeping Beauty
+sequence: 61
+title: 'Part Two: Epilogue'
 ---
 Part Two: Epilogue
 

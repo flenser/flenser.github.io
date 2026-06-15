@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 145: A Walk"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 145
+parent: University Students (Relationship Arc)
+sequence: 145
+title: 'Episode 145: A Walk'
 ---
 Episode 145: A Walk
 

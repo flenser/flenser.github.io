@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
+sequence: 25
 title: 'Episode 25: With the One You Truly Love'
 ---
 Episode 25: With the One You Truly Love

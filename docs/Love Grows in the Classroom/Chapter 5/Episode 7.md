@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 5: All Because of Sensei"
-title: "Episode Seven: The True Nature of This Feeling ―September 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 7
+parent: 'Chapter 5: All Because of Sensei'
+sequence: 52
+title: 'Episode Seven: The True Nature of This Feeling ―September 2032―'
 ---
 Episode Seven: The True Nature of This Feeling ―September 2032―
 

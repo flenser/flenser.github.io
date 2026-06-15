@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 129: Because I Love Her"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 129
+parent: University Students (Relationship Arc)
+sequence: 129
+title: 'Episode 129: Because I Love Her'
 ---
 Episode 129: Because I Love Her
 

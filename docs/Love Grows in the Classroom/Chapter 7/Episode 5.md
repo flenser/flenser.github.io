@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 7: As a Teacher"
-title: "Episode Five: Beloved? ― June 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 5
+parent: 'Chapter 7: As a Teacher'
+sequence: 68
+title: 'Episode Five: Beloved? ― June 2033 —'
 ---
 Episode Five: Beloved? ―June 2033―
 

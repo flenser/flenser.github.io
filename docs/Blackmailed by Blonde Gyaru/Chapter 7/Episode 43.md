@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Seven: I Don't Want You to Look at Me. (Hiyori's POV)"
-title: "Episode 43: We Reach for Each Other."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 43
+parent: "Chapter Seven: I Don't Want You to Look at Me. (Hiyori's POV)"
+sequence: 44
+title: 'Episode 43: We Reach for Each Other.'
 ---
 **Episode 43: We Reach for Each Other.**
 

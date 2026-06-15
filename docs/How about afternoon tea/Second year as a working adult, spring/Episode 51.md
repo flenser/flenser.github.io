@@ -1,6 +1,9 @@
 ---
-parent: "Second year as a working adult, spring"
-title: "Episode 51: Clam Soup It Is for Lunch Today"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, spring
+sequence: 54
+title: 'Episode 51: Clam Soup It Is for Lunch Today'
 ---
 Episode 51: Clam Soup It Is for Lunch Today
 

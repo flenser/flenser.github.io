@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Four: Raven from Hell'
+sequence: 21
 title: 'Episode 21: The Missing Piece'
 ---
-
 "...This is a problem."\
 "I suppose so. Without this magic wand, Serene can't fight."\
 "Can't something be done?"\

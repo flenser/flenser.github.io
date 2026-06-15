@@ -1,9 +1,11 @@
 ---
-parent: Chapter 1
-title: Episode 7
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 nav_order: 60
+parent: Chapter 1
+sequence: 7
+title: Episode 7
 ---
-
 Night —at a certain brothel in the royal capital.\
 Even when most people are asleep, figures can still be seen in these parts.\
 This is especially true for those who frequent brothels, as they often arrive late after drinking in taverns.\

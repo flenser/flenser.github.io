@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 142: Promise"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 142
+parent: University Students (Relationship Arc)
+sequence: 142
+title: 'Episode 142: Promise'
 ---
 Episode 142: Promise
 

@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 4
+sequence: 31
 title: Episode 31
 ---
-
 Having concluded the ceremony, Lotte and Alisha were returning to the manor by carriage.\
 Today, being the day Alisha was honoured at the ceremony, she had no duties.\
 Inside the carriage, moving slowly through the royal capital —the ornate robes Alisha had worn for the ceremony were slightly dishevelled.\

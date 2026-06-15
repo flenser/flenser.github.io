@@ -1,7 +1,10 @@
 ---
-parent: "Epilogue - The Witches' Future"
-title: "Afterword - To You Who Read to the End"
+grand_parent: The White Witch and the Black Witch — A Twisted Secret Between Them
+layout: episode
 nav_order: 2
+parent: "Epilogue - The Witches' Future"
+sequence: 42
+title: Afterword - To You Who Read to the End
 ---
 ## **To You Who Read to the End**
 

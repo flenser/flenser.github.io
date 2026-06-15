@@ -1,7 +1,10 @@
 ---
-parent: "The Desire to Know"
-title: "Episode 20"
+grand_parent: My Neighbour, Kataba-san
+layout: episode
 nav_order: 20
+parent: The Desire to Know
+sequence: 20
+title: Episode 20
 ---
 Episode 20
 

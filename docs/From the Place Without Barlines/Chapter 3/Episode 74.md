@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 74 — No One Can Touch It"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 74
+parent: Chapter 3 - Always
+sequence: 74
+title: Episode 74 — No One Can Touch It
 ---
 ## Episode 74: No One Can Touch It
 

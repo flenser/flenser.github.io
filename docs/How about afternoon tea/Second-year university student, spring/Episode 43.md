@@ -1,5 +1,8 @@
 ---
-parent: "Second-year university student, spring"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second-year university student, spring
+sequence: 43
 title: "Episode 43: I Won't Wait Any Longer"
 ---
 Episode 43: I Won't Wait Any Longer

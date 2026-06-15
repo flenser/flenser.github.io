@@ -1,9 +1,11 @@
 ---
-parent: 'Chapter Two: Crisps and Cola'
-title: 'Episode 7: Going Out'
+grand_parent: Monofilament Witch
+layout: episode
 nav_order: 20
+parent: 'Chapter Two: Crisps and Cola'
+sequence: 7
+title: 'Episode 7: Going Out'
 ---
-
 It was the first time Momotsuki Haruka had ever applied for permission to go out.
 
 It had been five years since Momotsuki Haruka became a magical girl... since she was taken in by the organisation and had a Magus Engine implanted in her heart... when she was eight years old. Since then, she had never left the organisation's premises for anything other than missions. The training facility called the 【School】, the medical wing with its examination rooms – everything was within the organisation's grounds, so there had been no need.

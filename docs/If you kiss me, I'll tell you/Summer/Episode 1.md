@@ -1,6 +1,9 @@
 ---
-parent: "Summer"
-title: "Episode 1: Kissing is something people who like each other do, right?"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Summer
+sequence: 1
+title: 'Episode 1: Kissing is something people who like each other do, right?'
 ---
 Episode 1: Kissing is something people who like each other do, right?
 

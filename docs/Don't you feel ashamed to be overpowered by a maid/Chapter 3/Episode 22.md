@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 3
+sequence: 22
 title: Episode 22
 ---
-
 —Though it’s not an uncommon sight to see food being sold by the roadside like this.
 
 “It’s hardly the sort of thing Lady Alisha would eat—”\

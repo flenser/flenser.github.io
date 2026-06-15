@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 5
+sequence: 40
 title: Episode 40
 ---
-
 Seeing Alisha injured, Lotte could not suppress her emotions.\
 —Alisha's injury must surely be Lotte's responsibility.\
 It might be arrogant to think so —but pushing Alisha away must have affected her mental state, at the very least.\

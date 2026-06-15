@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1: The Plain and Serious Japanese Teacher"
-title: "Episode Seven: Career Paths - November 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 7
+parent: 'Chapter 1: The Plain and Serious Japanese Teacher'
+sequence: 8
+title: 'Episode Seven: Career Paths - November 2032 —'
 ---
 Episode Seven: Career Paths - November 2032 -
 

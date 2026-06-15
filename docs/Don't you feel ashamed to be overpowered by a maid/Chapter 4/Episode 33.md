@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 4
+sequence: 33
 title: Episode 33
 ---
-
 Lotte walked alone, making her way back to the manor.\
 There was still some distance to cover — she felt opportunities to walk through the royal capital alone like this had grown scarce of late.\
 Of course, she did venture out for work, but she seldom strayed far from the manor.\

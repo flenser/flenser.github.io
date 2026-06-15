@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 8: The Story Only I Can Write"
-title: "Episode Ten: It's Because You're My Teacher That I Like You ― December 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 11
+parent: 'Chapter 8: The Story Only I Can Write'
+sequence: 85
+title: "Episode Ten: It's Because You're My Teacher That I Like You ― December 2033 —"
 ---
 Episode Ten: It's Because You're My Teacher That I Like You ―December 2033―
 

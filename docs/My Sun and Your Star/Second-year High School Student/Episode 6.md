@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 6: The Study Pledge"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 6
+parent: Second-year High School Student
+sequence: 6
+title: 'Episode 6: The Study Pledge'
 ---
 Episode 6: The Study Pledge
 

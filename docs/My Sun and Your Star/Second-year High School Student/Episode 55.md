@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 55: Nothing for Christmas"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 55
+parent: Second-year High School Student
+sequence: 55
+title: 'Episode 55: Nothing for Christmas'
 ---
 Episode 55: Nothing for Christmas
 

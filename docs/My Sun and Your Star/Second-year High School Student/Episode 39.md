@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 39: Sleepover (1)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 39
+parent: Second-year High School Student
+sequence: 39
+title: 'Episode 39: Sleepover (1)'
 ---
 Episode 39: Sleepover (1)
 

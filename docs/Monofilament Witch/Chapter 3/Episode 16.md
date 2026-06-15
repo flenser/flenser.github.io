@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Three: Lost Girls'
+sequence: 16
 title: 'Episode 16: Stuffed Toy'
 ---
-
 Though she once ended up embedded in the ceiling, Momotsuki Haruka's adjustments proceeded smoothly. The limbs of her magical cyberware had become so familiar that she could scarcely recall the sensations of her former flesh-and-blood self. Even if she could have remembered, Momotsuki Haruka would never have looked back.\
 【Recollection】is forbidden.
 

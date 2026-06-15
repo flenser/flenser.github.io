@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Neverending Night (Part One)"
-title: "Episode Ninety-Eight"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 1
+parent: Sleeping Beauty and the Neverending Night (Part One)
+sequence: 98
+title: Episode Ninety-Eight
 ---
 Episode Ninety-Eight
 

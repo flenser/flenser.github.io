@@ -1,6 +1,9 @@
 ---
-parent: "Extra Chapters"
-title: "I brought her along as promised. My girlfriend."
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Extra Chapters
+sequence: 119
+title: I brought her along as promised. My girlfriend.
 ---
 I brought her along as promised. My girlfriend.
 

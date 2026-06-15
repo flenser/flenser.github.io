@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty's Punishment"
-title: Episode Fifty-Eight
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 5
+parent: "Sleeping Beauty's Punishment"
+sequence: 58
+title: Episode Fifty-Eight
 ---
 Episode Fifty-Eight
 

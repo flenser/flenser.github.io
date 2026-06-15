@@ -1,9 +1,11 @@
 ---
-parent: 'Chapter Two: Crisps and Cola'
-title: 'Episode 11: The Smile'
+grand_parent: Monofilament Witch
+layout: episode
 nav_order: 60
+parent: 'Chapter Two: Crisps and Cola'
+sequence: 11
+title: 'Episode 11: The Smile'
 ---
-
 Who or what?\
 Strawberry Pink, freed from her constraints upon receiving permission to use magic, began to ponder. Access to the database was jammed. Communication with HQ was similarly blocked. In that case, attempting it would be a waste of time.
 

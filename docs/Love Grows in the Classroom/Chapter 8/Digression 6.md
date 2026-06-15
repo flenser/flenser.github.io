@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 8: The Story Only I Can Write"
-title: "Digression ⑥ Ryōka, Eighteen Years Old ― December 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 16
+parent: 'Chapter 8: The Story Only I Can Write'
+sequence: 90
+title: Digression ⑥ Ryōka, Eighteen Years Old ― December 2033 —
 ---
 Digression ⑥ Ryōka, Eighteen Years Old ―December 2033―
 

@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 5
+sequence: 44
 title: Episode 44
 ---
-
 The dragon made its lair in a ravine surrounded by cliffs near the forest.\
 Its jet-black scales were tougher than any mineral, its claws and fangs easily shattering rock.\
 Having fought several times nearby, trees lay felled —literally, numerous battle scars remained.\

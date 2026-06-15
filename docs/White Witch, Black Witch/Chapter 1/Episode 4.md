@@ -1,7 +1,10 @@
 ---
-parent: "The White Witch and the Black Witch"
-title: "Episode Four"
+grand_parent: The White Witch and the Black Witch — A Twisted Secret Between Them
+layout: episode
 nav_order: 4
+parent: The White Witch and the Black Witch
+sequence: 4
+title: Episode Four
 ---
 Episode Four
 

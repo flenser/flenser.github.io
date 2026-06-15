@@ -1,7 +1,10 @@
 ---
-parent: "First-year university student, spring"
-title: "Episode 6: Do I Not Have to Refuse?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 6
+parent: First-year university student, spring
+sequence: 6
+title: 'Episode 6: Do I Not Have to Refuse?'
 ---
 Episode 6: Do I Not Have to Refuse?
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: 'Episode 29 — A Song for a Friend'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 29
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 29
+title: Episode 29 — A Song for a Friend
 ---
 ## Episode 29 — A Song for a Friend
 

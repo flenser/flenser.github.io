@@ -1,7 +1,10 @@
 ---
-parent: "People Who Want to Live Alone, and Cannot"
-title: "Episode Two"
+grand_parent: The White Witch and the Black Witch — A Twisted Secret Between Them
+layout: episode
 nav_order: 2
+parent: People Who Want to Live Alone, and Cannot
+sequence: 24
+title: Episode Two
 ---
 Episode Two
 

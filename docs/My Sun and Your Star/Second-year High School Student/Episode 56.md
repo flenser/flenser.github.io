@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 56: Romantic Feelings"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 56
+parent: Second-year High School Student
+sequence: 56
+title: 'Episode 56: Romantic Feelings'
 ---
 Episode 56: Romantic Feelings
 

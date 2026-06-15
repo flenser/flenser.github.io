@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 3
+sequence: 26
 title: Episode 26
 ---
-
 Fortunately, she managed to return to her room without being spotted, but
 
 "...I told you it was dangerous, didn't I?!"

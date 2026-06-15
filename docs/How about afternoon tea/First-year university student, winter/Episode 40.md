@@ -1,5 +1,8 @@
 ---
-parent: "First-year university student, winter"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, winter
+sequence: 40
 title: "Episode 40: Don't Forget to Tie a Leek Around Your Neck"
 ---
 Episode 40: Don't Forget to Tie a Leek Around Your Neck

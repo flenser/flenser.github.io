@@ -1,9 +1,11 @@
 ---
-parent: 'Chapter Two: Crisps and Cola'
-title: 'Episode 6: Examination'
+grand_parent: Monofilament Witch
+layout: episode
 nav_order: 10
+parent: 'Chapter Two: Crisps and Cola'
+sequence: 6
+title: 'Episode 6: Examination'
 ---
-
 When 【Strawberry Pink】 returns to 【Haruka Momotsuki】.\
 When the pink twin tails revert to her natural black hair.\
 When the dress she wears changes back to a crumpled pink hoodie.

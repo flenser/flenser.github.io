@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty's Punishment"
-title: Episode Fifty-Seven
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 4
+parent: "Sleeping Beauty's Punishment"
+sequence: 57
+title: Episode Fifty-Seven
 ---
 Chapter Fifty-Seven
 

@@ -1,5 +1,8 @@
 ---
-parent: "First-year university student, summer"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, summer
+sequence: 14
 title: "Episode 14: Don't Say Such Cute Things"
 ---
 Episode 14: Don't Say Such Cute Things

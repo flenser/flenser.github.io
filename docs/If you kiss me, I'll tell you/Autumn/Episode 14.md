@@ -1,7 +1,10 @@
 ---
-parent: "Autumn"
-title: "Episode 14: Even if she's younger than me, that's no excuse for such a high-handed attitude, is it?"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
 nav_order: 70
+parent: Autumn
+sequence: 14
+title: "Episode 14: Even if she's younger than me, that's no excuse for such a high-handed attitude, is it?"
 ---
 Episode 14: Even if she's younger than me, that's no excuse for such a high-handed attitude, is it?
 

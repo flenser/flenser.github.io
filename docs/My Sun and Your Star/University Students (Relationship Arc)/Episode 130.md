@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 130: The Beginning of Summer"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 130
+parent: University Students (Relationship Arc)
+sequence: 130
+title: 'Episode 130: The Beginning of Summer'
 ---
 Episode 130: The Beginning of Summer
 

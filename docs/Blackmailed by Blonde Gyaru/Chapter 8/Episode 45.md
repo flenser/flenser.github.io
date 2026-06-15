@@ -1,7 +1,10 @@
 ---
-parent: "Epilogue: I Am Blackmailing Her"
-title: "Episode 45: I'm Going to Be a Proper Girlfriend."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 45
+parent: 'Epilogue: I Am Blackmailing Her'
+sequence: 46
+title: "Episode 45: I'm Going to Be a Proper Girlfriend."
 ---
 **Episode 45: I'm Going to Be a Proper Girlfriend.**
 

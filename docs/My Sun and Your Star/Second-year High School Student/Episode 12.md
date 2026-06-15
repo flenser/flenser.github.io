@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 12: My Favourite Omelette Rice"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 12
+parent: Second-year High School Student
+sequence: 12
+title: 'Episode 12: My Favourite Omelette Rice'
 ---
 Episode 12: My Favourite Omelette Rice
 

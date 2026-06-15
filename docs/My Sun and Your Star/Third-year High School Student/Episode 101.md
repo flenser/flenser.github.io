@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 101: Bonus - A Dear Friend"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 101
+parent: Third-year High School Student
+sequence: 101
+title: 'Episode 101: Bonus - A Dear Friend'
 ---
 Episode 101: Bonus - A Dear Friend
 

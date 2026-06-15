@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 20 — Pavane for a Dead Princess"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 20
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 20
+title: Episode 20 — Pavane for a Dead Princess
 ---
 ## Episode 20 — Pavane for a Dead Princess
 

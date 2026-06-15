@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: "Episode 13: You've Got Quite the Attitude Now, Haven't You?"
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 70
+parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
+sequence: 13
+title: "Episode 13: You've Got Quite the Attitude Now, Haven't You?"
 ---
 Episode 13: You've Got Quite the Attitude Now, Haven't You?
 

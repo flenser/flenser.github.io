@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 28: My Adorable Little Sister"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 28
+parent: Second-year High School Student
+sequence: 28
+title: 'Episode 28: My Adorable Little Sister'
 ---
 Episode 28: My Adorable Little Sister
 

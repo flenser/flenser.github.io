@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 1 — From the Place Without Barlines"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 1
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 1
+title: Episode 1 — From the Place Without Barlines
 ---
 ## Episode 1 — From the Place Without Barlines
 

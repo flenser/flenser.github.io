@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 104: My Birthday (1)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 104
+parent: Third-year High School Student
+sequence: 104
+title: 'Episode 104: My Birthday (1)'
 ---
 Episode 104: My Birthday (1)
 

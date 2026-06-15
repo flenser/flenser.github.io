@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 5
+sequence: 45
 title: Episode 45
 ---
-
 She would not miss that instant — Alisha closed the distance between herself and Ellenphia.
 
 "Gah...! You... little brat!"

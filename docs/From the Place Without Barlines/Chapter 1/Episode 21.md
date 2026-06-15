@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 21 — Young Adult"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 21
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 21
+title: Episode 21 — Young Adult
 ---
 ## Episode 21 — Young Adult
 

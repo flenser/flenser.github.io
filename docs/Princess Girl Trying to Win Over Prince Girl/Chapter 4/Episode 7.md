@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Be Chosen by the Prince"
-title: "Part Seven"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 7
+parent: The Princess Wants to Be Chosen by the Prince
+sequence: 45
+title: Part Seven
 ---
 ## Chapter Four: "The Princess Wants to Be Chosen by the Prince" — Part Seven
 

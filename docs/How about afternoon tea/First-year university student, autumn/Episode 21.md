@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, autumn"
-title: "Episode 21: I Want to See High School Yui"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, autumn
+sequence: 21
+title: 'Episode 21: I Want to See High School Yui'
 ---
 Episode 21: I Want to See High School Yui
 

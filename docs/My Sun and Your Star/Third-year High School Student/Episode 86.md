@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 86: Preparing for the Family Meeting (3)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 86
+parent: Third-year High School Student
+sequence: 86
+title: 'Episode 86: Preparing for the Family Meeting (3)'
 ---
 Episode 86: Preparing for the Family Meeting (3)
 

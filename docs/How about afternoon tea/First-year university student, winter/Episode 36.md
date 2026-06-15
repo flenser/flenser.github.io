@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, winter"
-title: "Episode 36: I Get Jealous Too, You Know"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, winter
+sequence: 36
+title: 'Episode 36: I Get Jealous Too, You Know'
 ---
 Episode 36: I Get Jealous Too, You Know
 

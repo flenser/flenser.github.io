@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 3: And After All That Blackmail, You're Going to Kiss Me Too?!"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 3
+parent: 'Chapter One: Yuri Friends'
+sequence: 4
+title: "Episode 3: And After All That Blackmail, You're Going to Kiss Me Too?!"
 ---
 **Episode 3: And After All That Blackmail, You're Going to Kiss Me Too?!**
 

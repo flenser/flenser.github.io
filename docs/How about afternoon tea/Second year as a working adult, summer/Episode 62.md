@@ -1,5 +1,8 @@
 ---
-parent: "Second year as a working adult, summer"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, summer
+sequence: 65
 title: "Episode 62: Because You Were Dating Back In Our Student Days, Weren't You?"
 ---
 Episode 62: Because You Were Dating Back In Our Student Days, Weren't You?

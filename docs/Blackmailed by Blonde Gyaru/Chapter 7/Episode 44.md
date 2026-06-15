@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Seven: I Don't Want You to Look at Me. (Hiyori's POV)"
-title: "Episode 44: Comparing Our Answers."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 44
+parent: "Chapter Seven: I Don't Want You to Look at Me. (Hiyori's POV)"
+sequence: 45
+title: 'Episode 44: Comparing Our Answers.'
 ---
 **Episode 44: Comparing Our Answers.**
 

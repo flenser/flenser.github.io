@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: 'Episode 19: To Nana'
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 50
+parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
+sequence: 19
+title: 'Episode 19: To Nana'
 ---
 Episode 19: To Nana
 

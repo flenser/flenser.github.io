@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 58 — Summer"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 58
+parent: Chapter 2 - BELIEVE
+sequence: 58
+title: Episode 58 — Summer
 ---
 ## Episode 58 — Summer
 

@@ -1,7 +1,10 @@
 ---
-parent: "Goodnight, Sleeping Beauty"
-title: Episode Thirty-Two
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 2
+parent: Goodnight, Sleeping Beauty
+sequence: 32
+title: Episode Thirty-Two
 ---
 Episode Thirty-Two
 

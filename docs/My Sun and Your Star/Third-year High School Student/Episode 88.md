@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 88: Bonus - Worries"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 88
+parent: Third-year High School Student
+sequence: 88
+title: 'Episode 88: Bonus - Worries'
 ---
 Episode 88: Bonus - Worries
 

@@ -1,9 +1,11 @@
 ---
-parent: 'Chapter Two: Crisps and Cola'
-title: 'Episode 9: The Promise'
+grand_parent: Monofilament Witch
+layout: episode
 nav_order: 40
+parent: 'Chapter Two: Crisps and Cola'
+sequence: 9
+title: 'Episode 9: The Promise'
 ---
-
 "Are you absolutely sure you can get home on your own!?"\
 "I'm not alone."\
 "Are you absolutely, positively sure!?"\

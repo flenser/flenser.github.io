@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 38: Bonus - Waiting Time"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 38
+parent: Second-year High School Student
+sequence: 38
+title: 'Episode 38: Bonus - Waiting Time'
 ---
 Episode 38: Bonus - Waiting Time
 

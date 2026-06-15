@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 2: Just Because I Was Doing It Alone Doesn't Mean You Can Film Me!"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 2
+parent: 'Chapter One: Yuri Friends'
+sequence: 3
+title: "Episode 2: Just Because I Was Doing It Alone Doesn't Mean You Can Film Me!"
 ---
 **Episode 2: Just Because I Was Doing It Alone Doesn't Mean You Can Film Me!**
 

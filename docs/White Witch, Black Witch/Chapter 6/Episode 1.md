@@ -1,7 +1,10 @@
 ---
-parent: "We Don't Need a Happy Ending"
-title: "Episode One"
+grand_parent: The White Witch and the Black Witch — A Twisted Secret Between Them
+layout: episode
 nav_order: 1
+parent: "We Don't Need a Happy Ending"
+sequence: 39
+title: Episode One
 ---
 Episode One
 

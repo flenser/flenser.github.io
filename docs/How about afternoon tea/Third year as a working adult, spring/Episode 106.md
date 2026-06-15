@@ -1,6 +1,9 @@
 ---
-parent: "Third year as a working adult, spring"
-title: "Episode 106: Even if it hurts, hold me tight"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Third year as a working adult, spring
+sequence: 113
+title: 'Episode 106: Even if it hurts, hold me tight'
 ---
 Episode 106: Even if it hurts, hold me tight
 

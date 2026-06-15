@@ -1,6 +1,9 @@
 ---
-parent: 'Special Edition'
-title: "I Think This Is a Once-in-a-Lifetime Love"
+grand_parent: A Closet Romance
+layout: episode
+parent: Special Edition
+sequence: 40
+title: I Think This Is a Once-in-a-Lifetime Love
 ---
 **Extra Chapter: I Think This Is a Once-in-a-Lifetime Love.**
 

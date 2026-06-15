@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 3
+sequence: 25
 title: Episode 25
 ---
-
 "Hurry, we must untie them quickly...!"
 
 It was Alisha who spoke in a flustered voice —Lotte snapped back to her senses and had Alisha put on the robe she had removed when binding her arms earlier.\

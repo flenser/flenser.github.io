@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 48 — That Girl I Can't Stop Thinking About"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 48
+parent: Chapter 2 - BELIEVE
+sequence: 48
+title: "Episode 48 — That Girl I Can't Stop Thinking About"
 ---
 ## Episode 48 — That Girl I Can't Stop Thinking About
 

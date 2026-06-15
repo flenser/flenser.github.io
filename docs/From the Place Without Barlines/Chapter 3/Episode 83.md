@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 83: La Campanella"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 83
+parent: Chapter 3 - Always
+sequence: 83
+title: 'Episode 83: La Campanella'
 ---
 ## Episode 83: La Campanella
 

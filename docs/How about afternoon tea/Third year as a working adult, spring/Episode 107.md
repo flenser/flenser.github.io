@@ -1,6 +1,9 @@
 ---
-parent: "Third year as a working adult, spring"
-title: "Episode 107: Who Loves Who, Exactly?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Third year as a working adult, spring
+sequence: 114
+title: 'Episode 107: Who Loves Who, Exactly?'
 ---
 Episode 107: Who Loves Who, Exactly?
 

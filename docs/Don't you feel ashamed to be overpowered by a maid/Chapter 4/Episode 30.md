@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 4
+sequence: 30
 title: Episode 30
 ---
-
 ――Some time had passed since Lotte began working for the Zekrosia household.\
 On this day, Alisha found herself in the square within the royal palace.\
 A ceremony was being held there, attended by numerous knights and nobles – even members of the royal family were present.\

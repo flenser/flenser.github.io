@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 56 — Where the Waves Go"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 56
+parent: Chapter 2 - BELIEVE
+sequence: 56
+title: Episode 56 — Where the Waves Go
 ---
 ## Episode 56 — Where the Waves Go
 

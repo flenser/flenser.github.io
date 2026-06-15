@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 38 — The Right Answer'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 38
+parent: Chapter 2 - BELIEVE
+sequence: 38
+title: Episode 38 — The Right Answer
 ---
 ## Episode 38 — The Right Answer
 

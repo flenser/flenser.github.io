@@ -1,7 +1,10 @@
 ---
-parent: "Autumn"
-title: "Episode 12: Once You're Married, Can You Really Be Happy?"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
 nav_order: 50
+parent: Autumn
+sequence: 12
+title: "Episode 12: Once You're Married, Can You Really Be Happy?"
 ---
 Episode 12: Once You're Married, Can You Really Be Happy?
 

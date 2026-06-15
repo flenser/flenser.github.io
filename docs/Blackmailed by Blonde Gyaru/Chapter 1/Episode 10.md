@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 10: [Yuri Friends] Don't Kiss Me That Many Times!"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 10
+parent: 'Chapter One: Yuri Friends'
+sequence: 11
+title: "Episode 10: [Yuri Friends] Don't Kiss Me That Many Times!"
 ---
 **Episode 10: [Yuri Friends] Don't Kiss Me That Many Times!**
 

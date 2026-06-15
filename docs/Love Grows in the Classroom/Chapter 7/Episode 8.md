@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 7: As a Teacher"
-title: "Episode Eight: The Optimal Solution ― June 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 8
+parent: 'Chapter 7: As a Teacher'
+sequence: 71
+title: 'Episode Eight: The Optimal Solution ― June 2033 —'
 ---
 Episode 8: The Optimal Solution ―June 2033―
 

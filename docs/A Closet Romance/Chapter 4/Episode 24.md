@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
+sequence: 24
 title: "Episode 24: I Won't Give It to Anyone"
 ---
 Episode 24: I Won't Give It to Anyone

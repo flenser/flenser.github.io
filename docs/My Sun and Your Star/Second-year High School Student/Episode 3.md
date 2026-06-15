@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 3: The Unusual Rooftop"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 3
+parent: Second-year High School Student
+sequence: 3
+title: 'Episode 3: The Unusual Rooftop'
 ---
 Episode 3: The Unusual Rooftop
 

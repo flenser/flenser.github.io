@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 7: As a Teacher"
-title: "Episode Three: I Want to Be Held — May 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 3
+parent: 'Chapter 7: As a Teacher'
+sequence: 66
+title: 'Episode Three: I Want to Be Held — May 2033 —'
 ---
 Episode Three: I Want to Be Held —May 2033—
 

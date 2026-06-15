@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 3
+sequence: 28
 title: Episode 28
 ---
-
 The day, which felt both short and long, drew to a close, and by nightfall Lotte lay in bed.\
 Going out sightseeing and shopping alone with Alisha —it certainly felt like they'd done things proper to a date.\
 At the same time, she'd granted Alisha's request.\

@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 134: Endo-san's Worries (1)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 134
+parent: University Students (Relationship Arc)
+sequence: 134
+title: "Episode 134: Endo-san's Worries (1)"
 ---
 Episode 134: Endo-san's Worries (1)
 

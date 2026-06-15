@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 35 — Room'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 35
+parent: Chapter 2 - BELIEVE
+sequence: 35
+title: Episode 35 — Room
 ---
 ## Episode 35 — Room
 

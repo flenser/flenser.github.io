@@ -1,7 +1,10 @@
 ---
-parent: "The Witch and the Year-End Party"
-title: Episode Forty-Three
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 3
+parent: The Witch and the Year-End Party
+sequence: 43
+title: Episode Forty-Three
 ---
 Episode Forty-Three
 

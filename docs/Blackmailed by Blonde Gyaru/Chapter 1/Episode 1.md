@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 1: Don't Bring That Kind of Manga to School!"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 1
+parent: 'Chapter One: Yuri Friends'
+sequence: 2
+title: "Episode 1: Don't Bring That Kind of Manga to School!"
 ---
 **Episode 1: Don't Bring That Kind of Manga to School!**
 

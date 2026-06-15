@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2: First Love and the Holy Night"
-title: "Episode Six: Rio Kakei: Past Story 3 ―March 2025―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 6
+parent: 'Chapter 2: First Love and the Holy Night'
+sequence: 17
+title: 'Episode Six: Rio Kakei: Past Story 3 ―March 2025―'
 ---
 Episode Six: Rio Kakei: Past Story 3 ―March 2025―
 

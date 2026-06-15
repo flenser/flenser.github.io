@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 13 — After-School Distraction"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 13
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 13
+title: Episode 13 — After-School Distraction
 ---
 ## Episode 13 — After-School Distraction
 

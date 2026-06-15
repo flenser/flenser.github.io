@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 5: All Because of Sensei"
-title: "Episode Eight: Confession ―September 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 8
+parent: 'Chapter 5: All Because of Sensei'
+sequence: 53
+title: 'Episode Eight: Confession ―September 2032―'
 ---
 Episode Eight: Confession ―September 2032―
 

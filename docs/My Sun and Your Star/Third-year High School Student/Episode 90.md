@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 90: A Failed Mother"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 90
+parent: Third-year High School Student
+sequence: 90
+title: 'Episode 90: A Failed Mother'
 ---
 Episode 90: A Failed Mother
 

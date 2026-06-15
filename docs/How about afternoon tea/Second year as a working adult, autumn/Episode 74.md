@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 74: Do you understand what that means?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 30
+parent: Second year as a working adult, autumn
+sequence: 78
+title: 'Episode 74: Do you understand what that means?'
 ---
 Episode 74: Do you understand what that means?
 

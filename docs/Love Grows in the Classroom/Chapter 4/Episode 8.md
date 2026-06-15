@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 4: Can I Come Over?"
-title: "Episode Eight: Fear of Falling in Love ―August 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 8
+parent: 'Chapter 4: Can I Come Over?'
+sequence: 43
+title: 'Episode Eight: Fear of Falling in Love ―August 2032―'
 ---
 Episode 8: Fear of Falling in Love ―August 2032―
 

@@ -1,5 +1,8 @@
 ---
-parent: "Summer"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Summer
+sequence: 4
 title: "Episode 4: I'll definitely make you pay for today's taxi fare later"
 ---
 Episode 4: I'll definitely make you pay for today's taxi fare later

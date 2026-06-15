@@ -1,5 +1,8 @@
 ---
-parent: "Summer"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Summer
+sequence: 6
 title: "Episode 6: That's Why You're Not Popular, Kaori!"
 ---
 Episode 6: That's Why You're Not Popular, Kaori!

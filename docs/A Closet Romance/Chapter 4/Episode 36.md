@@ -1,6 +1,9 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: "Episode 36: I’ll Be Waiting Forever"
+sequence: 36
+title: 'Episode 36: I’ll Be Waiting Forever'
 ---
 Episode 36: I’ll Be Waiting Forever
 

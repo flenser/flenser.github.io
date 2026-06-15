@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 77 — The Fated Person"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 77
+parent: Chapter 3 - Always
+sequence: 77
+title: Episode 77 — The Fated Person
 ---
 ## Episode 77: The Fated Person
 

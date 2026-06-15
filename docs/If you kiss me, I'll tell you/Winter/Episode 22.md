@@ -1,6 +1,9 @@
 ---
-parent: "Winter"
-title: "Episode 22: After Sleeping Together Just a Few Times"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Winter
+sequence: 22
+title: 'Episode 22: After Sleeping Together Just a Few Times'
 ---
 Episode 22: After Sleeping Together Just a Few Times
 

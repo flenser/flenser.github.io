@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 81: Surrender?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 100
+parent: Second year as a working adult, autumn
+sequence: 85
+title: 'Episode 81: Surrender?'
 ---
 Episode 81: Surrender?
 

@@ -1,7 +1,10 @@
 ---
-parent: "Let It All Break"
-title: "Episode 18"
+grand_parent: My Neighbour, Kataba-san
+layout: episode
 nav_order: 18
+parent: Let It All Break
+sequence: 18
+title: Episode 18
 ---
 Episode 18
 

@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Four: Raven from Hell'
+sequence: 23
 title: 'Episode 23: Little Birds'
 ---
-
 【Serebryani Adamov】 thinks.\
 Poor witches.\
 Poor magical girls.\

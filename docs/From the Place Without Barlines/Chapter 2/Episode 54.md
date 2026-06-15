@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 54 — Goodbye"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 54
+parent: Chapter 2 - BELIEVE
+sequence: 54
+title: Episode 54 — Goodbye
 ---
 ## Episode 54 — Goodbye
 

@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 79: The Rival"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 79
+parent: Third-year High School Student
+sequence: 79
+title: 'Episode 79: The Rival'
 ---
 Episode 79: The Rival
 

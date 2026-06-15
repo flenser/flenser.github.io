@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 11: Let's Kiss Every Day From Now On."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 11
+parent: 'Chapter One: Yuri Friends'
+sequence: 12
+title: "Episode 11: Let's Kiss Every Day From Now On."
 ---
 **Episode 11: Let's Kiss Every Day From Now On.**
 

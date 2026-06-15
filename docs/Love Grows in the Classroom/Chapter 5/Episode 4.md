@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 5: All Because of Sensei"
-title: "Episode Four: Farce ―September 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 4
+parent: 'Chapter 5: All Because of Sensei'
+sequence: 49
+title: 'Episode Four: Farce ―September 2032―'
 ---
 Episode Four: Farce ―September 2032―
 

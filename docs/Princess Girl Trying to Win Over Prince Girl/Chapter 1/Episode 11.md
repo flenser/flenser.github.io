@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Win Over the Prince"
-title: "Part Eleven"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 11
+parent: The Princess Wants to Win Over the Prince
+sequence: 12
+title: Part Eleven
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Eleven
 

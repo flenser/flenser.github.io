@@ -1,9 +1,11 @@
 ---
-parent: Chapter 1
-title: Episode 6
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 nav_order: 50
+parent: Chapter 1
+sequence: 6
+title: Episode 6
 ---
-
 A sign announcing today's closure was displayed outside the shop, while Lotte remained inside with Alisha.\
 Alisha was so distraught she'd pleaded, 'Please kill me,' driven to the brink —there was no way she could simply be sent home now.\
 —Indeed, it seemed unlikely she'd ever leave willingly.

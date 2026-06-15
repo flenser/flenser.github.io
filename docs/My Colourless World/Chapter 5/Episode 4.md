@@ -1,6 +1,9 @@
 ---
-parent: "Just Like a Human Being"
-title: "Episode 4"
+grand_parent: You Bleed Into My Colourless World
+layout: episode
+parent: Just Like a Human Being
+sequence: 22
+title: Episode 4
 ---
 Episode 4
 

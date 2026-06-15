@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2: First Love and the Holy Night"
-title: "Episode Thirteen: The Christmas Eve Vow – December 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 13
+parent: 'Chapter 2: First Love and the Holy Night'
+sequence: 24
+title: 'Episode Thirteen: The Christmas Eve Vow – December 2032 —'
 ---
 Episode Thirteen: The Christmas Eve Vow ―December 2032―
 

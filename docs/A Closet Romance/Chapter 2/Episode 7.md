@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: 'Episode 7: I Think I Might Be Falling for You'
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 10
+parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
+sequence: 7
+title: 'Episode 7: I Think I Might Be Falling for You'
 ---
 Episode 7: I Think I Might Be Falling for You
 

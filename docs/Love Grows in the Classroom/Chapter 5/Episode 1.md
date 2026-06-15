@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 5: All Because of Sensei"
-title: "Episode One: It's Not Unrelated, Is It? ―August 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 1
+parent: 'Chapter 5: All Because of Sensei'
+sequence: 46
+title: "Episode One: It's Not Unrelated, Is It? ―August 2032―"
 ---
 Episode One: It's Not Unrelated, Is It? —August 2032—
 

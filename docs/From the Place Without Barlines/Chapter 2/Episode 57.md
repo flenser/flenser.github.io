@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 57 — Seatbelt"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 57
+parent: Chapter 2 - BELIEVE
+sequence: 57
+title: Episode 57 — Seatbelt
 ---
 ## Episode 57 — Seatbelt
 

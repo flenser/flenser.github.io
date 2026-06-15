@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Three: Yuri Girlfriends"
-title: "Episode 23: That Kiss, Seen by Her."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 23
+parent: 'Chapter Three: Yuri Girlfriends'
+sequence: 24
+title: 'Episode 23: That Kiss, Seen by Her.'
 ---
 **Episode 23: That Kiss, Seen by Her.**
 

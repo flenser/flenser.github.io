@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 90: I won't get angry. No matter what Kanata says"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 60
+parent: Second year as a working adult, winter
+sequence: 95
+title: "Episode 90: I won't get angry. No matter what Kanata says"
 ---
 Episode 90: I won't get angry. No matter what Kanata says
 

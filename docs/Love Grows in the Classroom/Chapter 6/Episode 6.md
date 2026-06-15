@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 6: The Twisted Valentine"
-title: "Episode Six: Chocolate Too Sweet ―February 2033―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 6
+parent: 'Chapter 6: The Twisted Valentine'
+sequence: 61
+title: 'Episode Six: Chocolate Too Sweet ―February 2033―'
 ---
 Episode Six: Chocolate Too Sweet ―February 2033―
 

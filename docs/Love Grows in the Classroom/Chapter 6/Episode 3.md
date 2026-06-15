@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 6: The Twisted Valentine"
-title: "Episode Three: What Lies Heavy in the Heart — February 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 3
+parent: 'Chapter 6: The Twisted Valentine'
+sequence: 58
+title: 'Episode Three: What Lies Heavy in the Heart — February 2033 —'
 ---
 Episode Three: What Lies Heavy in the Heart ―February 2033―
 

@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 73: My Beloved Tutor"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 73
+parent: Third-year High School Student
+sequence: 73
+title: 'Episode 73: My Beloved Tutor'
 ---
 Episode 73: My Beloved Tutor
 

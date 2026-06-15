@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 85: The Sound I Loved"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 85
+parent: Chapter 3 - Always
+sequence: 85
+title: 'Episode 85: The Sound I Loved'
 ---
 ## Episode 85: The Sound I Loved
 

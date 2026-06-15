@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2: First Love and the Holy Night"
-title: "Episode Three: Coffee and Rooibos Tea – December 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 3
+parent: 'Chapter 2: First Love and the Holy Night'
+sequence: 14
+title: 'Episode Three: Coffee and Rooibos Tea – December 2032 —'
 ---
 Episode Three: Coffee and Rooibos Tea —December 2032—
 

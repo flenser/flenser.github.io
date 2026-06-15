@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Witch's ×××"
-title: Episode Twenty-Seven
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 1
+parent: "Sleeping Beauty and the Witch's ×××"
+sequence: 27
+title: Episode Twenty-Seven
 ---
 Episode Twenty-Seven
 

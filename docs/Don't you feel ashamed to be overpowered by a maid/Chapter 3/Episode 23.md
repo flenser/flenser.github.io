@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 3
+sequence: 23
 title: Episode 23
 ---
-
 "A-Alisha-sama!?"\
 "Now then. It's Alice, isn't it?"\
 "A-Alice... What are you...?"\

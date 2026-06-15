@@ -1,7 +1,10 @@
 ---
-parent: "Autumn"
-title: "Episode 16: I'll Tell You If You Kiss Me"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
 nav_order: 90
+parent: Autumn
+sequence: 16
+title: "Episode 16: I'll Tell You If You Kiss Me"
 ---
 Episode 16: I'll Tell You If You Kiss Me
 

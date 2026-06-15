@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 8: The Story Only I Can Write"
-title: "Episode Two: Their Choice ― July 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 2
+parent: 'Chapter 8: The Story Only I Can Write'
+sequence: 76
+title: 'Episode Two: Their Choice ― July 2033 —'
 ---
 Episode Two: Their Choice ―July 2033―
 

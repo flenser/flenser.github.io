@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Appeal to the Prince"
-title: "Part Seven"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 7
+parent: The Princess Wants to Appeal to the Prince
+sequence: 21
+title: Part Seven
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Seven
 

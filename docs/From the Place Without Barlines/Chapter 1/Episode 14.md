@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 14 — Commemorative Photo"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 14
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 14
+title: Episode 14 — Commemorative Photo
 ---
 ## Episode 14 — Commemorative Photo
 

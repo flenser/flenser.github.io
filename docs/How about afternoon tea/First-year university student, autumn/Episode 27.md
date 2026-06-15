@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, autumn"
-title: "Episode 27: I Hate Being Compared"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, autumn
+sequence: 27
+title: 'Episode 27: I Hate Being Compared'
 ---
 Episode 27: I Hate Being Compared
 

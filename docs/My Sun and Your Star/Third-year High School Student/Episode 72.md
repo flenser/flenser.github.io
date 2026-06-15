@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 72: Conversation (3)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 72
+parent: Third-year High School Student
+sequence: 72
+title: 'Episode 72: Conversation (3)'
 ---
 Episode 72: Conversation (3)
 

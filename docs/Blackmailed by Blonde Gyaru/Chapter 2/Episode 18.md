@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Two: The Two of Us Playing Yuri Friends"
-title: "Episode 18: Stop Groping Me Under the Desk!"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 18
+parent: 'Chapter Two: The Two of Us Playing Yuri Friends'
+sequence: 19
+title: 'Episode 18: Stop Groping Me Under the Desk!'
 ---
 **Episode 18: Stop Groping Me Under the Desk!**
 

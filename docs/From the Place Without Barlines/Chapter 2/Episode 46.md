@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 46 — That Girl Complex'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 46
+parent: Chapter 2 - BELIEVE
+sequence: 46
+title: Episode 46 — That Girl Complex
 ---
 ## Episode 46 — That Girl Complex
 

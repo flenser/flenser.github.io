@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 49 — The Knot in the Ribbon'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 49
+parent: Chapter 2 - BELIEVE
+sequence: 49
+title: Episode 49 — The Knot in the Ribbon
 ---
 ## Episode 49 — The Knot in the Ribbon
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 8: The Story Only I Can Write"
-title: "Episode Eight: Mum ― December 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 9
+parent: 'Chapter 8: The Story Only I Can Write'
+sequence: 83
+title: 'Episode Eight: Mum ― December 2033 —'
 ---
 Episode 8: Mum ―December 2033―
 

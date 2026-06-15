@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 75 — The Speed of the Heart"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 75
+parent: Chapter 3 - Always
+sequence: 75
+title: Episode 75 — The Speed of the Heart
 ---
 ## Episode 75: The Speed of the Heart
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 7: [Yuri Friends] An Embrace, and a Smell."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 7
+parent: 'Chapter One: Yuri Friends'
+sequence: 8
+title: 'Episode 7: [Yuri Friends] An Embrace, and a Smell.'
 ---
 **Episode 7: [Yuri Friends] An Embrace, and a Smell.**
 

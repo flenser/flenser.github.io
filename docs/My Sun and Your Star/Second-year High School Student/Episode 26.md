@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 26: Cloudy Skies"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 26
+parent: Second-year High School Student
+sequence: 26
+title: 'Episode 26: Cloudy Skies'
 ---
 Episode 26: Cloudy Skies
 

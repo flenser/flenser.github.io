@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Melancholy Witch"
-title: "Episode Ninety"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 2
+parent: Sleeping Beauty and the Melancholy Witch
+sequence: 90
+title: Episode Ninety
 ---
 Episode Ninety
 

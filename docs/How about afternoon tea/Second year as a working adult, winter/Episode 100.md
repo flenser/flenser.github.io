@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 100: I'll give you everything. All of me, I'll give to you"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 160
+parent: Second year as a working adult, winter
+sequence: 105
+title: "Episode 100: I'll give you everything. All of me, I'll give to you"
 ---
 Episode 100: I'll give you everything. All of me, I'll give to you
 

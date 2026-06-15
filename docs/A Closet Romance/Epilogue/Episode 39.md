@@ -1,6 +1,9 @@
 ---
-parent: 'Epilogue - 5 Years Later'
-title: "Final Episode: Carry Me to Bed Just Like This"
+grand_parent: A Closet Romance
+layout: episode
+parent: Epilogue - 5 Years Later
+sequence: 39
+title: 'Final Episode: Carry Me to Bed Just Like This'
 ---
 Final Episode: Carry Me to Bed Just Like This
 

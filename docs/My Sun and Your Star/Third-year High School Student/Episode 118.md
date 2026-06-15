@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 118: Feelings"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 118
+parent: Third-year High School Student
+sequence: 118
+title: 'Episode 118: Feelings'
 ---
 Episode 118: Feelings
 

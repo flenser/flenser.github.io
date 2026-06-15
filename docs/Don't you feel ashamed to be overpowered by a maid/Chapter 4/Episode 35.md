@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 4
+sequence: 35
 title: Episode 35
 ---
-
 "Wh-what are you saying—"\
 "It's pointless trying to hide it. You saw the letter I received and came straight here, didn't you?"
 

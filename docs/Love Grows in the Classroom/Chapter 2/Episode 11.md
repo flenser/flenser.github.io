@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2: First Love and the Holy Night"
-title: "Episode Eleven: Please Don't Go – December 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 11
+parent: 'Chapter 2: First Love and the Holy Night'
+sequence: 22
+title: "Episode Eleven: Please Don't Go – December 2032 —"
 ---
 Episode Eleven: Please Don't Go —December 2032—
 

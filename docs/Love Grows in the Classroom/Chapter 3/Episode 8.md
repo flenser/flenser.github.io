@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
-title: "Episode Eight: The Thick, Firm Line ―July 2032—"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 8
+parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
+sequence: 35
+title: 'Episode Eight: The Thick, Firm Line ―July 2032—'
 ---
 Episode Eight: The Thick, Firm Line ―July 2032―
 

@@ -1,6 +1,9 @@
 ---
-parent: "Second-year university student, spring"
-title: "Episode 50: I Love You"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second-year university student, spring
+sequence: 50
+title: 'Episode 50: I Love You'
 ---
 Episode 50: I Love You
 

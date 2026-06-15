@@ -1,6 +1,9 @@
 ---
-parent: "Third year as a working adult, spring"
-title: "Episode 108: Where the Stars Look Beautiful"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Third year as a working adult, spring
+sequence: 115
+title: 'Episode 108: Where the Stars Look Beautiful'
 ---
 Episode 108: Where the Stars Look Beautiful
 

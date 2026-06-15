@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: 'Episode 27 — "Nothingness"'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 27
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 27
+title: 'Episode 27 — "Nothingness"'
 ---
 ## Episode 27 — "Nothingness"
 

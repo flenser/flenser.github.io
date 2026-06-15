@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 25 — Finally Under the Same Sky"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 25
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 25
+title: Episode 25 — Finally Under the Same Sky
 ---
 ## Episode 25 — Finally Under the Same Sky
 

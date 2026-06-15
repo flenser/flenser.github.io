@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 5: All Because of Sensei"
-title: "Episode Three: Blackmail ― September 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 3
+parent: 'Chapter 5: All Because of Sensei'
+sequence: 48
+title: 'Episode Three: Blackmail ― September 2032―'
 ---
 Episode Three: Blackmail ― September 2032 ―
 

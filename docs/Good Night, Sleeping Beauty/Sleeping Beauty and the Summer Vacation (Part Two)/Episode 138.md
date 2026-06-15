@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Summer Vacation (Part Two)"
-title: "Episode One Hundred and Thirty-Eight"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 5
+parent: Sleeping Beauty and the Summer Vacation (Part Two)
+sequence: 138
+title: Episode One Hundred and Thirty-Eight
 ---
 Episode One Hundred and Thirty-Eight
 

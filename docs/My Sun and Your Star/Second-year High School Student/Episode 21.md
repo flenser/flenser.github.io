@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 21: Playing Hooky"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 21
+parent: Second-year High School Student
+sequence: 21
+title: 'Episode 21: Playing Hooky'
 ---
 Episode 21: Playing Hooky
 

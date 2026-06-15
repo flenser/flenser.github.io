@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 141: How to Resolve Jealousy"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 141
+parent: University Students (Relationship Arc)
+sequence: 141
+title: 'Episode 141: How to Resolve Jealousy'
 ---
 Episode 141: How to Resolve Jealousy
 

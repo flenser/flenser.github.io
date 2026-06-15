@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 77: Bonus - I’m off"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 77
+parent: Third-year High School Student
+sequence: 77
+title: 'Episode 77: Bonus - I’m off'
 ---
 Episode 77: Bonus - I’m off
 

@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Three: Lost Girls'
+sequence: 14
 title: 'Episode 14: Assistance Dog'
 ---
-
 "Hmm, she seems more energetic than I expected."\
 "...Yes."\
 "If you've got a problem, you should speak up, [Momotsuki]."

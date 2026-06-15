@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 150: Life"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 150
+parent: University Students (Relationship Arc)
+sequence: 150
+title: 'Episode 150: Life'
 ---
 Episode 150: Life
 
