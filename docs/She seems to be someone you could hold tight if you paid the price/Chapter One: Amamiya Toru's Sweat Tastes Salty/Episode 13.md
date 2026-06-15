@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter One: Amamiya Toru's Sweat Tastes Salty"
+sequence: 13
 title: Episode 13
 ---
-
 "That was rather embarrassing..."
 
 Amamiya Tōru walked beside me, holding my hand with a thoroughly disheartened look.\

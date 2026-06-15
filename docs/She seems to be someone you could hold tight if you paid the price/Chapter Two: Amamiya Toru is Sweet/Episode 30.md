@@ -1,8 +1,10 @@
 ---
-parent: "Chapter Two: Amamiya Toru is Sweet"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Chapter Two: Amamiya Toru is Sweet'
+sequence: 30
 title: Episode 30
 ---
-
 How long had we been on the call now?\
 Having learnt about the speakerphone function from Mashiro, I’d placed my phone on the floor rather than holding it to my ear, chatting with her while lying on my futon.\
 I clicked the button on the cheap table clock to light it up. The time had already passed midnight, now showing 1:20am.\

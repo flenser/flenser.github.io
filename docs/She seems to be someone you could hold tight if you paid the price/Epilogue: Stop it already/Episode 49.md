@@ -1,8 +1,10 @@
 ---
-parent: "Epilogue: Stop it already"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Epilogue: Stop it already'
+sequence: 49
 title: Episode 49
 ---
-
 Beautiful and adorable.\
 She, no longer transparent, overflowed with countless colours.\
 That smile no longer suits her.\

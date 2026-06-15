@@ -1,9 +1,11 @@
 ---
-parent: "Prologue: Amamiya Toru's Body is Supple"
-title: Episode 3
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 nav_order: 3
+parent: "Prologue: Amamiya Toru's Body is Supple"
+sequence: 3
+title: Episode 3
 ---
-
 "Support me financially." Amamiya Tōru did indeed ask me that.\
 Supporting her financially meant I would be giving her money.\
 It was exactly the same role as her former night workers.

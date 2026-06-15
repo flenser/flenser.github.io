@@ -1,8 +1,10 @@
 ---
-parent: "Epilogue: Stop it already"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Epilogue: Stop it already'
+sequence: 46
 title: Episode 46
 ---
-
 I open my eyes.\
 The wake-up is dreadful. Sleep-deprived, my vision is blurred and my head throbs terribly.\
 My thinking still sluggish, I lazily sit up and absentmindedly glance at my phone's home screen.\

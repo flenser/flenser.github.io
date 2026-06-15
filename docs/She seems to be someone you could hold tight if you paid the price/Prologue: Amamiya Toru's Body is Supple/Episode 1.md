@@ -1,9 +1,11 @@
 ---
-parent: "Prologue: Amamiya Toru's Body is Supple"
-title: Episode 1
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 nav_order: 1
+parent: "Prologue: Amamiya Toru's Body is Supple"
+sequence: 1
+title: Episode 1
 ---
-
 From my seat at the back of the middle row in the classroom, I could see the beautiful girl by the window.\
 Her face, propped up on her hand as she gazed blankly outside, showed no emotion. The dim rain clouds and the rain-streaked windowpane, blurred by wind and rain, only emphasised her quiet, ethereal beauty.
 

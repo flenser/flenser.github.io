@@ -1,8 +1,10 @@
 ---
-parent: "Chapter Two: Amamiya Toru is Sweet"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Chapter Two: Amamiya Toru is Sweet'
+sequence: 21
 title: Episode 21
 ---
-
 Winter break was just half a month away.\
 Early September, after summer holidays had ended. Back then, when rainy days stretched on like the rainy season, Amamiya Tōru and I entered into a financial arrangement.\
 And now it was early December.

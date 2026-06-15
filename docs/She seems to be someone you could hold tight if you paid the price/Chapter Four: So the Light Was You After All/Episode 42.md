@@ -1,8 +1,10 @@
 ---
-parent: "Chapter Four: So the Light Was You After All"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Chapter Four: So the Light Was You After All'
+sequence: 42
 title: Episode 42
 ---
-
 8 January.
 
 The foul weather continues from yesterday.\

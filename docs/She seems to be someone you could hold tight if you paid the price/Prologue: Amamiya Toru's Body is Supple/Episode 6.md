@@ -1,9 +1,11 @@
 ---
-parent: "Prologue: Amamiya Toru's Body is Supple"
-title: Episode 6
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 nav_order: 6
+parent: "Prologue: Amamiya Toru's Body is Supple"
+sequence: 6
+title: Episode 6
 ---
-
 "Right then, Mashiro, hold out your hand."
 
 Whispered to me right beside me by Amamiya Tōru, I held out my left hand to her as instructed.\

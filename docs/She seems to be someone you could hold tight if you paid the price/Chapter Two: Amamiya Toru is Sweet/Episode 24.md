@@ -1,8 +1,10 @@
 ---
-parent: "Chapter Two: Amamiya Toru is Sweet"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Chapter Two: Amamiya Toru is Sweet'
+sequence: 24
 title: Episode 24
 ---
-
 Thursday morning.\
 Usually, my eyes open of their own accord much earlier, and I just drift along, killing time.\
 This morning, unusually, I overslept.

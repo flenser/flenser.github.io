@@ -1,8 +1,10 @@
 ---
-parent: "Epilogue: Stop it already"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Epilogue: Stop it already'
+sequence: 48
 title: Episode 48
 ---
-
 The moment I saw the police, I froze, unable to move.\
 I had a premonition.\
 If the body I hid had been found, they would inevitably investigate whose body it was. Once that happened, it would inevitably lead back to Amamiya Tōru, and a certain question would naturally arise.

@@ -1,8 +1,10 @@
 ---
-parent: "Chapter Four: So the Light Was You After All"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Chapter Four: So the Light Was You After All'
+sequence: 41
 title: Episode 41
 ---
-
 7 January.\
 It had been nearly two weeks since she came to my house at Christmas.\
 Though she still became transparent in front of my parents, lately she'd been showing me her smile more and more often.\

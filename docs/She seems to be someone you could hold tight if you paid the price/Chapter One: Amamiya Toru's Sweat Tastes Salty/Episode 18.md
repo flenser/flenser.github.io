@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter One: Amamiya Toru's Sweat Tastes Salty"
+sequence: 18
 title: Episode 18
 ---
-
 Amamiya Tōru weeping uncontrollably before my eyes.\
 I never imagined she’d cry so openly, without a care for those around her.\
 What about me, what exactly touched her to make her cry?\

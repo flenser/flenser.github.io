@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter Three: I'm Scared"
+sequence: 34
 title: Episode 34
 ---
-
 The interior of Amamiya Tōru's house, which I hadn't entered for ages, was terribly messy.\
 It looked as though someone had been rampaging through it.\
 I walked cautiously along the dim corridor as ever.\

@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter One: Amamiya Toru's Sweat Tastes Salty"
+sequence: 16
 title: Episode 16
 ---
-
 "Today too?"\
 "Yes, today too."
 

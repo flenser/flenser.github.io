@@ -1,9 +1,11 @@
 ---
-parent: "Prologue: Amamiya Toru's Body is Supple"
-title: Episode 2
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 nav_order: 2
+parent: "Prologue: Amamiya Toru's Body is Supple"
+sequence: 2
+title: Episode 2
 ---
-
 It was a rather presumptuous statement, one that might strike some as arrogant.\
 Placing a hand on her chest, she peered at my face, her cheeks flushed, delivering the statement with the certainty of a fact: "You like me, don't you?"
 

@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter One: Amamiya Toru's Sweat Tastes Salty"
+sequence: 19
 title: Episode 19
 ---
-
 Neither bus nor train.\
 Amamiya Tōru's home lay about a twenty-minute walk from school.\
 I never imagined her house was this close to the school. Though that was surprising enough, my astonishment was directed elsewhere.

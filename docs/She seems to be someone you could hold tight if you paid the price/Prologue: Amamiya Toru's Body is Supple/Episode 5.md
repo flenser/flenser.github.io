@@ -1,9 +1,11 @@
 ---
-parent: "Prologue: Amamiya Toru's Body is Supple"
-title: Episode 5
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 nav_order: 5
+parent: "Prologue: Amamiya Toru's Body is Supple"
+sequence: 5
+title: Episode 5
 ---
-
 Walking along unfamiliar streets for about twenty minutes.\
 I was starting to wonder where we were headed.\
 It wasn't towards the bus stop, nor towards the station.\

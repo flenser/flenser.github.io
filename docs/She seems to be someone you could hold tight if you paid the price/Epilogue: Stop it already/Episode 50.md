@@ -1,9 +1,18 @@
 ---
-parent: "Epilogue: Stop it already"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Epilogue: Stop it already'
+sequence: 50
 title: Episode 50
 ---
+"Sis!’
 
-"Sis-sii-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i-i
+A high-pitched voice snapped me out of my reverie.\
+I shook off my drowsiness and sat up from the sofa where I’d been lying.\
+When I turned around, there she was.
+
+My twin sister, who bears no resemblance to me. The second daughter of the Kuroda family.\
+Kuroda Tōru was standing there, puffing out her cheeks and huffing with indignation.
 
 "What is it, Tōru?"\
 "Mashiro-nee, you ate my pudding!!"\

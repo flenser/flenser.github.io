@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter Three: I'm Scared"
+sequence: 39
 title: Episode 39
 ---
-
 "………"
 
 Amamiya Tōru fell silent.\

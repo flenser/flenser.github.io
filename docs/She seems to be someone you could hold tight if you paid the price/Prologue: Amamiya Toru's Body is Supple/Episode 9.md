@@ -1,9 +1,11 @@
 ---
-parent: "Prologue: Amamiya Toru's Body is Supple"
-title: Episode 9
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 nav_order: 9
+parent: "Prologue: Amamiya Toru's Body is Supple"
+sequence: 9
+title: Episode 9
 ---
-
 I closed my eyes.\
 The sensation of something not my own touching my lips.\
 But it felt harder than I’d expected, and as I thought, "Huh?" and opened my eyes, what I saw was Amamiya Tōru’s mouth —transparent, yet curved in a way that seemed to be steeped in pleasure.

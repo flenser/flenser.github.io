@@ -1,8 +1,10 @@
 ---
-parent: "Chapter Two: Amamiya Toru is Sweet"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Chapter Two: Amamiya Toru is Sweet'
+sequence: 29
 title: Episode 29
 ---
-
 "I'm home."
 
 No reply.\

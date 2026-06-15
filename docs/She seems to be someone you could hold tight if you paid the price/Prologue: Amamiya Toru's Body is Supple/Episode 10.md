@@ -1,10 +1,12 @@
 ---
-parent: "Prologue: Amamiya Toru's Body is Supple"
-title: Episode 10
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 nav_order: 10
+parent: "Prologue: Amamiya Toru's Body is Supple"
+sequence: 10
+title: Episode 10
 ---
-
-　Flashback over.\
+Flashback over.\
 　Just remembering it makes my body flush. My face starts to redden.\
 　She hugged me, then caught me off guard with a kiss on the cheek.\
 　Then it was over. Hand over the cash. Right, it's all there, thanks. Right then, let's leave the hotel. That whole sequence felt a bit lacking in consideration towards me, who was experiencing everything as utterly new.

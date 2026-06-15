@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter Three: I'm Scared"
+sequence: 37
 title: Episode 37
 ---
-
 I waited, soaking in the filled bath, for Amamiya Tōru to finish washing her hair and body.\
 Before getting in, I’d made excuses about it being cramped or something, but even so, our bathroom was large enough for two people to soak together with reasonable space.
 

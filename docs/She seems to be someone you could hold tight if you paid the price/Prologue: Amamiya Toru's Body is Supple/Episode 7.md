@@ -1,9 +1,11 @@
 ---
-parent: "Prologue: Amamiya Toru's Body is Supple"
-title: Episode 7
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 nav_order: 7
+parent: "Prologue: Amamiya Toru's Body is Supple"
+sequence: 7
+title: Episode 7
 ---
-
 My smartphone alarm jolts me awake.\
 Just a little longer. My sleep-deprived brain mumbles this as I curl up into a ball.\
 I end up dozing off again, only to be roused by my parents. Rushing to get ready, I head off to school.

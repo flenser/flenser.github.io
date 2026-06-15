@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter Three: I'm Scared"
+sequence: 35
 title: Episode 35
 ---
-
 "First, let's have a bath, Amamiya-san."
 
 Amamiya Tōru is in my house.\
