@@ -1,5 +1,11 @@
+---
+parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+title: 'Chapter Two: "The Snow Finds the Clod of Earth" — Part Five'
+nav_order: 19
+---
 ## Chapter Two: *"The Snow Finds the Clod of Earth"* — Part Five
 
+\
 Whether fate truly exists in a person's life, I genuinely don't know.\
 But the one thing that is certain is that every person born will die. Birth, and death. Only those two points are fixed from the start. If that's so, perhaps there are other points fixed from the moment of birth too, points that any line you draw must pass through regardless of what path it takes.\
 In order to trace the shape a person was born with.\
