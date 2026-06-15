@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, summer"
-title: "Episode 11: Someday, it might come in handy"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, summer
+sequence: 11
+title: 'Episode 11: Someday, it might come in handy'
 ---
 Episode 11: Someday, it might come in handy
 

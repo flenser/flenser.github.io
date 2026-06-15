@@ -1,7 +1,10 @@
 ---
-parent: "A Languid Prologue"
-title: The Beginning
+grand_parent: "Eternal Rest (I'm Just Tired)"
+layout: episode
 nav_order: 1
+parent: A Languid Prologue
+sequence: 0
+title: The Beginning
 ---
 The Beginning
 

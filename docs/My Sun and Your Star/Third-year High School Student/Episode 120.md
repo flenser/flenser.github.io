@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 120: The Place Where It All Began (2)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 120
+parent: Third-year High School Student
+sequence: 120
+title: 'Episode 120: The Place Where It All Began (2)'
 ---
 Episode 120: The Place Where It All Began (2)
 

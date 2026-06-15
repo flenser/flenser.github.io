@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 3 — Twinkle Twinkle"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 3
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 3
+title: Episode 3 — Twinkle Twinkle
 ---
 ## Episode 3 — Twinkle Twinkle
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Four: Yuri Girlfriends Won't Stop"
-title: "Episode 34: I Am Being Painted Over by Hiyori."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 34
+parent: "Chapter Four: Yuri Girlfriends Won't Stop"
+sequence: 35
+title: 'Episode 34: I Am Being Painted Over by Hiyori.'
 ---
 **Episode 34: I Am Being Painted Over by Hiyori.**
 

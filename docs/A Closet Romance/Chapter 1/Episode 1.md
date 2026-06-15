@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
+sequence: 1
 title: "Episode 1: I'm Studying Because I Want to Be Fashionable"
 ---
 Episode 1: I'm Studying Because I Want to Be Fashionable

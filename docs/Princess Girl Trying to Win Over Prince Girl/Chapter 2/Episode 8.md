@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Appeal to the Prince"
-title: "Part Eight"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 8
+parent: The Princess Wants to Appeal to the Prince
+sequence: 22
+title: Part Eight
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Eight
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Two: The Two of Us Playing Yuri Friends"
-title: "Episode 14: A Uniform Inspection in Front of Everyone... That's Indecent."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 14
+parent: 'Chapter Two: The Two of Us Playing Yuri Friends'
+sequence: 15
+title: "Episode 14: A Uniform Inspection in Front of Everyone... That's Indecent."
 ---
 **Episode 14: A Uniform Inspection in Front of Everyone... That's Indecent.**
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 4 - The Place Where Words and Sound Overlap"
-title: "Episode 91: The Place Where Words and Sound Overlap"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 91
+parent: Chapter 4 - The Place Where Words and Sound Overlap
+sequence: 91
+title: 'Episode 91: The Place Where Words and Sound Overlap'
 ---
 ## Episode 91: The Place Where Words and Sound Overlap
 

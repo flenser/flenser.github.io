@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 95: Second Chance Fireworks Festival (3)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 95
+parent: Third-year High School Student
+sequence: 95
+title: 'Episode 95: Second Chance Fireworks Festival (3)'
 ---
 Episode 95: Second Chance Fireworks Festival (3)
 

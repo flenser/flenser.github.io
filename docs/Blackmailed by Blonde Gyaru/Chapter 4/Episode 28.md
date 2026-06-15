@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Four: Yuri Girlfriends Won't Stop"
-title: "Episode 28: [Yuri Girlfriends] Two Voices, One in Each Ear."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 28
+parent: "Chapter Four: Yuri Girlfriends Won't Stop"
+sequence: 29
+title: 'Episode 28: [Yuri Girlfriends] Two Voices, One in Each Ear.'
 ---
 **Episode 28: [Yuri Girlfriends] Two Voices, One in Each Ear.**
 

@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 58: An Adult Christmas"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 58
+parent: Second-year High School Student
+sequence: 58
+title: 'Episode 58: An Adult Christmas'
 ---
 Episode 58: An Adult Christmas
 

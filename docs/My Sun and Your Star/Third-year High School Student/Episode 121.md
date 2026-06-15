@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 121: Bonus - Lover"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 121
+parent: Third-year High School Student
+sequence: 121
+title: 'Episode 121: Bonus - Lover'
 ---
 Episode 121: Bonus - Lover
 

@@ -1,6 +1,9 @@
 ---
-parent: "Epilogue"
-title: "Episode 110: Yui, Look This Way"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Epilogue
+sequence: 117
+title: 'Episode 110: Yui, Look This Way'
 ---
 Episode 110: Yui, Look This Way
 

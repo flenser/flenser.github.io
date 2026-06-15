@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
+sequence: 2
 title: 'Episode 2: Well, I Am a Top Student, After All'
 ---
 Episode 2: Well, I Am a Top Student, After All

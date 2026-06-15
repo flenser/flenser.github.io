@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Two: The Two of Us Playing Yuri Friends"
-title: "Episode 21: I Don't Want Anyone Else Seeing Hiyori Like This...!"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 21
+parent: 'Chapter Two: The Two of Us Playing Yuri Friends'
+sequence: 22
+title: "Episode 21: I Don't Want Anyone Else Seeing Hiyori Like This...!"
 ---
 **Episode 21: I Don't Want Anyone Else Seeing Hiyori Like This...!**
 

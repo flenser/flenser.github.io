@@ -1,7 +1,10 @@
 ---
-parent: "Epilogue: In the Classroom After School"
-title: "Extra Episode: A Special Night"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 4
+parent: 'Epilogue: In the Classroom After School'
+sequence: 94
+title: 'Extra Episode: A Special Night'
 ---
 Extra Chapter: A Special Night
 

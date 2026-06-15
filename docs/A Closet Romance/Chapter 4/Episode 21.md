@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
+sequence: 21
 title: 'Episode 21: I never realised I, Mitsuki, had such a nasty streak'
 ---
 Episode 21: I never realised I, Mitsuki, had such a nasty streak

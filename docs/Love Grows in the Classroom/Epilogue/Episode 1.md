@@ -1,7 +1,10 @@
 ---
-parent: "Epilogue: In the Classroom After School"
-title: "Episode One: The Invader ― March 2034 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 1
+parent: 'Epilogue: In the Classroom After School'
+sequence: 91
+title: 'Episode One: The Invader ― March 2034 —'
 ---
 Episode One: The Invader ―March 2034―
 

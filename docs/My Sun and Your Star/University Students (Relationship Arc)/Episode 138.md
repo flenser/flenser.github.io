@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 138: 19 Years Old (2)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 138
+parent: University Students (Relationship Arc)
+sequence: 138
+title: 'Episode 138: 19 Years Old (2)'
 ---
 Episode 138: 19 Years Old (2)
 

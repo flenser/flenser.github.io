@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 25: Summer Holidays ⑴"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 25
+parent: Second-year High School Student
+sequence: 25
+title: 'Episode 25: Summer Holidays ⑴'
 ---
 Episode 25: Summer Holidays ⑴
 

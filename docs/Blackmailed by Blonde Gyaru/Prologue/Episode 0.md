@@ -1,7 +1,10 @@
 ---
-parent: "Prologue: I Am Being Blackmailed"
-title: "Prologue: [Yuri Friends] I Am Being Blackmailed"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 0
+parent: 'Prologue: I Am Being Blackmailed'
+sequence: 1
+title: 'Prologue: [Yuri Friends] I Am Being Blackmailed'
 ---
 **Prologue: [Yuri Friends] I Am Being Blackmailed.**
 

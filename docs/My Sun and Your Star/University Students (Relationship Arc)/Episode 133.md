@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 133: It's Summer! (3)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 133
+parent: University Students (Relationship Arc)
+sequence: 133
+title: "Episode 133: It's Summer! (3)"
 ---
 Episode 133: It's Summer! (3)
 

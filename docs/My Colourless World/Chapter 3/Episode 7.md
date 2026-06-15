@@ -1,7 +1,10 @@
 ---
-parent: "Riding Dreams Onward"
-title: "Episode 7"
+grand_parent: You Bleed Into My Colourless World
+layout: episode
 nav_order: 7
+parent: Riding Dreams Onward
+sequence: 13
+title: Episode 7
 ---
 Episode 7
 

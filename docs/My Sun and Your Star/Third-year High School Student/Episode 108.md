@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 108: What Has Changed"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 108
+parent: Third-year High School Student
+sequence: 108
+title: 'Episode 108: What Has Changed'
 ---
 Episode 108: What Has Changed
 

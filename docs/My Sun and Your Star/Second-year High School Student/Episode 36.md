@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 36: Bonus - An Unfulfilled Love"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 36
+parent: Second-year High School Student
+sequence: 36
+title: 'Episode 36: Bonus - An Unfulfilled Love'
 ---
 Episode 36: Bonus - An Unfulfilled Love
 

@@ -1,6 +1,9 @@
 ---
-parent: "Second year as a working adult, summer"
-title: "Episode 66: How about afternoon tea?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, summer
+sequence: 69
+title: 'Episode 66: How about afternoon tea?'
 ---
 Episode 66: How about afternoon tea?
 

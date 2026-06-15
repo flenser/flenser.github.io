@@ -1,6 +1,9 @@
 ---
-parent: "Winter"
-title: "Episode 19: The Pervert"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Winter
+sequence: 19
+title: 'Episode 19: The Pervert'
 ---
 Episode 19: The Pervert
 

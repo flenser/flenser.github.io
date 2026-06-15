@@ -1,5 +1,8 @@
 ---
-parent: "Second year as a working adult, spring"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, spring
+sequence: 59
 title: "Episode 56: This Time, Let's Both Give Yui a Proper Thrashing"
 ---
 Episode 56: This Time, Let's Both Give Yui a Proper Thrashing

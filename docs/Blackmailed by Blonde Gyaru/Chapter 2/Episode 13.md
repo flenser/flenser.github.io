@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Two: The Two of Us Playing Yuri Friends"
-title: "Episode 13: [Yuri Friends] Under an Umbrella, the Two of Us."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 13
+parent: 'Chapter Two: The Two of Us Playing Yuri Friends'
+sequence: 14
+title: 'Episode 13: [Yuri Friends] Under an Umbrella, the Two of Us.'
 ---
 **Episode 13: [Yuri Friends] Under an Umbrella, the Two of Us.**
 

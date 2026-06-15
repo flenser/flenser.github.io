@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 98: School Trip (1)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 98
+parent: Third-year High School Student
+sequence: 98
+title: 'Episode 98: School Trip (1)'
 ---
 Episode 98: School Trip (1)
 

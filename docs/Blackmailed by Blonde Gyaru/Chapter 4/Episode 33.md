@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Four: Yuri Girlfriends Won't Stop"
-title: "Episode 33: [Yuri Girlfriends] It's Okay, Feel Good With Me."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 33
+parent: "Chapter Four: Yuri Girlfriends Won't Stop"
+sequence: 34
+title: "Episode 33: [Yuri Girlfriends] It's Okay, Feel Good With Me."
 ---
 **Episode 33: [Yuri Girlfriends] It's Okay, Feel Good With Me.**
 

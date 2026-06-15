@@ -1,6 +1,9 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: "Episode 37: Please Be My Girlfriend"
+sequence: 37
+title: 'Episode 37: Please Be My Girlfriend'
 ---
 Episode 37: Please Be My Girlfriend
 

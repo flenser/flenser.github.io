@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2: First Love and the Holy Night"
-title: "Episode Five: Rio Kakei: Past Story Part 2 ―April 2024 to March 2025―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 5
+parent: 'Chapter 2: First Love and the Holy Night'
+sequence: 16
+title: 'Episode Five: Rio Kakei: Past Story Part 2 ―April 2024 to March 2025―'
 ---
 Episode Five: Rio Kakei: Past Story Part 2 ―April 2024 to March 2025―
 

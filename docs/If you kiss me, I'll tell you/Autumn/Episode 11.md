@@ -1,7 +1,10 @@
 ---
-parent: "Autumn"
-title: "Episode 11: There's no point denying who you are"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
 nav_order: 40
+parent: Autumn
+sequence: 11
+title: "Episode 11: There's no point denying who you are"
 ---
 Episode 11: There's no point denying who you are
 

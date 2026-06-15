@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
+sequence: 4
 title: 'Episode 4: Call Me Nana'
 ---
 Episode 4: Call Me Nana

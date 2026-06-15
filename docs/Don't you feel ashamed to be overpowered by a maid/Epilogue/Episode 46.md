@@ -1,8 +1,10 @@
 ---
-parent: "Epilogue: Bound Together"
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
+parent: 'Epilogue: Bound Together'
+sequence: 46
 title: Episode 46
 ---
-
 Approximately two months had passed since the dragon's defeat.\
 Alishia had further enhanced her reputation as a knight and was busier than ever.\
 Her injuries had fully healed, much to Lotte's relief.\

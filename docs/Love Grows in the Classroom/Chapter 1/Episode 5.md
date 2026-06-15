@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1: The Plain and Serious Japanese Teacher"
-title: "Episode Five: Sasaki Ryōka - November 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 5
+parent: 'Chapter 1: The Plain and Serious Japanese Teacher'
+sequence: 6
+title: 'Episode Five: Sasaki Ryōka - November 2032 —'
 ---
 Episode Five: Sasaki Ryōka - November 2032 -
 

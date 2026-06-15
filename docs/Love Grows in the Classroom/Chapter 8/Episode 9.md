@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 8: The Story Only I Can Write"
-title: "Episode Nine: Gratitude and Respect ― December 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 10
+parent: 'Chapter 8: The Story Only I Can Write'
+sequence: 84
+title: 'Episode Nine: Gratitude and Respect ― December 2033 —'
 ---
 Episode Nine: Gratitude and Respect ―December 2033―
 

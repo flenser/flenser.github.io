@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: "Episode 20: I'll make sure Nana says she absolutely doesn't want to leave Mitsuki's side"
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 60
+parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
+sequence: 20
+title: "Episode 20: I'll make sure Nana says she absolutely doesn't want to leave Mitsuki's side"
 ---
 Episode 20: I'll make sure Nana says she absolutely doesn't want to leave Mitsuki's side
 

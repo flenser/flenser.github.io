@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 88: Why on earth are you so lecherous, Yui-san?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 40
+parent: Second year as a working adult, winter
+sequence: 93
+title: 'Episode 88: Why on earth are you so lecherous, Yui-san?'
 ---
 Episode 88: Why on earth are you so lecherous, Yui-san?
 

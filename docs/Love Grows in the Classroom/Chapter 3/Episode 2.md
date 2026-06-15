@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
-title: "Episode Two: Love Talk with the Teacher ―July 2032—"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 2
+parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
+sequence: 29
+title: 'Episode Two: Love Talk with the Teacher ―July 2032—'
 ---
 Episode Two: Love Talk with the Teacher ―July 2032―
 

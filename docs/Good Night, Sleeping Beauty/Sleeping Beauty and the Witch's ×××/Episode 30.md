@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Witch's ×××"
-title: Episode Thirty
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 4
+parent: "Sleeping Beauty and the Witch's ×××"
+sequence: 30
+title: Episode Thirty
 ---
 Episode Thirty
 

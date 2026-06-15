@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 77: When are you going to make it up to me? Tonight?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 60
+parent: Second year as a working adult, autumn
+sequence: 81
+title: 'Episode 77: When are you going to make it up to me? Tonight?'
 ---
 Episode 77: When are you going to make it up to me? Tonight?
 

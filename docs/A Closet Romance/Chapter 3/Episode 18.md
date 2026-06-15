@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: 'Episode 18: Say You Love Me'
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 40
+parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
+sequence: 18
+title: 'Episode 18: Say You Love Me'
 ---
 Episode 18: Say You Love Me
 

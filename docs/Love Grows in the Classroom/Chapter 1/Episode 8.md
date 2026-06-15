@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1: The Plain and Serious Japanese Teacher"
-title: "Episode Eight: Home Visit - November 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 8
+parent: 'Chapter 1: The Plain and Serious Japanese Teacher'
+sequence: 9
+title: 'Episode Eight: Home Visit - November 2032 —'
 ---
 Episode Eight: Home Visit - November 2032 -
 

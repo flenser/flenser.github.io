@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 41 — iOs — Alien'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 41
+parent: Chapter 2 - BELIEVE
+sequence: 41
+title: Episode 41 — iOs — Alien
 ---
 ## Episode 41 — iOs — Alien
 

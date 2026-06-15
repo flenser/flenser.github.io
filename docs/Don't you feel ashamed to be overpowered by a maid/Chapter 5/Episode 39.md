@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 5
+sequence: 39
 title: Episode 39
 ---
-
 Near the 'Forest of Rayli', where Alisha was on expedition.\
 This area had recently seen confirmed sightings of powerful monsters, and the scale of the damage meant it was deemed a high-priority emergency —thus the task fell to Alisha.\
 Everyone surely thought Alisha would handle it without issue.\

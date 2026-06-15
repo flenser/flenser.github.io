@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 89: Family Meeting"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 89
+parent: Third-year High School Student
+sequence: 89
+title: 'Episode 89: Family Meeting'
 ---
 Episode 89: Family Meeting
 

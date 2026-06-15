@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - I Picked Up a Woman. In an Alley."
-title: "Episode 8: I Just Want to Go Shopping"
+grand_parent: A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks
+layout: episode
 nav_order: 8
+parent: Chapter 1 - I Picked Up a Woman. In an Alley.
+sequence: 8
+title: 'Episode 8: I Just Want to Go Shopping'
 ---
 **Episode 8: I Just Want to Go Shopping**
 

@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
+sequence: 26
 title: 'Episode 26: I Like You Too, I Love You, Mitsuki'
 ---
 Episode 26: I Like You Too, I Love You, Mitsuki

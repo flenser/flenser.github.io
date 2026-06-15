@@ -1,6 +1,9 @@
 ---
-parent: "Second-year university student, spring"
-title: "Episode 49: Sorry for Falling for You"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second-year university student, spring
+sequence: 49
+title: 'Episode 49: Sorry for Falling for You'
 ---
 Episode 49: Sorry for Falling for You
 

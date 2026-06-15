@@ -1,7 +1,10 @@
 ---
-parent: "The Witch and the Witch's Little Sister"
-title: "Episode Eighty-Seven"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 1
+parent: "The Witch and the Witch's Little Sister"
+sequence: 87
+title: Episode Eighty-Seven
 ---
 Episode Eighty-Seven
 

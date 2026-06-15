@@ -1,7 +1,10 @@
 ---
-parent: "Interlude Holy Night"
-title: "Princess Ibara and the Holy Night. Part 3"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 3
+parent: Interlude Holy Night
+sequence: 40
+title: Princess Ibara and the Holy Night. Part 3
 ---
 Princess Ibara and the Holy Night. Part 3
 

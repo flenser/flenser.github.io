@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Four: Raven from Hell'
+sequence: 19
 title: 'Episode 19: The Witch of Cancer'
 ---
-
 Chiba City is hell. So thought Sere.\
 Children must steal to survive.\
 Criminals pour in.\

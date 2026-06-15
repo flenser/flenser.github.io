@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 89: Doesn't a life like that... feel rather hollow?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 50
+parent: Second year as a working adult, winter
+sequence: 94
+title: "Episode 89: Doesn't a life like that... feel rather hollow?"
 ---
 Episode 89: Doesn't a life like that... feel rather hollow?
 

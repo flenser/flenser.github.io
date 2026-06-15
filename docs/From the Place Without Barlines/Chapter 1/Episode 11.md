@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 11 — Siren and Earphones"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 11
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 11
+title: Episode 11 — Siren and Earphones
 ---
 ## Episode 11 — Siren and Earphones
 

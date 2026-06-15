@@ -1,5 +1,8 @@
 ---
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 parent: "Prologue: You'd Better Brace Yourself, Senpai"
+sequence: 1
 title: "You'd Better Brace Yourself, Senpai"
 ---
 ## Prologue: "You'd Better Brace Yourself, Senpai"

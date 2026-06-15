@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1: The Plain and Serious Japanese Teacher"
-title: "Episode Four: The Weekly Friday Study Session — November 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 4
+parent: 'Chapter 1: The Plain and Serious Japanese Teacher'
+sequence: 5
+title: 'Episode Four: The Weekly Friday Study Session — November 2032 —'
 ---
 Episode Four: The Weekly Friday Study Session — November 2032 —
 

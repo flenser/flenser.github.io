@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 16 — Blackout"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 16
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 16
+title: Episode 16 — Blackout
 ---
 ## Episode 16 — Blackout
 

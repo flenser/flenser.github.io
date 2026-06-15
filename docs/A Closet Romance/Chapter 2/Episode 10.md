@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: 'Episode 10: You Thoughtless Thief'
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 40
+parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
+sequence: 10
+title: 'Episode 10: You Thoughtless Thief'
 ---
 Episode 10: You Thoughtless Thief
 

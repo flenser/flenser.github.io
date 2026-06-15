@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, winter"
-title: "Episode 32: Was I a Good Girl?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, winter
+sequence: 32
+title: 'Episode 32: Was I a Good Girl?'
 ---
 Episode 32: Was I a Good Girl?
 

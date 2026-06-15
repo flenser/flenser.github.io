@@ -1,5 +1,8 @@
 ---
-parent: "Second year as a working adult, spring"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, spring
+sequence: 62
 title: "Episode 59: Let's Break Up, Right Now"
 ---
 Episode 59: Let's Break Up, Right Now

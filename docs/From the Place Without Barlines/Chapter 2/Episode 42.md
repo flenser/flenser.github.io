@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 42 — The World Is Mine'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 42
+parent: Chapter 2 - BELIEVE
+sequence: 42
+title: Episode 42 — The World Is Mine
 ---
 ## Episode 42 — The World Is Mine
 

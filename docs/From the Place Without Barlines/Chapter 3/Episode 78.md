@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 78 — Pure White"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 78
+parent: Chapter 3 - Always
+sequence: 78
+title: Episode 78 — Pure White
 ---
 ## Episode 78: Pure White
 

@@ -1,5 +1,8 @@
 ---
-parent: "First-year university student, autumn"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, autumn
+sequence: 24
 title: "Episode 24: It's Happier to Stay Forever Behind"
 ---
 Episode 24: It's Happier to Stay Forever Behind

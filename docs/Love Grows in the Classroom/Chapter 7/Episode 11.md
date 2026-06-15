@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 7: As a Teacher"
-title: "Episode Eleven: First Kiss ― June 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 11
+parent: 'Chapter 7: As a Teacher'
+sequence: 74
+title: 'Episode Eleven: First Kiss ― June 2033 —'
 ---
 Episode Eleven: First Kiss ―June 2033―
 

@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 76: Hold Me Tighter"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 50
+parent: Second year as a working adult, autumn
+sequence: 80
+title: 'Episode 76: Hold Me Tighter'
 ---
 Episode 76: Hold Me Tighter
 

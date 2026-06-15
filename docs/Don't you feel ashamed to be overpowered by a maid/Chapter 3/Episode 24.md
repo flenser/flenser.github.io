@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 3
+sequence: 24
 title: Episode 24
 ---
-
 "T-tie? You mean... tie up? You mean I'm supposed to tie up... Lady Alisha?"\
 "Alice."\
 "...You mean tie up Alice?"\

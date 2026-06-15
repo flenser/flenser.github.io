@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 2
+sequence: 15
 title: Episode 15
 ---
-
 Lotte herself was startled, instinctively touching her mouth.
 
 (What did I just say…?)

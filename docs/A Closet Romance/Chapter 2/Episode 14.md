@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: "Episode 14: Hey Nana, do you reckon we'll see the fireworks together again next year?"
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 80
+parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
+sequence: 14
+title: "Episode 14: Hey Nana, do you reckon we'll see the fireworks together again next year?"
 ---
 Episode 14: Hey Nana, do you reckon we'll see the fireworks together again next year?
 

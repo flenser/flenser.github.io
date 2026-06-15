@@ -1,9 +1,11 @@
 ---
-parent: Chapter 1
-title: Episode 4
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 nav_order: 30
+parent: Chapter 1
+sequence: 4
+title: Episode 4
 ---
-
 After saying that, Lotte made a gesture as if to cover her mouth.\
 To ask such a thing of someone concealing their identity so thoroughly —it was as if she were visually pleading, 'Don't pry.'
 

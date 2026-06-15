@@ -1,7 +1,10 @@
 ---
-parent: "My Crush and My Stepsister"
-title: "Episode Four"
+grand_parent: My Crush Became My Stepsister
+layout: episode
 nav_order: 4
+parent: My Crush and My Stepsister
+sequence: 4
+title: Episode Four
 ---
 ## Episode Four
 

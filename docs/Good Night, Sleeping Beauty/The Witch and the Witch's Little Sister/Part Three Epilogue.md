@@ -1,7 +1,10 @@
 ---
-parent: "The Witch and the Witch's Little Sister"
-title: "Part Three: Epilogue"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 2
+parent: "The Witch and the Witch's Little Sister"
+sequence: 88
+title: 'Part Three: Epilogue'
 ---
 Part Three: Epilogue
 

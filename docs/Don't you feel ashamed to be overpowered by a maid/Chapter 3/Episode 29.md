@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 3
+sequence: 29
 title: Episode 29
 ---
-
 "Are you hurt?"\
 "N-no, I'm fine."\
 "Knocking over buckets, nearly tripping... Lotte, you're such a clumsy thing, aren't you?"

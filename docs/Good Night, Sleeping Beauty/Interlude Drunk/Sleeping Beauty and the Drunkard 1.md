@@ -1,7 +1,10 @@
 ---
-parent: "Interlude Drunk"
-title: Sleeping Beauty and the Drunkard. Part One
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 1
+parent: Interlude Drunk
+sequence: 24
+title: Sleeping Beauty and the Drunkard. Part One
 ---
 Sleeping Beauty and the Drunkard. Part One
 

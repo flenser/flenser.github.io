@@ -1,7 +1,10 @@
 ---
-parent: "The Shape of Happiness"
-title: "Episode Eleven"
+grand_parent: My Crush Became My Stepsister
+layout: episode
 nav_order: 11
+parent: The Shape of Happiness
+sequence: 11
+title: Episode Eleven
 ---
 ## Episode Eleven
 

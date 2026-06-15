@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 3
+sequence: 21
 title: Episode 21
 ---
-
 ――The next day.\
 From early morning, Lotte was in an alleyway a short distance from the mansion.\
 She had obtained prior permission from the Head Maid and was supposed to be out.\

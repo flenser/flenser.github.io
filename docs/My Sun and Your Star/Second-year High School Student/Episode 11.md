@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 11: Dinner for Two"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 11
+parent: Second-year High School Student
+sequence: 11
+title: 'Episode 11: Dinner for Two'
 ---
 Episode 11: Dinner for Two
 

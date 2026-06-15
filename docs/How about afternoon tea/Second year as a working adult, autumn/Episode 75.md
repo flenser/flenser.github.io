@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 75: I'm not trying to provoke you, I swear"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 40
+parent: Second year as a working adult, autumn
+sequence: 79
+title: "Episode 75: I'm not trying to provoke you, I swear"
 ---
 Episode 75: I'm not trying to provoke you, I swear
 

@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Melancholy Witch"
-title: "Episode Eighty-Nine"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 1
+parent: Sleeping Beauty and the Melancholy Witch
+sequence: 89
+title: Episode Eighty-Nine
 ---
 Episode Eighty-Nine
 

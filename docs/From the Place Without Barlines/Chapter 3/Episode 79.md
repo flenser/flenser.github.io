@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 79 — The Place Without Barlines"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 79
+parent: Chapter 3 - Always
+sequence: 79
+title: Episode 79 — The Place Without Barlines
 ---
 ## Episode 79: The Place Without Barlines
 

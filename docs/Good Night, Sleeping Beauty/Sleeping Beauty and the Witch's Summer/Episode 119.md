@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Witch's Summer"
-title: "Episode One Hundred and Nineteen"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 2
+parent: "Sleeping Beauty and the Witch's Summer"
+sequence: 119
+title: Episode One Hundred and Nineteen
 ---
 Episode One Hundred and Nineteen
 

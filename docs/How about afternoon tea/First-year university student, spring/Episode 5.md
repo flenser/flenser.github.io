@@ -1,7 +1,10 @@
 ---
-parent: "First-year university student, spring"
-title: "Episode 5: The Price of Rain"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 5
+parent: First-year university student, spring
+sequence: 5
+title: 'Episode 5: The Price of Rain'
 ---
 Episode 5: The Price of Rain
 

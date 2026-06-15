@@ -1,5 +1,8 @@
 ---
-parent: "First-year university student, winter"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, winter
+sequence: 33
 title: "Episode 33: I'll Give It to Kanata"
 ---
 Episode 33: I'll Give It to Kanata

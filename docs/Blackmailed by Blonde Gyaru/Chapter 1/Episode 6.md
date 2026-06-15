@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 6: Don't Just Go Deciding We're That Kind of Thing!"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 6
+parent: 'Chapter One: Yuri Friends'
+sequence: 7
+title: "Episode 6: Don't Just Go Deciding We're That Kind of Thing!"
 ---
 **Episode 6: Don't Just Go Deciding We're That Kind of Thing!**
 

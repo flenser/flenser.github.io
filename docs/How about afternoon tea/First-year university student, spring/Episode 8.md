@@ -1,7 +1,10 @@
 ---
-parent: "First-year university student, spring"
-title: "Episode 8: Might Not Be Able to Go Home Alone"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 8
+parent: First-year university student, spring
+sequence: 8
+title: 'Episode 8: Might Not Be Able to Go Home Alone'
 ---
 Episode 8: Might Not Be Able to Go Home Alone
 

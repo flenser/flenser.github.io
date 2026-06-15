@@ -1,5 +1,8 @@
 ---
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 parent: "Interlude the Witch's Fever"
+sequence: 70
 title: "Sleeping Beauty and the Witch's Fever. Part Two"
 ---
 Sleeping Beauty and the Witch's Fever. Part Two

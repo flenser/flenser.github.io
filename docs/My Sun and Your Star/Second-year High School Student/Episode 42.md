@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 42: Autumn Breeze (1)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 42
+parent: Second-year High School Student
+sequence: 42
+title: 'Episode 42: Autumn Breeze (1)'
 ---
 Episode 42: Autumn Breeze (1)
 

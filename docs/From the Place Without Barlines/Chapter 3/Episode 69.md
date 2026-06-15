@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 69 — I'll Hold You, Secret and All"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 69
+parent: Chapter 3 - Always
+sequence: 69
+title: "Episode 69 — I'll Hold You, Secret and All"
 ---
 ## Episode 69: I'll Hold You, Secret and All
 

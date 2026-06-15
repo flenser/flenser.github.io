@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Winter Special 1: Claws"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 170
+parent: Second year as a working adult, winter
+sequence: 106
+title: 'Winter Special 1: Claws'
 ---
 Winter Special 1: Claws
 

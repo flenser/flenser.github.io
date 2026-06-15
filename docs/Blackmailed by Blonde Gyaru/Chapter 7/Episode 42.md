@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Seven: I Don't Want You to Look at Me. (Hiyori's POV)"
-title: "Episode 42: She Is Invading Me."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 42
+parent: "Chapter Seven: I Don't Want You to Look at Me. (Hiyori's POV)"
+sequence: 43
+title: 'Episode 42: She Is Invading Me.'
 ---
 **Episode 42: She Is Invading Me.**
 

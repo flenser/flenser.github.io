@@ -1,7 +1,10 @@
 ---
-parent: "Broken Heart"
-title: "Episode 5"
+grand_parent: My Neighbour, Kataba-san
+layout: episode
 nav_order: 5
+parent: Broken Heart
+sequence: 5
+title: Episode 5
 ---
 Episode 5
 

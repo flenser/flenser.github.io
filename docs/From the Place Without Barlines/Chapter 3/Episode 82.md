@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 82 — A Kiss"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 82
+parent: Chapter 3 - Always
+sequence: 82
+title: Episode 82 — A Kiss
 ---
 ## Episode 82: A Kiss
 

@@ -1,6 +1,9 @@
 ---
-parent: "Winter"
-title: "Episode 26: No Need to Promise Forever"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Winter
+sequence: 26
+title: 'Episode 26: No Need to Promise Forever'
 ---
 Episode 26: No Need to Promise Forever
 

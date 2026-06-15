@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 72 — The Piano That Won't Sound"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 72
+parent: Chapter 3 - Always
+sequence: 72
+title: "Episode 72 — The Piano That Won't Sound"
 ---
 ## Episode 72: The Piano That Won't Sound
 

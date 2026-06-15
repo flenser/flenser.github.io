@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 128: I Want to Eat Endo-san's Cooking"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 128
+parent: University Students (Relationship Arc)
+sequence: 128
+title: "Episode 128: I Want to Eat Endo-san's Cooking"
 ---
 Episode 128: I Want to Eat Endo-san's Cooking
 

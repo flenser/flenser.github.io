@@ -1,6 +1,9 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: "Episode 32: The Petal Was Still Attached"
+sequence: 32
+title: 'Episode 32: The Petal Was Still Attached'
 ---
 Episode 32: The Petal Was Still Attached
 

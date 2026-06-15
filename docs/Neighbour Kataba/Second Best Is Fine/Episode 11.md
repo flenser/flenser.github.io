@@ -1,7 +1,10 @@
 ---
-parent: "Second Best Is Fine"
-title: "Episode 11"
+grand_parent: My Neighbour, Kataba-san
+layout: episode
 nav_order: 11
+parent: Second Best Is Fine
+sequence: 11
+title: Episode 11
 ---
 Episode 11
 

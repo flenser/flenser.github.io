@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 7: As a Teacher"
-title: "Episode Seven: It's Alright ― June 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 7
+parent: 'Chapter 7: As a Teacher'
+sequence: 70
+title: "Episode Seven: It's Alright ― June 2033 —"
 ---
 Episode Seven: It's Alright ―June 2033―
 

@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 81: Midsummer"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 81
+parent: Third-year High School Student
+sequence: 81
+title: 'Episode 81: Midsummer'
 ---
 Episode 81: Midsummer
 

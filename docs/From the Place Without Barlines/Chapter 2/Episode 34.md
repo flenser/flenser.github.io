@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 34 — And, Eventually, the Heart Too'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 34
+parent: Chapter 2 - BELIEVE
+sequence: 34
+title: Episode 34 — And, Eventually, the Heart Too
 ---
 ## Episode 34 — And, Eventually, the Heart Too
 

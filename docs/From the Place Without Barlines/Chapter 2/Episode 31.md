@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 31 — BELIEVE'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 31
+parent: Chapter 2 - BELIEVE
+sequence: 31
+title: Episode 31 — BELIEVE
 ---
 ## Episode 31 — BELIEVE
 

@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 2
+sequence: 14
 title: Episode 14
 ---
-
 Now —she was being relied upon by the person she admired.\
 Alisha needed Lotte.\
 So this was why she wanted to make her her personal maid —to make requests like this.\

@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 80: My Cute Junior"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 80
+parent: Third-year High School Student
+sequence: 80
+title: 'Episode 80: My Cute Junior'
 ---
 Episode 80: My Cute Junior
 

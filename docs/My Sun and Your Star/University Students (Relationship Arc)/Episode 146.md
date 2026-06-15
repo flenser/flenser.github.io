@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 146: Valentine's Day"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 146
+parent: University Students (Relationship Arc)
+sequence: 146
+title: "Episode 146: Valentine's Day"
 ---
 Episode 146: Valentine's Day
 

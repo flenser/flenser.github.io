@@ -1,5 +1,8 @@
 ---
-parent: "Second year as a working adult, summer"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, summer
+sequence: 74
 title: "Episode 71: Next, I'll buy you a ring"
 ---
 Episode 71: Next, I'll buy you a ring

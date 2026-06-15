@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 5
+sequence: 41
 title: Episode 41
 ---
-
 Lotte sent a letter to the Zekrosia residence, informing them of Alisha's situation.\
 Though Lotte should have returned to deliver the news herself, this was also Alisha's wish.\
 She wanted Lotte to attend to her personal needs while she was injured.\

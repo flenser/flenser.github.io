@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 78: What if I tried pushing Yui down?"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 70
+parent: Second year as a working adult, autumn
+sequence: 82
+title: 'Episode 78: What if I tried pushing Yui down?'
 ---
 Episode 78: What if I tried pushing Yui down?
 

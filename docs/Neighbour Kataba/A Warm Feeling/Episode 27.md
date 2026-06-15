@@ -1,7 +1,10 @@
 ---
-parent: "A Warm Feeling"
-title: "Episode 27"
+grand_parent: My Neighbour, Kataba-san
+layout: episode
 nav_order: 27
+parent: A Warm Feeling
+sequence: 27
+title: Episode 27
 ---
 Episode 27
 

@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Be Chosen by the Prince"
-title: "Part Four (Iori's perspective)"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 4
+parent: The Princess Wants to Be Chosen by the Prince
+sequence: 42
+title: "Part Four (Iori's perspective)"
 ---
 ## Chapter Four: "The Princess Wants to Be Chosen by the Prince" — Part Four
 

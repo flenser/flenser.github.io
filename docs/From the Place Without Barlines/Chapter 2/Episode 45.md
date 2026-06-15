@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 45 — I Want to Talk to You'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 45
+parent: Chapter 2 - BELIEVE
+sequence: 45
+title: Episode 45 — I Want to Talk to You
 ---
 ## Episode 45 — I Want to Talk to You
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 4 - The Place Where Words and Sound Overlap"
-title: "Episode 92: The Town Where Snow Falls"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 92
+parent: Chapter 4 - The Place Where Words and Sound Overlap
+sequence: 92
+title: 'Episode 92: The Town Where Snow Falls'
 ---
 ## Episode 92: The Town Where Snow Falls
 

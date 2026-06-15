@@ -1,6 +1,9 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: "Episode 33: Just an Ordinary Girl Who Likes Girls"
+sequence: 33
+title: 'Episode 33: Just an Ordinary Girl Who Likes Girls'
 ---
 Episode 33: Just an Ordinary Girl Who Likes Girls
 

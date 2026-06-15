@@ -1,7 +1,10 @@
 ---
-parent: "Not Alone"
-title: "Episode 32"
+grand_parent: My Neighbour, Kataba-san
+layout: episode
 nav_order: 32
+parent: Not Alone
+sequence: 32
+title: Episode 32
 ---
 Episode 32
 

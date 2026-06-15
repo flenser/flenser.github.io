@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 30: Bonus - Practice"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 30
+parent: Second-year High School Student
+sequence: 30
+title: 'Episode 30: Bonus - Practice'
 ---
 Episode 30: Bonus - Practice
 

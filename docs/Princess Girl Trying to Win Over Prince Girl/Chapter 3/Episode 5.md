@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Win the Prince"
-title: "Part Five"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 5
+parent: The Princess Wants to Win the Prince
+sequence: 30
+title: Part Five
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Five
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
-title: "Episode Seven: Jealousy ―July 2032—"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 7
+parent: "Chapter 3: I Don't Understand This Feeling Called Liking"
+sequence: 34
+title: 'Episode Seven: Jealousy ―July 2032—'
 ---
 Episode Seven: Jealousy ―July 2032―
 

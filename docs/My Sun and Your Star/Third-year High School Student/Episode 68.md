@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 68: Takisawa Belongs to No One"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 68
+parent: Third-year High School Student
+sequence: 68
+title: 'Episode 68: Takisawa Belongs to No One'
 ---
 Episode 68: Takisawa Belongs to No One
 

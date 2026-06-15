@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
+sequence: 35
 title: "Episode 35: I want to see you, Nana. I want to hear your voice. I'm lonely. Just one word is fine, please reply."
 ---
 Episode 35: I want to see you, Nana. I want to hear your voice. I'm lonely. Just one word is fine, please reply.

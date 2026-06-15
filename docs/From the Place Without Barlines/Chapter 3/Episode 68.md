@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 68 — That's Why I Quit Music"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 68
+parent: Chapter 3 - Always
+sequence: 68
+title: "Episode 68 — That's Why I Quit Music"
 ---
 ## Episode 68: That's Why I Quit Music
 

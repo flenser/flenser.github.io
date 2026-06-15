@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Two: The Two of Us Playing Yuri Friends"
-title: "Episode 16: [Yuri Friends] I'll Savour Every Bit of You."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 16
+parent: 'Chapter Two: The Two of Us Playing Yuri Friends'
+sequence: 17
+title: "Episode 16: [Yuri Friends] I'll Savour Every Bit of You."
 ---
 **Episode 16: [Yuri Friends] I'll Savour Every Bit of You.**
 

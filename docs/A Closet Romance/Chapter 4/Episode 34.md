@@ -1,6 +1,9 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: "Episode 34: Goodbye, Mitsuki"
+sequence: 34
+title: 'Episode 34: Goodbye, Mitsuki'
 ---
 Episode 34: Goodbye, Mitsuki
 

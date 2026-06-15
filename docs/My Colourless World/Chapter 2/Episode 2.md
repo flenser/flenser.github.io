@@ -1,6 +1,9 @@
 ---
-parent: "The Colour That Is Her"
-title: "Episode 2"
+grand_parent: You Bleed Into My Colourless World
+layout: episode
+parent: The Colour That Is Her
+sequence: 4
+title: Episode 2
 ---
 Episode 2
 

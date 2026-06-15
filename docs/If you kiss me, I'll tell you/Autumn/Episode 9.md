@@ -1,7 +1,10 @@
 ---
-parent: "Autumn"
-title: "Episode 9: Do You Like Me? Or Do You Hate Me?"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
 nav_order: 20
+parent: Autumn
+sequence: 9
+title: 'Episode 9: Do You Like Me? Or Do You Hate Me?'
 ---
 Episode 9: Do You Like Me? Or Do You Hate Me?
 

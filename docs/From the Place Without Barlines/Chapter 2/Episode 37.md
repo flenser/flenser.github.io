@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 37 — Mustang'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 37
+parent: Chapter 2 - BELIEVE
+sequence: 37
+title: Episode 37 — Mustang
 ---
 ## Episode 37 — Mustang
 

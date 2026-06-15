@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Hot Springs"
-title: "Episode Ninety-Five"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 5
+parent: Sleeping Beauty and the Hot Springs
+sequence: 95
+title: Episode Ninety-Five
 ---
 Episode Ninety-Five
 

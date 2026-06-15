@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Four: Raven from Hell'
+sequence: 20
 title: 'Episode 20: Damage'
 ---
-
 "Ohh! Ohhhhh! Brown! It's Brown! Long time no see! Fuheh! Fuhihohihoho! I'm so happy! So very happy! Two friends have come today! To my house! To my home!　Two people, two people, two people, two people! Friends have come! Fuhehihihihihiiii!!"\
 "I told you! I'm not Brown! I said I'm not Brown!"\
 "...It's worse than the last time you came."

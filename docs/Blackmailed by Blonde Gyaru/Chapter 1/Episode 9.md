@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 9: [Yuri Friends] Hey, Let's Just Talk. Normally."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 9
+parent: 'Chapter One: Yuri Friends'
+sequence: 10
+title: "Episode 9: [Yuri Friends] Hey, Let's Just Talk. Normally."
 ---
 **Episode 9: [Yuri Friends] Hey, Let's Just Talk. Normally.**
 

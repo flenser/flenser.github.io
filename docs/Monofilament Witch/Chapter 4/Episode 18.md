@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Four: Raven from Hell'
+sequence: 18
 title: 'Episode 18: The Staff Craftsman'
 ---
-
 『From [Guide Mascot] to [Raven Silver]. You're straying too far off course. Can't you do something about that habit of yours, dawdling?』
 
 The girl —[Sere]— ignored the communicator.\

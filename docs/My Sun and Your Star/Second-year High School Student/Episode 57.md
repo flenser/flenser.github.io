@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 57: A Fresh Start"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 57
+parent: Second-year High School Student
+sequence: 57
+title: 'Episode 57: A Fresh Start'
 ---
 Episode 57: A Fresh Start
 

@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 45: Winter Arrives (1)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 45
+parent: Second-year High School Student
+sequence: 45
+title: 'Episode 45: Winter Arrives (1)'
 ---
 Episode 45: Winter Arrives (1)
 

@@ -1,6 +1,9 @@
 ---
-parent: "Second year as a working adult, spring"
-title: "Episode 54: What on earth is going to happen to us now?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, spring
+sequence: 57
+title: 'Episode 54: What on earth is going to happen to us now?'
 ---
 Episode 54: What on earth is going to happen to us now?
 

@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 122: The Graduation Ceremony"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 122
+parent: Third-year High School Student
+sequence: 122
+title: 'Episode 122: The Graduation Ceremony'
 ---
 Episode 122: The Graduation Ceremony
 

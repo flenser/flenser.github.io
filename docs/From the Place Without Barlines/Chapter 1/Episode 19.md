@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 19 — Petrichor"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 19
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 19
+title: Episode 19 — Petrichor
 ---
 ## Episode 19 — Petrichor
 

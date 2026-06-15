@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: 'Episode 28 — Almost Summer'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 28
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 28
+title: Episode 28 — Almost Summer
 ---
 ## Episode 28 — Almost Summer
 

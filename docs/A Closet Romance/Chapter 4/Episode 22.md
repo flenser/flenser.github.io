@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
+sequence: 22
 title: "Episode 22: It's Not Like I'm Having Some Massive Sexual Arousal Explosion or Anything"
 ---
 Episode 22: It's Not Like I'm Having Some Massive Sexual Arousal Explosion or Anything

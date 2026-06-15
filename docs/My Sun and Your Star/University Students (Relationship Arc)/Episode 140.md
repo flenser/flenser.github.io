@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 140: Autumn Leaves"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 140
+parent: University Students (Relationship Arc)
+sequence: 140
+title: 'Episode 140: Autumn Leaves'
 ---
 Episode 140: Autumn Leaves
 

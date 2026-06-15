@@ -1,5 +1,8 @@
 ---
-parent: "Winter"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Winter
+sequence: 21
 title: "Episode 21: Does it look like I've lived a life where I could have anything I wanted?"
 ---
 Episode 21: Does it look like I've lived a life where I could have anything I wanted?

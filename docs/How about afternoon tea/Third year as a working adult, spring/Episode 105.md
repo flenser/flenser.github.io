@@ -1,5 +1,8 @@
 ---
-parent: "Third year as a working adult, spring"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Third year as a working adult, spring
+sequence: 112
 title: "Episode 105: Yui, Please, Don't Cry"
 ---
 Episode 105: Yui, Please, Don't Cry

@@ -1,7 +1,10 @@
 ---
-parent: "Epilogue: In the Classroom After School"
-title: "Final Episode: I'll Keep Telling You, Again and Again ― June 2037 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 3
+parent: 'Epilogue: In the Classroom After School'
+sequence: 93
+title: "Final Episode: I'll Keep Telling You, Again and Again ― June 2037 —"
 ---
 Final Episode: I'll Keep Telling You, Again and Again ―June 2037―
 

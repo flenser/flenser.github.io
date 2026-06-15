@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, summer"
-title: "Episode 19: What on Earth Do You Want from Me?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, summer
+sequence: 19
+title: 'Episode 19: What on Earth Do You Want from Me?'
 ---
 Chapter 19: What on Earth Do You Want from Me?
 

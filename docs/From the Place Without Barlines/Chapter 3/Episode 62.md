@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 62 — Scorched Film"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 62
+parent: Chapter 3 - Always
+sequence: 62
+title: Episode 62 — Scorched Film
 ---
 ## Episode 62 — Scorched Film
 

@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 2
+sequence: 11
 title: Episode 11
 ---
-
 ――About a month passed, and at the Zekrosia residence in the royal capital.\
 Lotte was once again clad in her maid's uniform, standing by Alisha's side.\
 The Zekrosia residence was located near the very heart of the royal capital, clearly signifying their standing.

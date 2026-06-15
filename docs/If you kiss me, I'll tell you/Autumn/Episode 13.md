@@ -1,7 +1,10 @@
 ---
-parent: "Autumn"
-title: "Episode 13: When Mitsuya-san and Aosawa-san arrived, I despaired"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
 nav_order: 60
+parent: Autumn
+sequence: 13
+title: 'Episode 13: When Mitsuya-san and Aosawa-san arrived, I despaired'
 ---
 Episode 13: When Mitsuya-san and Aosawa-san arrived, I despaired
 

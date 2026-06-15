@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 70 — Summer Ends"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 70
+parent: Chapter 3 - Always
+sequence: 70
+title: Episode 70 — Summer Ends
 ---
 ## Episode 70: Summer Ends
 

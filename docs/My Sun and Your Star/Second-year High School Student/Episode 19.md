@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 19: Afterwards"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 19
+parent: Second-year High School Student
+sequence: 19
+title: 'Episode 19: Afterwards'
 ---
 Episode 19: Afterwards
 

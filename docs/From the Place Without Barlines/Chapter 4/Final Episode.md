@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 4 - The Place Where Words and Sound Overlap"
-title: "Final Episode: I Dedicate This Final Note to You"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 93
+parent: Chapter 4 - The Place Where Words and Sound Overlap
+sequence: 93
+title: 'Final Episode: I Dedicate This Final Note to You'
 ---
 ## Final Episode: I Dedicate This Final Note to You
 

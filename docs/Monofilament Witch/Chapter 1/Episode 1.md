@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter One: Another Day, Another Run'
+sequence: 1
 title: 'Episode 1: The Magical Girl`s Job'
 ---
-
 Science taken too far becomes indistinguishable from magic.\
 —That is why the populace called it magic.
 

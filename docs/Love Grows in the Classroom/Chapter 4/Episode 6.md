@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 4: Can I Come Over?"
-title: "Episode Six: Wanting to Be Pampered ―August 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 6
+parent: 'Chapter 4: Can I Come Over?'
+sequence: 41
+title: 'Episode Six: Wanting to Be Pampered ―August 2032―'
 ---
 Episode Six: Wanting to Be Pampered ―August 2032―
 

@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 110: Immersed in Studying (1)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 110
+parent: Third-year High School Student
+sequence: 110
+title: 'Episode 110: Immersed in Studying (1)'
 ---
 Episode 110: Immersed in Studying (1)
 

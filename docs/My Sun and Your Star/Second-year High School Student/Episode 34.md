@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 34: Mayo-san and I ⑴"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 34
+parent: Second-year High School Student
+sequence: 34
+title: 'Episode 34: Mayo-san and I ⑴'
 ---
 Episode 34: Mayo-san and I ⑴
 

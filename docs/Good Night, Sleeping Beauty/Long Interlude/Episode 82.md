@@ -1,7 +1,10 @@
 ---
-parent: "Long Interlude"
-title: "Sleeping Beauty and the Witch's Holiday. Part 2"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 9
+parent: Long Interlude
+sequence: 82
+title: "Sleeping Beauty and the Witch's Holiday. Part 2"
 ---
 Sleeping Beauty and the Witch's Holiday. Part 2
 

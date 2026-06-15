@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, winter"
-title: "Episode 41: Whenever We Meet"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, winter
+sequence: 41
+title: 'Episode 41: Whenever We Meet'
 ---
 Episode 41: Whenever We Meet
 

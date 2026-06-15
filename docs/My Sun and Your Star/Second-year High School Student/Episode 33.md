@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 33: I Think I'm an Idiot"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 33
+parent: Second-year High School Student
+sequence: 33
+title: "Episode 33: I Think I'm an Idiot"
 ---
 Episode 33: I Think I'm an Idiot
 

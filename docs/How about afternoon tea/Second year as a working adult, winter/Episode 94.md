@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 94: You'd better be a good girl tonight, you know"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 100
+parent: Second year as a working adult, winter
+sequence: 99
+title: "Episode 94: You'd better be a good girl tonight, you know"
 ---
 Episode 94: You'd better be a good girl tonight, you know
 

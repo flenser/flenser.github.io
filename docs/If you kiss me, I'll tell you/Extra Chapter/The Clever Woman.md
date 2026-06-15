@@ -1,6 +1,9 @@
 ---
-parent: "Extra Chapter"
-title: "The Clever Woman"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Extra Chapter
+sequence: 29
+title: The Clever Woman
 ---
 The Clever Woman
 

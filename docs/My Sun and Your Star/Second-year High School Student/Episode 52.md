@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 52: A Morning Unlike Any Other"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 52
+parent: Second-year High School Student
+sequence: 52
+title: 'Episode 52: A Morning Unlike Any Other'
 ---
 Episode 52: A Morning Unlike Any Other
 

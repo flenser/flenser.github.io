@@ -1,9 +1,11 @@
 ---
-parent: Chapter 1
-title: Episode 3
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 nav_order: 20
+parent: Chapter 1
+sequence: 3
+title: Episode 3
 ---
-
 "...Welcome—"
 
 Lotte uttered the greeting in a barely audible, utterly unenthusiastic tone. Yet her words stopped dead.\

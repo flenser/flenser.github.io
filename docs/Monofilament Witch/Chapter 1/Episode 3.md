@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter One: Another Day, Another Run'
+sequence: 3
 title: 'Episode 3: The Witch'
 ---
-
 The machine-gun-mounted turreted unmanned artillery emplacement erupted in fire.\
 It wound the magazine, pulled the electronic trigger lock.\
 A deafening gunshot echoed through the night ruins as the sight locked onto the girl —at that instant.

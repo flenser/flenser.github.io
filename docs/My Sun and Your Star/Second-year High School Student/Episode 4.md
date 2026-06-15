@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 4: Endo Hina's Past"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 4
+parent: Second-year High School Student
+sequence: 4
+title: "Episode 4: Endo Hina's Past"
 ---
 Episode 4: Endo Hina's Past
 

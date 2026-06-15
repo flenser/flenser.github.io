@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 83: I'll Wait for You, Just a Little While"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 120
+parent: Second year as a working adult, autumn
+sequence: 87
+title: "Episode 83: I'll Wait for You, Just a Little While"
 ---
 Episode 83: I'll Wait for You, Just a Little While
 

@@ -1,7 +1,10 @@
 ---
-parent: "Ghost of the Art Club — Arc"
-title: Episode 3
+grand_parent: "Eternal Rest (I'm Just Tired)"
+layout: episode
 nav_order: 3
+parent: Ghost of the Art Club — Arc
+sequence: 3
+title: Episode 3
 ---
 Episode 3
 

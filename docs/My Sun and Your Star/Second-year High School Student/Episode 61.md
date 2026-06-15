@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 61: 17 Years Old (3)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 61
+parent: Second-year High School Student
+sequence: 61
+title: 'Episode 61: 17 Years Old (3)'
 ---
 Episode 61: 17 Years Old (3)
 

@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
+sequence: 3
 title: 'Episode 3: Did You Think It Was My Child?'
 ---
 Episode 3: Did You Think It Was My Child?

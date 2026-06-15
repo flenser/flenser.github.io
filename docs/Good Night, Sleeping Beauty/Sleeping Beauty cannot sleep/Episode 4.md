@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty Cannot Sleep"
-title: Episode Four
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 4
+parent: Sleeping Beauty Cannot Sleep
+sequence: 4
+title: Episode Four
 ---
 Episode Four
 

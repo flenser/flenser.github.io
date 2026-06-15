@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Win Over the Prince"
-title: "Part Eight"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 8
+parent: The Princess Wants to Win Over the Prince
+sequence: 9
+title: Part Eight
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Eight
 

@@ -1,6 +1,9 @@
 ---
-parent: "Second-year university student, spring"
-title: "Episode 45: Were you actually jealous back then too?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second-year university student, spring
+sequence: 45
+title: 'Episode 45: Were you actually jealous back then too?'
 ---
 Episode 45: Were you actually jealous back then too?
 

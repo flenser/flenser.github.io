@@ -1,7 +1,10 @@
 ---
-parent: "Broken Meeting"
-title: "Episode 2"
+grand_parent: My Neighbour, Kataba-san
+layout: episode
 nav_order: 2
+parent: Broken Meeting
+sequence: 2
+title: Episode 2
 ---
 Episode 2
 

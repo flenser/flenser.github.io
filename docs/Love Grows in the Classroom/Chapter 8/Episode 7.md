@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 8: The Story Only I Can Write"
-title: "Episode Seven: I Entrust It to You ― December 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 8
+parent: 'Chapter 8: The Story Only I Can Write'
+sequence: 82
+title: 'Episode Seven: I Entrust It to You ― December 2033 —'
 ---
 Episode Seven: I Entrust It to You ―December 2033―
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 6 — The Same Height"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 6
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 6
+title: Episode 6 — The Same Height
 ---
 ## Episode 6 — The Same Height
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 7: As a Teacher"
-title: "Episode Ten: Please Understand Me ― June 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 10
+parent: 'Chapter 7: As a Teacher'
+sequence: 73
+title: 'Episode Ten: Please Understand Me ― June 2033 —'
 ---
 Episode Ten: Please Understand Me ―June 2033―
 

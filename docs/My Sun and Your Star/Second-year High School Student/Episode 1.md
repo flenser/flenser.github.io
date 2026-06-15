@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 1: The Fork in the Road"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 1
+parent: Second-year High School Student
+sequence: 1
+title: 'Episode 1: The Fork in the Road'
 ---
 Episode 1: The Fork in the Road
 

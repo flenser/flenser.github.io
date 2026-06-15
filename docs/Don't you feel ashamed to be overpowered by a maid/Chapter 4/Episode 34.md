@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 4
+sequence: 34
 title: Episode 34
 ---
-
 After Lotte and Alisha had departed — it was Cortier who appeared in the alleyway.\
 Given Lotte's profound loyalty — Ellenphia and Cortier had concluded she was not the sort who could be bought, at least not with money.\
 Summoning her had yielded no results — Ellenphia was disheartened, but Cortier immediately sprang into action.\

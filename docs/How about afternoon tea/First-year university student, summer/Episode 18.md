@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, summer"
-title: "Episode 18: So, shall we do it after the fireworks?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, summer
+sequence: 18
+title: 'Episode 18: So, shall we do it after the fireworks?'
 ---
 Episode 18: So, shall we do it after the fireworks?
 

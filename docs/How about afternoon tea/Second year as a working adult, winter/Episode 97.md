@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 97: I haven't actually been proposed to yet"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 130
+parent: Second year as a working adult, winter
+sequence: 102
+title: "Episode 97: I haven't actually been proposed to yet"
 ---
 Episode 97: I haven't actually been proposed to yet
 

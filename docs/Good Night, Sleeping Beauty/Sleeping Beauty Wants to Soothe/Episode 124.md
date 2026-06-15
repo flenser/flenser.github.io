@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty Wants to Soothe"
-title: "Episode One Hundred and Twenty-Four"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 5
+parent: Sleeping Beauty Wants to Soothe
+sequence: 124
+title: Episode One Hundred and Twenty-Four
 ---
 Episode One Hundred and Twenty-Four
 

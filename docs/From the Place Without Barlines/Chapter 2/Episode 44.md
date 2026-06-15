@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 44 — Because I'm Not Annoying"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 44
+parent: Chapter 2 - BELIEVE
+sequence: 44
+title: "Episode 44 — Because I'm Not Annoying"
 ---
 ## Episode 44 — Because I'm Not Annoying
 

@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1: The Plain and Serious Japanese Teacher"
-title: "Episode Ten: Excuses — November 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 10
+parent: 'Chapter 1: The Plain and Serious Japanese Teacher'
+sequence: 11
+title: 'Episode Ten: Excuses — November 2032 —'
 ---
 Episode Ten: Excuses — November 2032 —
 

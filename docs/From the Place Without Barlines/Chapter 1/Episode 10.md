@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 10 — Angel and Little Devil"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 10
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 10
+title: Episode 10 — Angel and Little Devil
 ---
 ## Episode 10 — Angel and Little Devil
 

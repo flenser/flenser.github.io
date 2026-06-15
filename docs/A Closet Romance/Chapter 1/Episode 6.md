@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
+sequence: 6
 title: "Episode 6: It's Not Bad, Mitsuki's Brilliant"
 ---
 Episode 6: It's Not Bad, Mitsuki's Brilliant

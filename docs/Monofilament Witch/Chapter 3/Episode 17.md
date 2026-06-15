@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Three: Lost Girls'
+sequence: 17
 title: 'Episode 17: Surgery'
 ---
-
 "Today. It's surgery day."
 
 Chiwawa Yellow hugged her stuffed toy and told Momotsuki Haruka this in that square, where the sunlight felt pleasantly warm.

@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Four: Raven from Hell'
+sequence: 24
 title: 'Episode 24: The Strange Appearance'
 ---
-
 A beam of light streaks in.\
 A blast follows, exploding with a delayed roar.\
 It strikes —a terribly young, innocent -looking girl.

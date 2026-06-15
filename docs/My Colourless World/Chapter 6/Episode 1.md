@@ -1,7 +1,10 @@
 ---
-parent: "At a Walking Pace"
-title: "Episode 1"
+grand_parent: You Bleed Into My Colourless World
+layout: episode
 nav_order: 1
+parent: At a Walking Pace
+sequence: 25
+title: Episode 1
 ---
 Episode 1
 

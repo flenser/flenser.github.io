@@ -1,6 +1,9 @@
 ---
-parent: "Winter"
-title: "Episode 20: Do You Like My Body That Much?"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Winter
+sequence: 20
+title: 'Episode 20: Do You Like My Body That Much?'
 ---
 Episode 20: Do You Like My Body That Much?
 

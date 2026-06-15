@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 84: I Was Making Music"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 84
+parent: Chapter 3 - Always
+sequence: 84
+title: 'Episode 84: I Was Making Music'
 ---
 ## Episode 84: I Was Making Music
 

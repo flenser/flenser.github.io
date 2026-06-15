@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - I Picked Up a Woman. In an Alley."
-title: "Episode 7: Do You Want Something? You Have to Tell Me or I Won't Know"
+grand_parent: A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks
+layout: episode
 nav_order: 7
+parent: Chapter 1 - I Picked Up a Woman. In an Alley.
+sequence: 7
+title: "Episode 7: Do You Want Something? You Have to Tell Me or I Won't Know"
 ---
 **Episode 7: Do You Want Something? You Have to Tell Me or I Won't Know**
 

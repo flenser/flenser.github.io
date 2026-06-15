@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 62: Bonus - I Want to Know More"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 62
+parent: Second-year High School Student
+sequence: 62
+title: 'Episode 62: Bonus - I Want to Know More'
 ---
 Episode 62: Bonus - I Want to Know More
 

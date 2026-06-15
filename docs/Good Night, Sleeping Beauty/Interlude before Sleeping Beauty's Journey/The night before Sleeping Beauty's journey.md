@@ -1,5 +1,8 @@
 ---
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 parent: "Interlude before Sleeping Beauty's Journey"
+sequence: 104
 title: "The night before Sleeping Beauty's journey"
 ---
 The night before Sleeping Beauty's journey.

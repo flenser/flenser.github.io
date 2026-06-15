@@ -1,7 +1,10 @@
 ---
-parent: "A Reward"
-title: "Episode 28"
+grand_parent: My Neighbour, Kataba-san
+layout: episode
 nav_order: 28
+parent: A Reward
+sequence: 28
+title: Episode 28
 ---
 Episode 28
 

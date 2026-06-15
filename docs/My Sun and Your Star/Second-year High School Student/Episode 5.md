@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 5: Under the Same Blue Sky as Always"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 5
+parent: Second-year High School Student
+sequence: 5
+title: 'Episode 5: Under the Same Blue Sky as Always'
 ---
 Episode 5: Under the Same Blue Sky as Always
 

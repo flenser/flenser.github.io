@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 4
+sequence: 32
 title: Episode 32
 ---
-
 The Flesis family mansion also stood within the royal capital.\
 Its grounds were quite extensive; while perhaps not quite on par with the Zekrosia estate, they were likely comparable in scale.\
 Among the nobility, the size of one's residence and the expanse of one's grounds likely served as indicators of authority.\

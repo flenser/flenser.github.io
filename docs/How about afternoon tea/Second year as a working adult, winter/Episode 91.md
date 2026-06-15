@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 91: Kanata looks adorable in anything she wears, so it's hard to choose!"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 70
+parent: Second year as a working adult, winter
+sequence: 96
+title: "Episode 91: Kanata looks adorable in anything she wears, so it's hard to choose!"
 ---
 Episode 91: Kanata looks adorable in anything she wears, so it's hard to choose!
 

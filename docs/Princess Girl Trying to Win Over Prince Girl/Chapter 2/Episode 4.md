@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Appeal to the Prince"
-title: "Part Four"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 4
+parent: The Princess Wants to Appeal to the Prince
+sequence: 18
+title: Part Four
 ---
 ## Chapter Two: "The Princess Wants to Appeal to the Prince" — Part Four
 

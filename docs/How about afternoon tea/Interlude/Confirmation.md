@@ -1,7 +1,10 @@
 ---
-parent: Interlude
-title: "Confirmation"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 1
+parent: Interlude
+sequence: 51
+title: Confirmation
 ---
 Confirmation
 

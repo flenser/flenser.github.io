@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 36 — A Picture of the Future'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 36
+parent: Chapter 2 - BELIEVE
+sequence: 36
+title: Episode 36 — A Picture of the Future
 ---
 ## Episode 36 — A Picture of the Future
 

@@ -1,6 +1,9 @@
 ---
-parent: "Second year as a working adult, spring"
-title: "Episode 53: I Just Wondered If It Might Be Fate"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, spring
+sequence: 56
+title: 'Episode 53: I Just Wondered If It Might Be Fate'
 ---
 Episode 53: I Just Wondered If It Might Be Fate
 

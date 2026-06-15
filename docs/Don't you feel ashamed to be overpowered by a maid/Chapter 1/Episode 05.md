@@ -1,9 +1,11 @@
 ---
-parent: Chapter 1
-title: Episode 5
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 nav_order: 40
+parent: Chapter 1
+sequence: 5
+title: Episode 5
 ---
-
 "...!?"
 
 The robed figure —Alisha —shuddered as if shaken, but

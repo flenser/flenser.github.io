@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 97: The Seat Next to Me"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 97
+parent: Third-year High School Student
+sequence: 97
+title: 'Episode 97: The Seat Next to Me'
 ---
 Episode 97: The Seat Next to Me
 

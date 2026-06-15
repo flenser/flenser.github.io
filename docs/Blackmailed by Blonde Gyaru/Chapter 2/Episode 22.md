@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Two: The Two of Us Playing Yuri Friends"
-title: "Episode 22: [Yuri Friends] Would You Please Stop Thrusting Your Hips Into Me From Behind?!"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 22
+parent: 'Chapter Two: The Two of Us Playing Yuri Friends'
+sequence: 23
+title: 'Episode 22: [Yuri Friends] Would You Please Stop Thrusting Your Hips Into Me From Behind?!'
 ---
 **Episode 22: [Yuri Friends] Would You Please Stop Thrusting Your Hips Into Me From Behind?!**
 

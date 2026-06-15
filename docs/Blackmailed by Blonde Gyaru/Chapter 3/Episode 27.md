@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Three: Yuri Girlfriends"
-title: "Episode 27: We're Girlfriends Now."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 27
+parent: 'Chapter Three: Yuri Girlfriends'
+sequence: 28
+title: "Episode 27: We're Girlfriends Now."
 ---
 **Episode 27: We're Girlfriends Now.**
 

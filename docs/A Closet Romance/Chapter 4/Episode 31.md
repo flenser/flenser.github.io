@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
+sequence: 31
 title: "Episode 31: There's No Way I'd Ever Like a Girl Like That"
 ---
 Episode 31: There's No Way I'd Ever Like a Girl Like That

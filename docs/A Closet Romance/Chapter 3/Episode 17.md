@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: 'Episode 17... Nana'
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 30
+parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
+sequence: 17
+title: Episode 17... Nana
 ---
 Episode 17... Nana
 

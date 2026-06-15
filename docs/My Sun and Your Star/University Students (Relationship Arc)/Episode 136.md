@@ -1,7 +1,10 @@
 ---
-parent: "University Students (Relationship Arc)"
-title: "Episode 136: The Report"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 136
+parent: University Students (Relationship Arc)
+sequence: 136
+title: 'Episode 136: The Report'
 ---
 Episode 136: The Report
 

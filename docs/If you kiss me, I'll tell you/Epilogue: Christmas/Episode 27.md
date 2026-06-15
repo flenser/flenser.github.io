@@ -1,5 +1,8 @@
 ---
-parent: "Epilogue: Christmas"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: 'Epilogue: Christmas'
+sequence: 27
 title: "Episode 27: Smokers Have It Rough, Don't They?"
 ---
 Episode 27: Smokers Have It Rough, Don't They?

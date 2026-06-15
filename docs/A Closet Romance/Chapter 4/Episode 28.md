@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
+sequence: 28
 title: 'Episode 28: What Do You Like About Me, Nana? Tell Me Everything'
 ---
 Episode 28: What Do You Like About Me, Nana? Tell Me Everything

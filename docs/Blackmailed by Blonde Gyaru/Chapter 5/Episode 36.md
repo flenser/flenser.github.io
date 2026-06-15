@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Five: The End of Pretend"
-title: "Episode 36: I've Definitely Gone Back to Normal."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 36
+parent: 'Chapter Five: The End of Pretend'
+sequence: 37
+title: "Episode 36: I've Definitely Gone Back to Normal."
 ---
 **Episode 36: I've Definitely Gone Back to Normal.**
 

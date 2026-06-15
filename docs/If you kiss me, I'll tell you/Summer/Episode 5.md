@@ -1,6 +1,9 @@
 ---
-parent: "Summer"
-title: "Episode 5: How Foolish I Was to Expect Anything from Kaori"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Summer
+sequence: 5
+title: 'Episode 5: How Foolish I Was to Expect Anything from Kaori'
 ---
 Episode 5: How Foolish I Was to Expect Anything from Kaori
 

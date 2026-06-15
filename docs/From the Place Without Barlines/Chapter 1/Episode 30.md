@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: 'Episode 30 — Solanine'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 30
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 30
+title: Episode 30 — Solanine
 ---
 ## Episode 30 — Solanine
 

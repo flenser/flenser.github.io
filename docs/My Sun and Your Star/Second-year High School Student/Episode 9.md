@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 9: The Handkerchief's Whereabouts"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 9
+parent: Second-year High School Student
+sequence: 9
+title: "Episode 9: The Handkerchief's Whereabouts"
 ---
 Episode 9: The Handkerchief's Whereabouts
 

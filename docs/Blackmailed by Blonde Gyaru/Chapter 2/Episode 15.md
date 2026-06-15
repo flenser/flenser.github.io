@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Two: The Two of Us Playing Yuri Friends"
-title: 'Episode 15: Say "Aah" — Let Me Feed You?'
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 15
+parent: 'Chapter Two: The Two of Us Playing Yuri Friends'
+sequence: 16
+title: 'Episode 15: Say "Aah" — Let Me Feed You?'
 ---
 **Episode 15: Say "Aah" — Let Me Feed You?**
 

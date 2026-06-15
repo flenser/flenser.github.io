@@ -1,7 +1,10 @@
 ---
-parent: "Autumn"
-title: "Episode 18: She Just Won't Forgive Me, You See"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
 nav_order: 110
+parent: Autumn
+sequence: 18
+title: "Episode 18: She Just Won't Forgive Me, You See"
 ---
 Episode 18: She Just Won't Forgive Me, You See
 

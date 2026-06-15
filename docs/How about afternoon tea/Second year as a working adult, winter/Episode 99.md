@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Episode 99: It's all this face's fault. Yui-san, you idiot"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 150
+parent: Second year as a working adult, winter
+sequence: 104
+title: "Episode 99: It's all this face's fault. Yui-san, you idiot"
 ---
 Episode 99: It's all this face's fault. Yui-san, you idiot
 

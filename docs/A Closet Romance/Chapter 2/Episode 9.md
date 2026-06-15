@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: 'Episode 9: Wondering Whether to Go to University'
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 30
+parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
+sequence: 9
+title: 'Episode 9: Wondering Whether to Go to University'
 ---
 Episode 9: Wondering Whether to Go to University
 

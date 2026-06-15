@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Witch's ×××"
-title: Episode Twenty-Nine
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 3
+parent: "Sleeping Beauty and the Witch's ×××"
+sequence: 29
+title: Episode Twenty-Nine
 ---
 Episode Twenty-Nine
 

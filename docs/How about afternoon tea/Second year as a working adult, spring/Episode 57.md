@@ -1,6 +1,9 @@
 ---
-parent: "Second year as a working adult, spring"
-title: "Episode 57 So... Can I Look Forward to Saturday Night Too?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, spring
+sequence: 60
+title: Episode 57 So... Can I Look Forward to Saturday Night Too?
 ---
 Episode 57 So... can I look forward to Saturday night too?
 

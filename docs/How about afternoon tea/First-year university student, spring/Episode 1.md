@@ -1,7 +1,10 @@
 ---
-parent: "First-year university student, spring"
-title: "Episode 1: The Person Called Ichinose Yui"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 1
+parent: First-year university student, spring
+sequence: 1
+title: 'Episode 1: The Person Called Ichinose Yui'
 ---
 Episode 1: The Person Called Ichinose Yui
 

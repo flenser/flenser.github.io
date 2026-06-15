@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 83: The Silly Senior"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 83
+parent: Third-year High School Student
+sequence: 83
+title: 'Episode 83: The Silly Senior'
 ---
 Episode 83: The Silly Senior
 

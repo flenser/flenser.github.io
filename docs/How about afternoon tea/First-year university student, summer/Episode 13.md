@@ -1,5 +1,8 @@
 ---
-parent: "First-year university student, summer"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, summer
+sequence: 13
 title: "Episode 13: Today, I'll let you off the hook"
 ---
 Episode 13: Today, I'll let you off the hook

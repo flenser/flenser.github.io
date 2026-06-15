@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Three: Lost Girls'
+sequence: 13
 title: 'Episode 13: Excision'
 ---
-
 Voices reverberate through my skull.
 
 "Worse than mince."\

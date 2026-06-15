@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 2 — i Squared"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 2
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 2
+title: Episode 2 — i Squared
 ---
 ## Episode 2 — i Squared
 

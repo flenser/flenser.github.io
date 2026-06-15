@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 89: Like. Love, Love."
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 89
+parent: Chapter 3 - Always
+sequence: 89
+title: 'Episode 89: Like. Love, Love.'
 ---
 ## Episode 89: Like. Love, Love
 

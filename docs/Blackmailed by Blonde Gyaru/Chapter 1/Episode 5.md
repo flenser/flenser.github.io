@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 5: [Yuri Friends] So Wait, What Even Is This...?"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 5
+parent: 'Chapter One: Yuri Friends'
+sequence: 6
+title: 'Episode 5: [Yuri Friends] So Wait, What Even Is This...?'
 ---
 **Episode 5: [Yuri Friends] So Wait, What Even Is This...?**
 

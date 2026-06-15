@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Spring Storm"
-title: Episode Sixty-Three
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 2
+parent: Sleeping Beauty and the Spring Storm
+sequence: 63
+title: Episode Sixty-Three
 ---
 Episode Sixty-Three
 

@@ -1,5 +1,8 @@
 ---
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 parent: "Interlude chat with the Witch's Little Sister"
+sequence: 127
 title: "Idle Chat with Sleeping Beauty and the Witch's Little Sister"
 ---
 Idle Chat with Sleeping Beauty and the Witch's Little Sister

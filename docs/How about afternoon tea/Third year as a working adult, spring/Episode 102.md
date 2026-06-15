@@ -1,5 +1,8 @@
 ---
-parent: "Third year as a working adult, spring"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Third year as a working adult, spring
+sequence: 109
 title: "Episode 102: I Can't Stay Pathetic Forever"
 ---
 Episode 102: I Can't Stay Pathetic Forever

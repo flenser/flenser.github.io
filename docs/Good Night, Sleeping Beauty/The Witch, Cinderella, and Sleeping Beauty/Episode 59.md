@@ -1,7 +1,10 @@
 ---
-parent: "The Witch, Cinderella, and Sleeping Beauty"
-title: Episode Fifty-Nine
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 1
+parent: The Witch, Cinderella, and Sleeping Beauty
+sequence: 59
+title: Episode Fifty-Nine
 ---
 Episode Fifty-Nine
 

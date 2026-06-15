@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 4: Can I Come Over?"
-title: "Episode Two: I Can't Stop Thinking About It ―August 2032―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 2
+parent: 'Chapter 4: Can I Come Over?'
+sequence: 37
+title: "Episode Two: I Can't Stop Thinking About It ―August 2032―"
 ---
 Episode Two: I Can't Stop Thinking About It ―August 2032―
 

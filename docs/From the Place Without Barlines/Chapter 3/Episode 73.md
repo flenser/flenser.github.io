@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 73 — The Sound of Loneliness"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 73
+parent: Chapter 3 - Always
+sequence: 73
+title: Episode 73 — The Sound of Loneliness
 ---
 ## Episode 73: The Sound of Loneliness
 

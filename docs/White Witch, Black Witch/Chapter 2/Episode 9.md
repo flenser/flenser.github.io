@@ -1,7 +1,10 @@
 ---
-parent: "Prayers for the Battlefield. Flowers for the Hero."
-title: "Episode Nine"
+grand_parent: The White Witch and the Black Witch — A Twisted Secret Between Them
+layout: episode
 nav_order: 9
+parent: Prayers for the Battlefield. Flowers for the Hero.
+sequence: 13
+title: Episode Nine
 ---
 Episode Nine
 

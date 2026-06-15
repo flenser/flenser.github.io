@@ -1,6 +1,9 @@
 ---
-parent: "My Story"
-title: "Episode 1"
+grand_parent: You Bleed Into My Colourless World
+layout: episode
+parent: My Story
+sequence: 18
+title: Episode 1
 ---
 Episode 1
 

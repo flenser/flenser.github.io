@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Win Over the Prince"
-title: "Part Seven"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 7
+parent: The Princess Wants to Win Over the Prince
+sequence: 8
+title: Part Seven
 ---
 ## Chapter One: "The Princess Wants to Win Over the Prince" — Part Seven
 

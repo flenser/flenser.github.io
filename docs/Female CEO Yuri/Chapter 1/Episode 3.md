@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - I Picked Up a Woman. In an Alley."
-title: "Episode 3: Good girl, good girl."
+grand_parent: A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks
+layout: episode
 nav_order: 3
+parent: Chapter 1 - I Picked Up a Woman. In an Alley.
+sequence: 3
+title: 'Episode 3: Good girl, good girl.'
 ---
 **Episode 3: Good girl, good girl.**
 

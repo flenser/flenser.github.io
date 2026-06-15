@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: 'Episode 47 — Front Memory'
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 47
+parent: Chapter 2 - BELIEVE
+sequence: 47
+title: Episode 47 — Front Memory
 ---
 ## Episode 47 — Front Memory
 

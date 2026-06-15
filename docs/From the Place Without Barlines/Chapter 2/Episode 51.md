@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 51 — Freedom Inside an Aquarium"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 51
+parent: Chapter 2 - BELIEVE
+sequence: 51
+title: Episode 51 — Freedom Inside an Aquarium
 ---
 ## Episode 51 — Freedom Inside an Aquarium
 

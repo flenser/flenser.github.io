@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, summer"
-title: "Episode 15: Is There Any Need to Hold a Girl Less Lovely Than Me?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, summer
+sequence: 15
+title: 'Episode 15: Is There Any Need to Hold a Girl Less Lovely Than Me?'
 ---
 Episode 15: Is There Any Need to Hold a Girl Less Lovely Than Me?
 

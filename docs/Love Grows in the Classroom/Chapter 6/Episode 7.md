@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 6: The Twisted Valentine"
-title: "Episode Seven: The Teacher's Purpose ―March 2033―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 7
+parent: 'Chapter 6: The Twisted Valentine'
+sequence: 62
+title: "Episode Seven: The Teacher's Purpose ―March 2033―"
 ---
 Episode Seven: The Teacher's Purpose ―March 2033―
 

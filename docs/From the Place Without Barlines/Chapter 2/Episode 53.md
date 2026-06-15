@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2 - BELIEVE"
-title: "Episode 53 — In Your Words"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 53
+parent: Chapter 2 - BELIEVE
+sequence: 53
+title: Episode 53 — In Your Words
 ---
 ## Episode 53 — In Your Words
 

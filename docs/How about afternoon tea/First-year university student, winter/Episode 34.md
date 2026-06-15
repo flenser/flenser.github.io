@@ -1,5 +1,8 @@
 ---
-parent: "First-year university student, winter"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, winter
+sequence: 34
 title: "Episode 34: Santa's Been Caught"
 ---
 Episode 34: Santa's Been Caught

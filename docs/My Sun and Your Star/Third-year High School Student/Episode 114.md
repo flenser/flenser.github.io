@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 114: Bonus - I Want Soba"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 114
+parent: Third-year High School Student
+sequence: 114
+title: 'Episode 114: Bonus - I Want Soba'
 ---
 Episode 114: Bonus - I Want Soba
 

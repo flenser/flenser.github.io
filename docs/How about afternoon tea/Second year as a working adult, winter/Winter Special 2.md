@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, winter"
-title: "Winter Special 2: There was Dad, there was me, and there was Yui"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 180
+parent: Second year as a working adult, winter
+sequence: 107
+title: 'Winter Special 2: There was Dad, there was me, and there was Yui'
 ---
 Winter Special 2: There was Dad, there was me, and there was Yui
 

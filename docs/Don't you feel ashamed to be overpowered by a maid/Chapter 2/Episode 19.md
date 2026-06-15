@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 2
+sequence: 19
 title: Episode 19
 ---
-
 Night —The grounds of the Zekrosia residence were vast, and within them stood the dormitory for the live-in maids.\
 Even at night, the task of patrolling the grounds rotated among the maids, so the figure of the maid on duty leaving the dormitory could be seen from the window.\
 　Upon returning to the dormitory, she encountered the maids who had summoned Lotte earlier.\

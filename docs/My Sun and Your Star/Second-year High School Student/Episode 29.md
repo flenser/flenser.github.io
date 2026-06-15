@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 29: The Mark"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 29
+parent: Second-year High School Student
+sequence: 29
+title: 'Episode 29: The Mark'
 ---
 Episode 29: The Mark
 

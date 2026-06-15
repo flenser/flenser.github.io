@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 7: As a Teacher"
-title: "Episode Six: There Was No Way I Could Refuse ― June 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 6
+parent: 'Chapter 7: As a Teacher'
+sequence: 69
+title: 'Episode Six: There Was No Way I Could Refuse ― June 2033 —'
 ---
 Episode Six: There Was No Way I Could Refuse ―June 2033―
 

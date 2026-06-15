@@ -1,6 +1,9 @@
 ---
-parent: "Winter"
-title: "Episode 23: Present for You"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
+parent: Winter
+sequence: 23
+title: 'Episode 23: Present for You'
 ---
 Episode 23: Present for You
 

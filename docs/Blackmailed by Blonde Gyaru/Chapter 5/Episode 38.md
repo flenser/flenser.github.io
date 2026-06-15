@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Five: The End of Pretend"
-title: "Episode 38: I Cannot Forget the Smell."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 38
+parent: 'Chapter Five: The End of Pretend'
+sequence: 39
+title: 'Episode 38: I Cannot Forget the Smell.'
 ---
 **Episode 38: I Cannot Forget the Smell.**
 

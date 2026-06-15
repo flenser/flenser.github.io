@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 3 - Always"
-title: "Episode 86: Become My Curse"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 86
+parent: Chapter 3 - Always
+sequence: 86
+title: 'Episode 86: Become My Curse'
 ---
 ## Episode 86: Become My Curse
 

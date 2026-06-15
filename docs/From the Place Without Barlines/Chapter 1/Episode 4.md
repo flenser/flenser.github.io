@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 4 — A Sound Without a Name"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 4
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 4
+title: Episode 4 — A Sound Without a Name
 ---
 ## Episode 4 — A Sound Without a Name
 

@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 117: University Entrance Exams"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 117
+parent: Third-year High School Student
+sequence: 117
+title: 'Episode 117: University Entrance Exams'
 ---
 Episode 117: University Entrance Exams
 

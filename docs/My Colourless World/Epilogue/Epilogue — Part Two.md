@@ -1,6 +1,9 @@
 ---
-parent: "Epilogue - Colour"
-title: "Part Two - Dear Us, On That Day"
+grand_parent: You Bleed Into My Colourless World
+layout: episode
+parent: Epilogue - Colour
+sequence: 43
+title: Part Two - Dear Us, On That Day
 ---
 ## *Dear Us, On That Day*
 

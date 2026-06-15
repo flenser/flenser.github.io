@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Two: The Two of Us Playing Yuri Friends"
-title: "Episode 20: [Yuri Friends] Wrapped in Those Hot Lips."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 20
+parent: 'Chapter Two: The Two of Us Playing Yuri Friends'
+sequence: 21
+title: 'Episode 20: [Yuri Friends] Wrapped in Those Hot Lips.'
 ---
 **Episode 20: [Yuri Friends] Wrapped in Those Hot Lips.**
 

@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 37: Prejudice Without Tasting"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 37
+parent: Second-year High School Student
+sequence: 37
+title: 'Episode 37: Prejudice Without Tasting'
 ---
 Episode 37: Prejudice Without Tasting
 

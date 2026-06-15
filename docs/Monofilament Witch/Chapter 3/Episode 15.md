@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter Three: Lost Girls'
+sequence: 15
 title: 'Episode 15: Adjustment'
 ---
-
 "Don't come any closer. I'll cut you."
 
 Training Facility [School].\

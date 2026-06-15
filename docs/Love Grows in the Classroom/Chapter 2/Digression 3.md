@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2: First Love and the Holy Night"
-title: "Digression ③: The New Year's Eve Bell Cannot Remove It"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 16
+parent: 'Chapter 2: First Love and the Holy Night'
+sequence: 27
+title: "Digression ③: The New Year's Eve Bell Cannot Remove It"
 ---
 Digression ③: The New Year's Eve Bell Cannot Remove It
 

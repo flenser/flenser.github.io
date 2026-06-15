@@ -1,5 +1,8 @@
 ---
-parent: "Second year as a working adult, summer"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, summer
+sequence: 72
 title: "Episode 69: Didn't we make a promise?"
 ---
 Episode 69: Didn't we make a promise?

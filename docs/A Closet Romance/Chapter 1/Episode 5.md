@@ -1,5 +1,8 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter One: Quietly, Yet Constantly, I Thought of You'
+sequence: 5
 title: "Episode 5: When You're Not Alone, You Should Just Ask for Help"
 ---
 Episode 5: When You're Not Alone, You Should Just Ask for Help

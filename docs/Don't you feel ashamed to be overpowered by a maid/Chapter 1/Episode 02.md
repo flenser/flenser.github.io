@@ -1,9 +1,11 @@
 ---
-parent: Chapter 1
-title: Episode 2
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 nav_order: 10
+parent: Chapter 1
+sequence: 2
+title: Episode 2
 ---
-
 ――Two years ago, in a certain frontier region.\
 Several monsters had come down into the human settlements.\
 It seemed poachers had hunted a monster's young, and the enraged herd had swept straight towards a nearby village.\

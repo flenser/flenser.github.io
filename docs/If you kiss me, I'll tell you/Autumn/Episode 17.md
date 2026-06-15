@@ -1,7 +1,10 @@
 ---
-parent: "Autumn"
-title: "Episode 17: Even If a Single Pack Costs Over a Thousand Yen"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
 nav_order: 100
+parent: Autumn
+sequence: 17
+title: 'Episode 17: Even If a Single Pack Costs Over a Thousand Yen'
 ---
 Episode 17: Even If a Single Pack Costs Over a Thousand Yen
 

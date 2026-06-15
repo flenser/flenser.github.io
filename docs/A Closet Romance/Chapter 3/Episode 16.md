@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
-title: "Episode 16: It's Not That Simple, Is It?"
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 20
+parent: 'Chapter Three: The one person I least wanted to find out did. And in the worst possible way'
+sequence: 16
+title: "Episode 16: It's Not That Simple, Is It?"
 ---
 Episode 16: It's Not That Simple, Is It?
 

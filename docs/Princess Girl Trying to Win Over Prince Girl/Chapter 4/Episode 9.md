@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Be Chosen by the Prince"
-title: "Part Nine"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 9
+parent: The Princess Wants to Be Chosen by the Prince
+sequence: 47
+title: Part Nine
 ---
 ## Chapter Four: "The Princess Wants to Be Chosen by the Prince" — Part Nine
 

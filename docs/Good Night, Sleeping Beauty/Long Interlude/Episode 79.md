@@ -1,7 +1,10 @@
 ---
-parent: "Long Interlude"
-title: "Sleeping Beauty, Infiltrates. Part 1"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 6
+parent: Long Interlude
+sequence: 79
+title: Sleeping Beauty, Infiltrates. Part 1
 ---
 Sleeping Beauty, Infiltrates. Part 1
 

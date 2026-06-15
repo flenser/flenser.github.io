@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1: The Plain and Serious Japanese Teacher"
-title: "Episode Nine: The Impertinent Persuasion —November 2032 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 9
+parent: 'Chapter 1: The Plain and Serious Japanese Teacher'
+sequence: 10
+title: 'Episode Nine: The Impertinent Persuasion —November 2032 —'
 ---
 Episode Nine: The Impertinent Persuasion —November 2032—
 

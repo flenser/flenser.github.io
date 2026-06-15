@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and Valentine's Day Memories"
-title: Episode Sixty-Seven
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 2
+parent: "Sleeping Beauty and Valentine's Day Memories"
+sequence: 67
+title: Episode Sixty-Seven
 ---
 Episode Sixty-Seven
 

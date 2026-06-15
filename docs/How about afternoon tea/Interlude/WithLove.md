@@ -1,7 +1,10 @@
 ---
-parent: Interlude
-title: "With Love From London"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 3
+parent: Interlude
+sequence: 53
+title: With Love From London
 ---
 With Love From London
 

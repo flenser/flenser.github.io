@@ -1,6 +1,9 @@
 ---
-parent: "Second year as a working adult, summer"
-title: "Episode 63: Kanata, Yuki-nii has a girlfriend, you know?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Second year as a working adult, summer
+sequence: 66
+title: 'Episode 63: Kanata, Yuki-nii has a girlfriend, you know?'
 ---
 Episode 63: Kanata, Yuki-nii has a girlfriend, you know?
 

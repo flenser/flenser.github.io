@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Four: Yuri Girlfriends Won't Stop"
-title: "Episode 31: Hiyori's Room, For the First Time."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 31
+parent: "Chapter Four: Yuri Girlfriends Won't Stop"
+sequence: 32
+title: "Episode 31: Hiyori's Room, For the First Time."
 ---
 **Episode 31: Hiyori's Room, For the First Time.**
 

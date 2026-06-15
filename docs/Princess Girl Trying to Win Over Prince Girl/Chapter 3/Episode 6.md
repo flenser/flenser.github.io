@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Win the Prince"
-title: "Part Six"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 6
+parent: The Princess Wants to Win the Prince
+sequence: 31
+title: Part Six
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part Six
 

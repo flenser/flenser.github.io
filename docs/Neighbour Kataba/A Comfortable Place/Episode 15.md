@@ -1,7 +1,10 @@
 ---
-parent: "A Comfortable Place"
-title: "Episode 15"
+grand_parent: My Neighbour, Kataba-san
+layout: episode
 nav_order: 15
+parent: A Comfortable Place
+sequence: 15
+title: Episode 15
 ---
 Episode 15
 

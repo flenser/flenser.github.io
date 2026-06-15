@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 2
+sequence: 17
 title: Episode 17
 ---
-
 "—So, what tricks did you use to get close to Lady Alisha?"
 
 Lotte was being pressed by a girl similarly clad in a maid's uniform.\

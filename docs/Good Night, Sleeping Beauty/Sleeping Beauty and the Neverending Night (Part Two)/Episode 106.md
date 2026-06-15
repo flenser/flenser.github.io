@@ -1,7 +1,10 @@
 ---
-parent: "Sleeping Beauty and the Neverending Night (Part Two)"
-title: "Episode One Hundred and Six"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 2
+parent: Sleeping Beauty and the Neverending Night (Part Two)
+sequence: 106
+title: Episode One Hundred and Six
 ---
 Episode One Hundred and Six
 

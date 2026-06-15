@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 65: Two Steps Forward, One Step Back"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 65
+parent: Second-year High School Student
+sequence: 65
+title: 'Episode 65: Two Steps Forward, One Step Back'
 ---
 Episode 65: Two Steps Forward, One Step Back
 

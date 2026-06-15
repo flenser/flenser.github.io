@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 5
+sequence: 38
 title: Episode 38
 ---
-
 Time rewound slightly as the Knights organised an extermination squad.
 Their purpose was to eliminate the monsters confirmed by the reconnaissance team — Alisha was entrusted with command of the squad and took its lead.
 Even before reaching the target monsters, they encountered no shortage of battles against creatures lurking within the forest.

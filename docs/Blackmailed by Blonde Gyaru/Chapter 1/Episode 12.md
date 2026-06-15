@@ -1,7 +1,10 @@
 ---
-parent: "Chapter One: Yuri Friends"
-title: "Episode 12: [Yuri Friends] Every Day? That Kind of Kiss?! Every Day?!"
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 12
+parent: 'Chapter One: Yuri Friends'
+sequence: 13
+title: 'Episode 12: [Yuri Friends] Every Day? That Kind of Kiss?! Every Day?!'
 ---
 **Episode 12: [Yuri Friends] Every Day? That Kind of Kiss?! Every Day?!**
 

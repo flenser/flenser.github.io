@@ -1,5 +1,8 @@
 ---
-parent: "Third year as a working adult, spring"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Third year as a working adult, spring
+sequence: 111
 title: "Episode 104: Because I thought I'd like to take loads of photos of Yui-san"
 ---
 Episode 104: Because I thought I'd like to take loads of photos of Yui-san

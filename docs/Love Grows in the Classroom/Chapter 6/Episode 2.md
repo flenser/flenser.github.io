@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 6: The Twisted Valentine"
-title: "Episode Two: Views on Love — February 2033 —"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 2
+parent: 'Chapter 6: The Twisted Valentine'
+sequence: 57
+title: 'Episode Two: Views on Love — February 2033 —'
 ---
 Episode Two: Views on Love ―February 2033―
 

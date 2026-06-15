@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2: First Love and the Holy Night"
-title: "Digression ①: High School Detective Sasaki's Reasoning and Fantasies"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 14
+parent: 'Chapter 2: First Love and the Holy Night'
+sequence: 25
+title: "Digression ①: High School Detective Sasaki's Reasoning and Fantasies"
 ---
 Digression ①: High School Detective Sasaki's Reasoning and Fantasies
 

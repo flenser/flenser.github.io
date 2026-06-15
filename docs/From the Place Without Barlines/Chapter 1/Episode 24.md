@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 1 - From the Place Without Barlines"
-title: "Episode 24 — I'll Call Your Name"
+grand_parent: From the Place Without Barlines
+layout: episode
 nav_order: 24
+parent: Chapter 1 - From the Place Without Barlines
+sequence: 24
+title: "Episode 24 — I'll Call Your Name"
 ---
 ## Episode 24 — I'll Call Your Name
 

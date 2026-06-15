@@ -1,7 +1,10 @@
 ---
-parent: "Interlude Sleeping Beauty's friend"
-title: "Sleeping Beauty's friend"
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 1
+parent: "Interlude Sleeping Beauty's friend"
+sequence: 48
+title: "Sleeping Beauty's friend"
 ---
 Sleeping Beauty's friend
 

@@ -1,7 +1,10 @@
 ---
-parent: "A Song Spun for You"
-title: "Episode Six"
+grand_parent: The White Witch and the Black Witch — A Twisted Secret Between Them
+layout: episode
 nav_order: 6
+parent: A Song Spun for You
+sequence: 38
+title: Episode Six
 ---
 Episode Six
 

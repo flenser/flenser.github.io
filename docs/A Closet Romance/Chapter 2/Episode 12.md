@@ -1,7 +1,10 @@
 ---
-parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
-title: 'Episode 12: 5th August'
+grand_parent: A Closet Romance
+layout: episode
 nav_order: 60
+parent: 'Chapter Two: My wish, too fleeting to even write upon a tanzaku'
+sequence: 12
+title: 'Episode 12: 5th August'
 ---
 Episode 12: 5th August
 

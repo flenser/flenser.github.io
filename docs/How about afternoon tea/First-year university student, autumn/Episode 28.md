@@ -1,5 +1,8 @@
 ---
-parent: "First-year university student, autumn"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, autumn
+sequence: 28
 title: "Episode 28: That's the thing about her, though — it's rather endearing"
 ---
 Episode 28: That's the thing about her, though — it's rather endearing

@@ -1,9 +1,11 @@
 ---
-parent: 'Chapter Two: Crisps and Cola'
-title: 'Episode 12: Thorns'
+grand_parent: Monofilament Witch
+layout: episode
 nav_order: 70
+parent: 'Chapter Two: Crisps and Cola'
+sequence: 12
+title: 'Episode 12: Thorns'
 ---
-
 The severed, falling strawberry-pink torso.\
 Leaving the lower half behind, the upper body flew away amidst the force of the charge, then plummeted.\
 A crimson trail of blood/skin connecting upper and lower halves. Entangled entrails of steel, piping, and flesh. The spilling blood was lethal —fatal.

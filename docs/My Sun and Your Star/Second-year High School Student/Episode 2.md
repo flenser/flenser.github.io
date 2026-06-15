@@ -1,7 +1,10 @@
 ---
-parent: "Second-year High School Student"
-title: "Episode 2: The Day My Heart Vanished"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 2
+parent: Second-year High School Student
+sequence: 2
+title: 'Episode 2: The Day My Heart Vanished'
 ---
 Episode 2: The Day My Heart Vanished
 

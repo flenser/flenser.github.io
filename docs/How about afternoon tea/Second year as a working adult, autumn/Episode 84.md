@@ -1,7 +1,10 @@
 ---
-parent: "Second year as a working adult, autumn"
-title: "Episode 84: You won't understand unless you actually say it properly"
+grand_parent: How about afternoon tea?
+layout: episode
 nav_order: 130
+parent: Second year as a working adult, autumn
+sequence: 88
+title: "Episode 84: You won't understand unless you actually say it properly"
 ---
 Episode 84: You won't understand unless you actually say it properly
 

@@ -1,5 +1,8 @@
 ---
-parent: "First-year university student, autumn"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, autumn
+sequence: 29
 title: "Episode 29: Kissing Isn't My Only Talent, You Know"
 ---
 Chapter 29: Kissing Isn't My Only Talent, You Know

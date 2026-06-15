@@ -1,6 +1,9 @@
 ---
+grand_parent: A Closet Romance
+layout: episode
 parent: 'Chapter Four: This Was a Love I Had to Give Up On'
-title: "Episode 38: What Nana Wanted Most"
+sequence: 38
+title: 'Episode 38: What Nana Wanted Most'
 ---
 Episode 38: What Nana Wanted Most
 

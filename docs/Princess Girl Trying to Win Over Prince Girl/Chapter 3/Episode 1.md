@@ -1,7 +1,10 @@
 ---
-parent: "The Princess Wants to Win the Prince"
-title: "Part One"
+grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+layout: episode
 nav_order: 1
+parent: The Princess Wants to Win the Prince
+sequence: 26
+title: Part One
 ---
 ## Chapter Three: "The Princess Wants to Win the Prince" — Part One
 

@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 2
+sequence: 13
 title: Episode 13
 ---
-
 Alisha turned to leave the room, leaving Lotte behind.
 
 "W-wait!"

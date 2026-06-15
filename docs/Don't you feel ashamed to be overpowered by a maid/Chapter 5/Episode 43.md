@@ -1,8 +1,10 @@
 ---
+grand_parent: "Don't you feel ashamed to be overpowered by a maid"
+layout: episode
 parent: Chapter 5
+sequence: 43
 title: Episode 43
 ---
-
 Ellenphia took Alisha's place and led the unit —only to suffer defeat at the hands of the monsters.\
 This meant the Kingdom Knights had suffered their second defeat.\
 Worse still, Ellenphia had fled, abandoning her comrades.\

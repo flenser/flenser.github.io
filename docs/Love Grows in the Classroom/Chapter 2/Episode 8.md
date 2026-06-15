@@ -1,7 +1,10 @@
 ---
-parent: "Chapter 2: First Love and the Holy Night"
-title: "Episode Eight: Rio Kakei: Past Story 5 ―March 2025―"
+grand_parent: Love Grows in the Classroom After School
+layout: episode
 nav_order: 8
+parent: 'Chapter 2: First Love and the Holy Night'
+sequence: 19
+title: 'Episode Eight: Rio Kakei: Past Story 5 ―March 2025―'
 ---
 Episode Eight: Rio Kakei: Past Story 5 ―March 2025―
 

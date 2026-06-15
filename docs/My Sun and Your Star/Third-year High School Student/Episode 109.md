@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 109: The Odd Couple"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 109
+parent: Third-year High School Student
+sequence: 109
+title: 'Episode 109: The Odd Couple'
 ---
 Episode 109: The Odd Couple
 

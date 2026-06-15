@@ -1,8 +1,10 @@
 ---
+grand_parent: Monofilament Witch
+layout: episode
 parent: 'Chapter One: Another Day, Another Run'
+sequence: 4
 title: 'Episode 4: The Witch of Pisces'
 ---
-
 Black phosphorescence.\
 Flashes of gunfire.\
 Countless muzzles, connected, communicating, commanded by M-particle magic, grazed the scattered fragments of Viola Purple flesh, Strawberry Pink's cheek protected by M-particles.

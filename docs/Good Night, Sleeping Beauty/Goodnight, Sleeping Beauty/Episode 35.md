@@ -1,7 +1,10 @@
 ---
-parent: "Goodnight, Sleeping Beauty"
-title: Episode Thirty-Five
+grand_parent: Good Night, Sleeping Beauty
+layout: episode
 nav_order: 5
+parent: Goodnight, Sleeping Beauty
+sequence: 35
+title: Episode Thirty-Five
 ---
 Episode Thirty-Five
 

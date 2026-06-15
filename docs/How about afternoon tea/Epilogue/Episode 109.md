@@ -1,6 +1,9 @@
 ---
-parent: "Epilogue"
-title: "Episode 109: Shall We Take a Photo Together?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: Epilogue
+sequence: 116
+title: 'Episode 109: Shall We Take a Photo Together?'
 ---
 Episode 109: Shall We Take a Photo Together?
 

@@ -1,6 +1,9 @@
 ---
+grand_parent: The White Witch and the Black Witch — A Twisted Secret Between Them
+layout: episode
 parent: "Epilogue - The Witches' Future"
 title: "The Witches' Future"
+sequence: 41
 nav_order: 1
 ---
 ## **The Witches' Future**

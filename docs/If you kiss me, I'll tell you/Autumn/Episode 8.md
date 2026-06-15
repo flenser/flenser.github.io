@@ -1,7 +1,10 @@
 ---
-parent: "Autumn"
-title: "Episode 8: Stop talking nonsense, let's grab some ramen and head home"
+grand_parent: "If you kiss me, I'll tell you"
+layout: episode
 nav_order: 10
+parent: Autumn
+sequence: 8
+title: "Episode 8: Stop talking nonsense, let's grab some ramen and head home"
 ---
 Episode 8: Stop talking nonsense, let's grab some ramen and head home
 

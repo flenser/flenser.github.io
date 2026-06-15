@@ -1,6 +1,9 @@
 ---
-parent: "First-year university student, autumn"
-title: "Episode 22: How Do You Lick Your Own Tongue?"
+grand_parent: How about afternoon tea?
+layout: episode
+parent: First-year university student, autumn
+sequence: 22
+title: 'Episode 22: How Do You Lick Your Own Tongue?'
 ---
 Episode 22: How Do You Lick Your Own Tongue?
 

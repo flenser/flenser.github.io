@@ -1,7 +1,10 @@
 ---
-parent: "Chapter Three: Yuri Girlfriends"
-title: "Episode 24: I Held Her Back."
+grand_parent: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+layout: episode
 nav_order: 24
+parent: 'Chapter Three: Yuri Girlfriends'
+sequence: 25
+title: 'Episode 24: I Held Her Back.'
 ---
 **Episode 24: I Held Her Back.**
 

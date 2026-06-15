@@ -1,7 +1,10 @@
 ---
-parent: "Third-year High School Student"
-title: "Episode 115: New Year’s Eve (2)"
+grand_parent: My Sun and Your Star
+layout: episode
 nav_order: 115
+parent: Third-year High School Student
+sequence: 115
+title: 'Episode 115: New Year’s Eve (2)'
 ---
 Episode 115: New Year’s Eve (2)
 
