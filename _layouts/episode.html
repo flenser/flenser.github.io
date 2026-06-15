@@ -1,0 +1,28 @@
+---
+layout: default
+---
+{{ content }}
+
+{% assign all_episodes = site.pages 
+   | where: "grand_parent", page.grand_parent 
+   | sort: "sequence" %}
+
+{% assign next_ep = nil %}
+{% assign found = false %}
+{% for ep in all_episodes %}
+  {% if found %}
+    {% assign next_ep = ep %}
+    {% break %}
+  {% endif %}
+  {% if ep.url == page.url %}
+    {% assign found = true %}
+  {% endif %}
+{% endfor %}
+
+{% if next_ep %}
+<div style="margin-top: 2rem; padding-top: 1rem; border-top: 1px solid #eeebee;">
+  <a href="{{ next_ep.url }}" class="btn btn-primary">
+    {{ next_ep.title }} &rarr;
+  </a>
+</div>
+{% endif %}
