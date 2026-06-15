@@ -8,6 +8,7 @@ nav_order: 0
 ### Stories completed so far
 
 - [A Closet Romance](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/A.Closet.Romance.epub)
+- [A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/A.Yuri.About.Being.Asked.Hey.Aren.t.You.Gonna.Do.Anything.by.an.Older.Colleague.epub)
 - [Don't you feel ashamed to be overpowered by a maid?](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/Don.t.You.Feel.Ashamed.to.be.Overpowered.by.a.Maid.Epub)
 - [From the Place Without Barlines](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/From.the.Place.Without.Barlines.epub)
 - [How about afternoon tea?](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/How.About.Some.Afternoon.Tea.Epub)
