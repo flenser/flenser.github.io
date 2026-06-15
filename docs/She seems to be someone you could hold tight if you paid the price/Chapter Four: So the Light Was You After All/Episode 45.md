@@ -1,8 +1,10 @@
 ---
-parent: "Chapter Four: So the Light Was You After All"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Chapter Four: So the Light Was You After All'
+sequence: 45
 title: Episode 45
 ---
-
 11th January. Friday.\
 I slowly rise from the bed, careful not to wake the adorable girl I adore sleeping beside me.\
 I open the curtains just a crack to check the weather outside.\

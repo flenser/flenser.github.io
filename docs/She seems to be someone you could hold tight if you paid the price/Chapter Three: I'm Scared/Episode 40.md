@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter Three: I'm Scared"
+sequence: 40
 title: Episode 40
 ---
-
 14 January
 
 Today marked the start of the shortest term of the year at every school.

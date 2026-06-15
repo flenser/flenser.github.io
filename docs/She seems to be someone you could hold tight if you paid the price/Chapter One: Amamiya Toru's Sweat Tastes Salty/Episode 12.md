@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter One: Amamiya Toru's Sweat Tastes Salty"
+sequence: 12
 title: Episode 12
 ---
-
 Two stops beyond the station nearest our high school lies a fairly large department store, and four stops further on is a shopping mall.\
 Most students from our school enjoy shopping at the department store or use the surrounding area as their playground. Few venture to the shopping mall simply because it's rather far and takes a bit longer to reach.\
 The stretch between the fifth and sixth stations is particularly long, taking a good fifteen minutes on its own.

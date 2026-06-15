@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter One: Amamiya Toru's Sweat Tastes Salty"
+sequence: 11
 title: Episode 11
 ---
-
 "Mashiro, are you free after school today?"
 
 It was three days after we'd established our arrangement that Amamiya Tōru extended that second invitation.\

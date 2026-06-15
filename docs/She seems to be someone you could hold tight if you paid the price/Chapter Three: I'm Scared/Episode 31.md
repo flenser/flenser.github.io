@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter Three: I'm Scared"
+sequence: 31
 title: Episode 31
 ---
-
 Friday.\
 Woke up feeling better than usual this morning.\
 Getting up before the alarm rang is quite rare.\

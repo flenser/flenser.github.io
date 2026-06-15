@@ -1,9 +1,11 @@
 ---
-parent: "Prologue: Amamiya Toru's Body is Supple"
-title: Episode 4
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 nav_order: 4
+parent: "Prologue: Amamiya Toru's Body is Supple"
+sequence: 4
+title: Episode 4
 ---
-
 "H-hold on. Please, let go for a moment."
 
 After squirming at Amamiya Tōru's utterly outrageous suggestion, I broke free from her embrace and took several steps back to create distance.\

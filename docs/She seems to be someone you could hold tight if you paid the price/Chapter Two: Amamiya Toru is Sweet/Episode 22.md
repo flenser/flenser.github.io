@@ -1,8 +1,10 @@
 ---
-parent: "Chapter Two: Amamiya Toru is Sweet"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Chapter Two: Amamiya Toru is Sweet'
+sequence: 22
 title: Episode 22
 ---
-
 "Enough about that, shall we? A normal kiss is fine, isn't it? You enjoyed that, didn't you, Mashiro?"\
 "Well, yes, I did enjoy it..."\
 "Then that's settled. More importantly, how much can you afford to pay today?"

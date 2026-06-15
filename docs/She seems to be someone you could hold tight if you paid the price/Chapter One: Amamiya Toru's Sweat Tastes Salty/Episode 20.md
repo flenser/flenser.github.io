@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter One: Amamiya Toru's Sweat Tastes Salty"
+sequence: 20
 title: Episode 20
 ---
-
 At the entrance, the heel of a loafer tapped lightly against the door.\
 Amamiya Tōru's hands tightened around my neck.\
 Gently, gradually, the pressure increased.

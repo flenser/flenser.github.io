@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter One: Amamiya Toru's Sweat Tastes Salty"
+sequence: 17
 title: Episode 17
 ---
-
 Mashiro doesn't answer my question.\
 Whether she's thinking up some plausible excuse or not, she remains silent, her gaze fixed on the floor.\
 It's been over a month since I approached her. There's no doubt I still need money. So even if I've been monopolising Mashiro's time after school every single day lately, it's absolutely essential.\

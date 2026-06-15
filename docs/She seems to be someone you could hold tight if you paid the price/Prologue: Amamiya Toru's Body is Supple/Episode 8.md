@@ -1,9 +1,11 @@
 ---
-parent: "Prologue: Amamiya Toru's Body is Supple"
-title: Episode 8
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 nav_order: 8
+parent: "Prologue: Amamiya Toru's Body is Supple"
+sequence: 8
+title: Episode 8
 ---
-
 "Are you satisfied now?"
 
 As instructed, I stroked the head of Amamiya Tōru, who had buried her face in my chest and wrapped her arms around my back to hug me. Gently, gently, I kept stroking until the strength of her embrace weakened.\

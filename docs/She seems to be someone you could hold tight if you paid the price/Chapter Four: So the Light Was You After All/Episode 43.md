@@ -1,8 +1,10 @@
 ---
-parent: "Chapter Four: So the Light Was You After All"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Chapter Four: So the Light Was You After All'
+sequence: 43
 title: Episode 43
 ---
-
 Beyond the door lay darkness.\
 Yet within that dim shadow, we could make out a figure taller than us.\
 That silhouette began approaching us.\

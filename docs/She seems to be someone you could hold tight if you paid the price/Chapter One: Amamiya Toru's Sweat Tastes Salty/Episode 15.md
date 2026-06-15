@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter One: Amamiya Toru's Sweat Tastes Salty"
+sequence: 15
 title: Episode 15
 ---
-
 I overslept. Bloody hell.\
 Being woken up by Amamiya Tōru on the train was absolutely the worst.
 

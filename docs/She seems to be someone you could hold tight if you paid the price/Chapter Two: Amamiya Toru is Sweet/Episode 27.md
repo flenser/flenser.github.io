@@ -1,8 +1,10 @@
 ---
-parent: "Chapter Two: Amamiya Toru is Sweet"
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
+parent: 'Chapter Two: Amamiya Toru is Sweet'
+sequence: 27
 title: Episode 27
 ---
-
 Mashiro, pinned beneath me, desperately clinging on, sticking out her tongue, begging for a kiss.\
 Before I knew it, I was kneading Mashiro's breasts while becoming utterly consumed with violating her mouth.
 

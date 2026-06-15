@@ -1,8 +1,10 @@
 ---
+grand_parent: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+layout: episode
 parent: "Chapter One: Amamiya Toru's Sweat Tastes Salty"
+sequence: 14
 title: Episode 14
 ---
-
 The first time I saw her was after school in my first year, I think. It was in the corridor between classrooms, on my way to fetch my things alone after being confessed to by the third boy? since starting high school and signing a money contract.
 
 A girl walking towards me.\
