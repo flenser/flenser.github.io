@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 17"
+layout: episode-flat
 nav_order: 17
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 17
+title: Episode 17
 ---
-
 Hatano arrived home to find the laptop still open, its screen glowing faintly in the dark room.
 
 She looked at it for a moment, then sat down at the desk without taking her coat off. On the screen, her protagonist — the forward who had been compared to and overlooked for the length of the story — was still there, waiting. She had kept striving without acknowledgement, and now she was going into a match against a stronger school, the one that would decide everything.

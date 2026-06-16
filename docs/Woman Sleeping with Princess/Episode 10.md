@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 10"
+layout: episode-flat
 nav_order: 10
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 10
+title: Episode 10
 ---
-
 She was taken to an authentic bar in the city — the kind of place appointed with antique pieces that looked as though they cost a great deal, and very probably had.
 
 Low light. Jazz moving through it like something unhurried. Behind the counter, a wall of bottles, each one worth stopping to look at. The barman — elderly, and carrying the ease of someone who had been doing this for a very long time — was polishing a glass in the back. Around the room, customers in quietly expensive clothing sat over their drinks.

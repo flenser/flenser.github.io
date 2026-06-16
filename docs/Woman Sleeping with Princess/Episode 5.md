@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 5"
+layout: episode-flat
 nav_order: 5
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 5
+title: Episode 5
 ---
-
 "Same bare little room as ever."\
 "The exit is that way."
 

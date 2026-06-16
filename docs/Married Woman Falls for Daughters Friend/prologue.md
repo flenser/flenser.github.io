@@ -1,7 +1,9 @@
 ---
-parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-title: "Love Spelled Out in Woman"
+layout: episode-flat
 nav_order: 0
+parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+sequence: 1
+title: Love Spelled Out in Woman
 ---
 ## *"Love Spelled Out in Woman"*
 

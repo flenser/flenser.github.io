@@ -1,7 +1,9 @@
 ---
-parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-title: 'Chapter One: "The Clod of Earth Awaits the Snow" — Part Thirteen'
+layout: episode-flat
 nav_order: 13
+parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+sequence: 14
+title: 'Chapter One: "The Clod of Earth Awaits the Snow" — Part Thirteen'
 ---
 ## Chapter One: *"The Clod of Earth Awaits the Snow"* — Part Thirteen
 

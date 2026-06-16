@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 8"
+layout: episode-flat
 nav_order: 8
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 8
+title: Episode 8
 ---
-
 By the time they reached the aquarium it was nearly seven o'clock.
 
 The penguin show wasn't for another hour, so they moved slowly through an aquarium that was beginning to thin of visitors, taking their time. Tropical fish, deep-sea creatures, crustaceans, cephalopods, the whole impossible variety of water-dwelling life, moving through its dim and luminous world. Both of them found the situation faintly surreal, it was not, by any measure, the kind of place they could have pictured themselves going together until very recently, and both of them enjoyed it in spite of that. Hatano had assumed she'd be there primarily for Shinomiya's sake, and then found herself genuinely absorbed by the strange and extravagant creatures on the other side of the glass.

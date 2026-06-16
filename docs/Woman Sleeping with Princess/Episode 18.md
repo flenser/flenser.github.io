@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 18"
+layout: episode-flat
 nav_order: 18
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 18
+title: Episode 18
 ---
-
 She no longer said *I'm home* to anyone.
 
 Shinomiya followed the familiar route back and let herself in, locking the door behind her with one hand while the other found the switch on the wall. Warm orange light came on in the entrance, and from there pushed faintly into the living room and bedroom — making the rest of the flat feel darker for it, somehow. She stood in the hallway for a moment, not quite ready to move, as her tangled thoughts blocked each other and no path through them opened. A little over a minute of that, and she drifted out of her shoes and in.

@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 15"
+layout: episode-flat
 nav_order: 15
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 15
+title: Episode 15
 ---
-
 "By the way, senpai — what about dinner? It's getting quite late."
 
 She glanced at the clock, and Hatano, who had come back upstairs for a coffee after walking Shinomiya home, looked too. Between the lantern painting and the commission piece, they hadn't left the workshop until well past nightfall; it was already nine o'clock. A little late even for dinner.

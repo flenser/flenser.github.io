@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 4"
+layout: episode-flat
 nav_order: 4
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 4
+title: Episode 4
 ---
-
 Anyone who creates something from nothing should expose themselves to as much creative work as they can.
 
 Creation is, in its way, the study of gait — learning how to walk by tracing the footsteps of those who walked brilliantly before you. Bernard of Chartres held that we see farther because we stand on the shoulders of giants — the great minds of history, of antiquity. By extension, almost everything made in the modern world stands on accumulated inheritance.

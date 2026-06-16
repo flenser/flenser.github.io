@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 12"
+layout: episode-flat
 nav_order: 12
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 12
+title: Episode 12
 ---
-
 By the time Hatano had walked Shinomiya home, the night had grown late.
 
 She stood outside the door of the apartment Shinomiya rented, looking at it quietly, exhaling into the lit corridor. She had brought Shinomiya back to her own flat a number of times now, but coming to Shinomiya's place was something new. She was taking in that novelty, watching Shinomiya unlock the door with hands that were faintly unsteady, when Shinomiya turned at the last moment and looked at her with eyes that held a particular kind of tension.

@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 14"
+layout: episode-flat
 nav_order: 14
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 14
+title: Episode 14
 ---
-
 Where Hatano led Shinomiya was a small craft workshop in the city.
 
 Set just off a main road on a quieter side street, the place had whitewashed walls and a glass shopfront displaying an assortment of finished pieces. The kind of window display that makes you stop without meaning to. Shinomiya looked at the craft workshop sign and spoke with some uncertainty.

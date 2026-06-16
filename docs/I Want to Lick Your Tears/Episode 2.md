@@ -1,7 +1,9 @@
 ---
-parent: "I Want to Lick Your Tears. I Want You to Glare at Me"
-title: "Episode 2: With Feelings Beyond Description, Beyond Redemption — I Want You to Glare at Me"
+layout: episode-flat
 nav_order: 2
+parent: I Want to Lick Your Tears. I Want You to Glare at Me
+sequence: 2
+title: 'Episode 2: With Feelings Beyond Description, Beyond Redemption — I Want You to Glare at Me'
 ---
 ## Episode 2: With Feelings Beyond Description, Beyond Redemption — I Want You to Glare at Me
 

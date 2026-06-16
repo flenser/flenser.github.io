@@ -1,7 +1,9 @@
 ---
-parent: "I Want to Lick Your Tears. I Want You to Glare at Me"
-title: "Episode 3: Working Up a Sweat. Imagining What You're Feeling."
+layout: episode-flat
 nav_order: 3
+parent: I Want to Lick Your Tears. I Want You to Glare at Me
+sequence: 3
+title: "Episode 3: Working Up a Sweat. Imagining What You're Feeling."
 ---
 ## Episode 3: Working Up a Sweat. Imagining What You're Feeling
 

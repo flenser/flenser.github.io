@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 19"
+layout: episode-flat
 nav_order: 19
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 19
+title: Episode 19
 ---
-
 A year passed, and it brought many changes.
 
 Hatano, for instance, lost the word *aspiring* from her description. Shijima won a prize bearing a great writer's name. And Rōkai, the watercolourist, became someone whose name even people with no interest in art had begun to hear.
