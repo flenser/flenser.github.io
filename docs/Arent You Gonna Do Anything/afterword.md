@@ -1,7 +1,9 @@
 ---
-parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
-title: "Afterword - Older Colleague Yuri"
+layout: episode-flat
 nav_order: 9
+parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
+sequence: 10
+title: Afterword - Older Colleague Yuri
 ---
 **Afterword**
 

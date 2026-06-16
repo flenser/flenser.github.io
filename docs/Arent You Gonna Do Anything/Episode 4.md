@@ -1,7 +1,9 @@
 ---
-parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
-title: "Episode 4: Mio-chan — Have You Ever Done It?"
+layout: episode-flat
 nav_order: 4
+parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
+sequence: 5
+title: 'Episode 4: Mio-chan — Have You Ever Done It?'
 ---
 **Episode 4: Mio-chan — Have You Ever Done It?**
 

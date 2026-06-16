@@ -1,7 +1,9 @@
 ---
-parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
-title: "Episode 6: Mio-chan — Can I?"
+layout: episode-flat
 nav_order: 6
+parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
+sequence: 7
+title: 'Episode 6: Mio-chan — Can I?'
 ---
 **Episode 6: Mio-chan — Can I?**
 

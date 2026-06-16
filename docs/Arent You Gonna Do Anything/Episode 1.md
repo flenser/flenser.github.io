@@ -1,7 +1,9 @@
 ---
-parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
-title: "Episode 1: And It Was the First Time Anyone Had Ever Invited Me."
+layout: episode-flat
 nav_order: 1
+parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
+sequence: 2
+title: 'Episode 1: And It Was the First Time Anyone Had Ever Invited Me.'
 ---
 **Episode 1: And It Was the First Time Anyone Had Ever Invited Me.**
 

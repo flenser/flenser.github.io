@@ -1,7 +1,9 @@
 ---
-parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
-title: "Episode 3: No Last Train — Wanna Stay at Mine?"
+layout: episode-flat
 nav_order: 3
+parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
+sequence: 4
+title: 'Episode 3: No Last Train — Wanna Stay at Mine?'
 ---
 **Episode 3: No Last Train — Wanna Stay at Mine?**
 
