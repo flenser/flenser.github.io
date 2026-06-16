@@ -6,16 +6,16 @@ nav_order: 9
 **Afterword**
 
 \
-Hello for the first time, or good evening, or it's been a while.
+Hello for the first time, or good evening, or it's been a while.\
 I'm the author, Shikimoto Hono.
 
-Thank you so much for reading *A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague.*
+Thank you so much for reading *A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague.*\
 (It's a mouthful, so I've been calling it *Older Colleague Yuri* to myself.)
 
-…I mean, this afterword is going up the day after the novel finished, so there's that.
+…I mean, this afterword is going up the day after the novel finished, so there's that.\
 I wasn't even sure I needed one — but I received such an incredible amount of warmth from readers over this past week, and I'm still riding the wave of it, so I wanted to leave something here.
 
-…The timing's a little late, isn't it?
+…The timing's a little late, isn't it?\
 I know. I know. I should have written it yesterday.
 
 Anyway — read on if you'd like.
@@ -24,18 +24,18 @@ Anyway — read on if you'd like.
 
 I started writing this one right after finishing and scheduling my first work (*Childhood Friends Yuri*), so it took me about two weeks to write, and just over a week to finish posting. A short piece, in the end.
 
-Running daily updates from my first Kakuyomu post through to this one, I've kept it up for about two months total.
+Running daily updates from my first Kakuyomu post through to this one, I've kept it up for about two months total.\
 Exhausted… Even though I had nine episodes written in advance, I finished the epilogue on the train to work the morning it was due to go up. That was cutting it extremely close.
 
-The reason I wrote this one was that when I finished my first work, I felt like it wasn't good enough yet.
+The reason I wrote this one was that when I finished my first work, I felt like it wasn't good enough yet.\
 I wanted to write something short to build up my craft — and this, *Older Colleague Yuri*, was the first attempt at that.
 
 My goals for this one were:
 
-- Get daily readership (my first work spent a long stretch hovering around zero to one views per day — though I'm genuinely grateful to everyone who did read it)
+- Get daily readership (my first work spent a long stretch hovering around zero to one views per day — though I'm genuinely grateful to everyone who did read it)\
 - Aim for the top 100 in the weekly romance rankings (my first work just barely grazed the 200s)
 
-As it turned out, I did get daily readers — and this morning (the day of this afterword), I got a notification that *Older Colleague Yuri* had hit 99th place in the weekly romance category.
+As it turned out, I did get daily readers — and this morning (the day of this afterword), I got a notification that *Older Colleague Yuri* had hit 99th place in the weekly romance category.\
 Honestly, for a complete beginner throwing scraps into the wind, that's more than I could have asked for. It's entirely down to your support. Thank you, truly.
 
 Oh — I had one more goal I forgot to mention.
@@ -80,9 +80,9 @@ It's very much a passion project — those two characters were born during a gam
 
 If you have any thoughts, feedback, or corrections — even typos or phrasing — I'd love to hear them in the comments. All of it helps me with future work. Reader comments are basically my primary food source.
 
-And if you'd like to follow the author, I'd be very grateful — more is on the way.
+And if you'd like to follow the author, I'd be very grateful — more is on the way.\
 I'll celebrate with full enthusiasm for every bit of support.
 
-Thank you so much for reading all the way to the end of this rambling mess.
-I hope to see you again with another story.
+Thank you so much for reading all the way to the end of this rambling mess.\
+I hope to see you again with another story.\
 Until next time!
