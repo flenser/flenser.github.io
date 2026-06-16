@@ -4,7 +4,7 @@ layout: episode
 nav_order: 11
 parent: "Chapter 2 - Big Sis's Reactions Are the Cutest"
 sequence: 11
-title: 'Episode 11: Big Sis's Reactions Are the Cutest ※'
+title: "Episode 11: Big Sis's Reactions Are the Cutest ※"
 ---
 **Episode 11: Big Sis's Reactions Are the Cutest ※**
 
