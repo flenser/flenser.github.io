@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 6"
+layout: episode-flat
 nav_order: 6
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 6
+title: Episode 6
 ---
-
 As the light failed, Hatano sat in a darkening room, pressing keys on a keyboard so worn the lettering had long since disappeared.
 
 Having Shinomiya stay the night already felt like it belonged to another stretch of time. A week had passed since then, and she had barely seen her — barely at all. Some small part of her had found itself thinking about her occasionally; another part of her had found, with equal honesty, that she had no particular reason to do anything about it.

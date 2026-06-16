@@ -1,7 +1,9 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Epilogue: Part Two"
+layout: episode-flat
 nav_order: 21
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 21
+title: 'Epilogue: Part Two'
 ---
 ## Epilogue: Part Two
 

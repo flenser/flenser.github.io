@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 9"
+layout: episode-flat
 nav_order: 9
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 9
+title: Episode 9
 ---
-
 The penguin show ended, and they left the aquarium a little after nine.
 
 Outside, the city was fully dark. Despite the hour, the foot traffic was light — office workers making their way home, occasional clusters of them — and the two of them moved through it without hurry toward the station. A silence settled between them that neither found uncomfortable, and Hatano let the cool late-autumn night air move against her as they walked.

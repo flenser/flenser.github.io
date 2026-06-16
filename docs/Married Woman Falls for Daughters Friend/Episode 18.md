@@ -1,7 +1,9 @@
 ---
-parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-title: 'Chapter Two: "The Snow Finds the Clod of Earth" — Part Four'
+layout: episode-flat
 nav_order: 18
+parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+sequence: 19
+title: 'Chapter Two: "The Snow Finds the Clod of Earth" — Part Four'
 ---
 ## Chapter Two: *"The Snow Finds the Clod of Earth"* — Part Four
 

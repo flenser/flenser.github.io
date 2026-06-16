@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 11"
+layout: episode-flat
 nav_order: 11
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 11
+title: Episode 11
 ---
-
 The day had gone and the room was dark. Turning on the lights felt like more effort than it was worth.
 
 Hatano sat with her chin in her hand, looking at the laptop screen.

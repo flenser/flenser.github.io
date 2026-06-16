@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 16"
+layout: episode-flat
 nav_order: 16
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 16
+title: Episode 16
 ---
-
 She sat on the sofa with her knees to her chest and looked at the grilled fish and rice on the table. Both were wrapped in cling film and had gone quite cold, and she should probably reheat them if she was going to eat. But she didn't feel hungry, and couldn't. She had eaten nothing since before she and Hatano parted — it was now evening of the following day, three meals missed in a row — and whether the nausea and headache and dizziness were from hunger, dehydration, poor sleep, or something less physical, she could no longer tell.
 
 The only sound in the flat was the faint hum of the heater. Shinomiya looked at the lantern sitting beside her on the sofa.

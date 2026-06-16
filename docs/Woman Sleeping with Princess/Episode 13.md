@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 13"
+layout: episode-flat
 nav_order: 13
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 13
+title: Episode 13
 ---
-
 Shinomiya, it turned out, was a toast person.
 
 She emerged bleary-eyed, ran two slices through the toaster for each of them, laid them out on plates, set out the jam and margarine in their little packets beside them, and that was how a holiday morning without lectures began. By the time they had finished eating and drunk enough hot coffee to become functional, both of them had more or less woken up, and the question of what came next presented itself.

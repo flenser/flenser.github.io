@@ -1,7 +1,9 @@
 ---
-parent: "I Want to Lick Your Tears. I Want You to Glare at Me"
-title: "Episode 1: Harbouring Desire. Hoping, If I'm Lucky, That You Will Too"
+layout: episode-flat
 nav_order: 1
+parent: I Want to Lick Your Tears. I Want You to Glare at Me
+sequence: 1
+title: "Episode 1: Harbouring Desire. Hoping, If I'm Lucky, That You Will Too"
 ---
 ## Episode 1: Harbouring Desire. Hoping, If I'm Lucky, That You Will Too
 

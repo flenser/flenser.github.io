@@ -1,7 +1,9 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 2"
+layout: episode-flat
 nav_order: 2
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 2
+title: Episode 2
 ---
 ![waking](/assets/images/woman-sleeping-with-princess-waking.jpg)
 

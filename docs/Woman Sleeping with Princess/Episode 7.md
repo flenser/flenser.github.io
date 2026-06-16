@@ -1,9 +1,10 @@
 ---
-parent: "The Story of the Woman Who Ended Up Sleeping with the Club Princess"
-title: "Episode 7"
+layout: episode-flat
 nav_order: 7
+parent: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+sequence: 7
+title: Episode 7
 ---
-
 She sat with her back against the chair, hands still, staring at the screen.
 
 The cursor blinked at the end of the text with no particular purpose, and she let it blink. She was somewhere else entirely, thinking, or trying to, about Shinomiya. What Shindo had told her last night had settled into her like a burr and wouldn't come loose. She drank cold water and her thoughts cleared briefly, which was different from being free of the problem. If anything, it came back sharper, a fog that no amount of clearing seemed to dispel.
