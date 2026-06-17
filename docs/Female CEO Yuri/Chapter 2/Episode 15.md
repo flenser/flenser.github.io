@@ -4,7 +4,7 @@ layout: episode
 nav_order: 15
 parent: "Chapter 2 - Big Sis's Reactions Are the Cutest"
 sequence: 15
-title: 'Episode 15: I'm Going to Stop Wanting to Be Alone'
+title: "Episode 15: I'm Going to Stop Wanting to Be Alone"
 ---
 **Episode 15: I'm Going to Stop Wanting to Be Alone**
 

@@ -4,7 +4,7 @@ layout: episode
 nav_order: 16
 parent: "Chapter 2 - Big Sis's Reactions Are the Cutest"
 sequence: 16
-title: 'Episode 16: But It Felt Good, Didn't It? ※'
+title: "Episode 16: But It Felt Good, Didn't It? ※"
 ---
 **Episode 16: But It Felt Good, Didn't It? ※**
 
