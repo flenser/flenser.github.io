@@ -98,21 +98,3 @@ I don't know if she's still stuck on that, but Yuna might be more innocent than 
 Thinking that made me want to see an even cuter reaction. I'm the only one who knows this side of Yuna that nobody else gets to see. Realising that made something in my chest lift in a strange way.
 
 What should I try next. What would it take to see an even more special expression from her. Carrying a curiosity about my stepsister that didn't look like it would settle down anytime soon, I headed toward Rikka's seat.
-
----
-
-## Translator's Notes
-
-**Structural significance:** This is the first interlude (幕間) and the first time we've been inside Ao's head. It retroactively answers several open questions from the reader's side: Ao does know, she's known since Episode Nine at the latest (possibly since the room-tour night), and she has made a conscious decision to keep gently testing rather than confronting it directly or pulling away.
-
-**「色恋沙汰にそれほど興味がないわたしでも、これくらいはわかる」:** "Even someone like me, who isn't all that interested in romance, can recognise this much." This is a quietly important piece of self-characterisation — Ao positions herself as someone relatively detached from romantic matters generally, which recontextualises her own growing curiosity about Yuna as something unusual for her, not business as usual.
-
-**「一瞬理性が飛びかけた気がしたから」:** "For a second I felt my own composure slip too." The kitchen-floor moment, confirmed from her side. She felt something. She's not narrating it as nothing, even though she tells herself it shouldn't have meant anything.
-
-**Rikka and Kazuha's crush-adjacent affection for Yuna:** A new wrinkle — two of Ao's friends both find Yuna endearing in a way that reads as low-grade crush territory, and Ao notices her own discomfort at this immediately, without examining why. She doesn't name the feeling. The reader can.
-
-**「侑那は完璧だけど完璧じゃない」:** "Yuna is perfect, but she isn't, really." Ao's irritation at people calling Yuna "perfect" without seeing the effort behind it suggests she's been paying much closer attention than her classmates — close enough to see the architecture behind the performance, which only Yuna herself has openly named so far (the "made-up version of me" line from Episode Eleven).
-
-**Closing image:** Ao, fully aware now that she's the only one who gets to see this version of Yuna, feeling something lift in her chest at the thought, and already planning what to try next. This isn't malice and it isn't obliviousness. It reads as the early stage of genuine interest, dressed up as curiosity, that Ao herself hasn't named yet either.
-
-**On the related-works sidebar:** Worth flagging — a same-author-adjacent title in the sidebar, 「血のつながりがないことが発覚したら完璧な妹がヤンデレ化した百合」, looks like a tonally different (yandere-coded) stepsister premise. Probably not what you're after given the gentler register you've been enjoying here, but flagging since it shares thematic DNA. The bigger interest is probably that this episode confirms 30 more episodes are scheduled, daily at 18:00 — so we're a third of the way through the currently-announced run.
