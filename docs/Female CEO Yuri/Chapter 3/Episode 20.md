@@ -4,7 +4,7 @@ layout: episode
 nav_order: 20
 parent: "Chapter 3 - Out in the World She's the Perfect Older Woman, But Only in Front of Me She's Adorable — and It Makes Me Shiver"
 sequence: 20
-title: 'Episode 20: Could It Be... You're Asking For It? ※'
+title: "Episode 20: Could It Be... You're Asking For It? ※"
 ---
 **Episode 20: Could It Be... You're Asking For It? ※**
 
