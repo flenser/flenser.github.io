@@ -120,17 +120,3 @@ So then, what does Ao want to do. I can barely manage to fool myself — there's
 I let out a long sigh on the familiar walk home.
 
 They say sighing drives happiness away, but ever since I got a stepsister, I feel like I've been doing it every single day. Whether I'm happy right now, or not — I'd lost even the ability to tell.
-
----
-
-## Translator's Notes
-
-**Wordplay opener:** 「義姉」(stepsister, read as gishi) and 「義妹」(stepsister-younger, read as gimai) versus plain 「姉」/「妹」 — Yuna is turning over the linguistic fact that adding the character 義 changes both the reading and, notionally, the relationship's social weight. Rendered as "stepsister-in-law and sister-in-law" doesn't perfectly map, but captures the idea that an added qualifier might or might not loosen an otherwise rigid taboo. This kind of wordplay is very hard to carry across languages cleanly; flagging the loss here explicitly.
-
-**Rin and Runa's intervention:** The most caretaking we've seen from the side characters yet — physically walking Yuna out of the building, sending a follow-up text. Rin's text in particular drops the teasing register completely: 「言いづらかったら、わたしにだけでもよいものとする」, offered with real sincerity. The corporate-formal phrasing ("shall be deemed acceptable") she defaults to even while being kind is a nice character beat — she can't quite drop the businesslike tone even in tenderness.
-
-**Saki's ramune:** A perfect small gift — humble, specific, slightly anxious in its giving. The skirt-tug to get Yuna's attention rather than calling out is shy and endearing, consistent with her mascot-like characterisation throughout.
-
-**The photo habit:** Yuna's quiet admission that checking Ao's selfie has become a daily ritual, and her own diagnosis of what that means — "already past saving" — is one of the more devastating self-assessments she's made. The phrase 「こんなご褒美欲しくなかった」, "I didn't want this kind of reward," captures something true about unwanted longing: even the good parts hurt because of what they can't lead to.
-
-**Closing image:** The idiom about sighing driving away happiness, turned into a genuine question Yuna can no longer answer for herself. The episode doesn't resolve anything; it sits in the discomfort of not knowing, which feels like an accurate place for the chapter to pause heading into Golden Week and midterms.
