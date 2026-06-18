@@ -28,5 +28,5 @@ A workplace yuri about a self-doubting pushover and a slightly sloppy older devi
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: [しきもと ホノ] (Shikimoto Hono).
 
-[kakuyomu]: https://kakuyomu.jp/works/16818792436557006849\
+[kakuyomu]: https://kakuyomu.jp/works/16818792436557006849
 [しきもと ホノ]: https://kakuyomu.jp/users/4kimo10hono
