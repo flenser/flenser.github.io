@@ -75,8 +75,8 @@ I shut off my monitor and slumped back in my chair for a stretch.\
 
 "Hey, Kishimoto-san. Wanna go for drinks?"
 
-Riwa-san popped up from the seat beside me with that on her face.\
-The smile was like she wasn't thinking about anything at all — and probably, like always, understood everything perfectly.
+Riwa-san leaned over from the seat beside me with a beaming smile on her face.\
+The smile was like she wasn't thinking about anything at all — but probably, like always, understood everything perfectly.
 
 "Eh — oh, no, I'm kind of — "\
 "Come on, just this once? Looks like everyone else is going too."
