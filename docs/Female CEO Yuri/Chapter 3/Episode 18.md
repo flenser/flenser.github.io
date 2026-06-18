@@ -4,7 +4,7 @@ layout: episode
 nav_order: 18
 parent: "Chapter 3 - Out in the World She's the Perfect Older Woman, But Only in Front of Me She's Adorable — and It Makes Me Shiver"
 sequence: 18
-title: 'Episode 18: An Afternoon I Can't Concentrate In'
+title: "Episode 18: An Afternoon I Can't Concentrate In"
 ---
 **Episode 18: An Afternoon I Can't Concentrate In**
 

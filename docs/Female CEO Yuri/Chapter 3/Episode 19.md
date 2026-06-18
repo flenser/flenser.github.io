@@ -4,7 +4,7 @@ layout: episode
 nav_order: 19
 parent: "Chapter 3 - Out in the World She's the Perfect Older Woman, But Only in Front of Me She's Adorable — and It Makes Me Shiver"
 sequence: 19
-title: 'Episode 19: Out in the World She's the Perfect Older Woman, But Only in Front of Me She's Adorable — and It Makes Me Shiver ※'
+title: "Episode 19: Out in the World She's the Perfect Older Woman, But Only in Front of Me She's Adorable — and It Makes Me Shiver ※"
 ---
 **Episode 19: Out in the World She's the Perfect Older Woman, But Only in Front of Me She's Adorable — and It Makes Me Shiver ※**
 
