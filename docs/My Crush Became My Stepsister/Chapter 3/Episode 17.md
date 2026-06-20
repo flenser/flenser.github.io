@@ -2,7 +2,7 @@
 grand_parent: My Crush Became My Stepsister
 layout: episode
 nav_order: 17
-parent: The Shape of Happiness
+parent: "Sisters' Body Heat"
 sequence: 17
 title: Episode Seventeen
 ---
