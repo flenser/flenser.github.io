@@ -1,7 +1,7 @@
 ---
 layout: episode-flat
 nav_order: 7
-parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
+parent: 'A Yuri About Being Asked "Hey, Aren''t You Gonna Do Anything?" by an Older Colleague'
 sequence: 8
 title: 'Episode 7: One Step at a Time, Nice and Slow.'
 ---

@@ -1,6 +1,7 @@
 ---
 title: My Sun and Your Star
 has_children: true
+tags: ["slow burn", "secret relationship", "honor student", "high school", "enemies to lovers", "co-dependence", "parental neglect", "high pressure", "time jump", "angst", "su1cidal behaviour", "complete"]
 ---
 ## Original Title
 
@@ -20,6 +21,14 @@ The sweet yet bittersweet romance between the prettiest girl in the year and the
 Watch as the girl who wanted to die and the girl living with her own burdens become entangled, their feelings gradually shifting.
 
 *Trigger warning: This story contains themes of suicide.
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![My Sun and Your Star](/assets/images/sun-star-cover.jpg)
 

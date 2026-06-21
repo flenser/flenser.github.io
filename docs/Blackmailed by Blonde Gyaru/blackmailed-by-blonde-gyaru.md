@@ -1,6 +1,7 @@
 ---
 title: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
 has_children: true
+tags: ["high energy", "spicy", "secret relationship", "enemies to lovers", "seduction", "high school", "honor student", "crumbling facade", "complete"]
 ---
 ## Original Title
 
@@ -25,6 +26,14 @@ To protect her reputation, Maya finds herself wearing Hiyori's perfume, shut awa
 ◇◆◇◆◇
 
 A high school yuri about a strait-laced, secretly pent-up discipline committee chair and a white-haired gyaru.
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![Blackmailed by Blonde Gyaru](/assets/images/blackmailed-by-blonde-gyaru.jpg)
 

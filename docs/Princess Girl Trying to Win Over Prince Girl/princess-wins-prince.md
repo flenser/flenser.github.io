@@ -1,6 +1,7 @@
 ---
 title: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
 has_children: true
+tags: ["high energy", "high school", "fluffy", "seduction", "comedy", "ongoing"]
 ---
 ## Original Title
 
@@ -22,6 +23,14 @@ What starts as a conquest plan rapidly becomes uncontrollable infatuation on Him
 "You're funny, Himena-chan."
 
 A high-energy yuri rom-com featuring a pushy, princess-like younger girl and an older, prince-like girl!
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl](/assets/images/princess-wins-prince.jpg)
 

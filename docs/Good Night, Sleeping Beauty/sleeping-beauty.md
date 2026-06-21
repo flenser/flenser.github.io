@@ -1,6 +1,7 @@
 ---
 title: Good Night, Sleeping Beauty
 has_children: true
+tags: ["slow burn", "adult life", "high school", "age gap", "co-dependence", "seduction", "parental neglect", "artists", "time jump", "angst", "ongoing"]
 ---
 ## Original Title
 
@@ -17,6 +18,14 @@ To the bewildered Shigure, she says:
 ──And so it begins.
 
 This is a yuri story where a socially awkward adult who's easily persuaded and a pushy, little devil-like high school girl with insomnia sleep together.
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![Good Night, Sleeping Beauty](/assets/images/sleeping-beauty.png)
 

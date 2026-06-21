@@ -1,7 +1,7 @@
 ---
 layout: episode-flat
 nav_order: 0
-parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
+parent: 'A Yuri About Being Asked "Hey, Aren''t You Gonna Do Anything?" by an Older Colleague'
 sequence: 1
 title: "Prologue: Hey, You're Not Gonna Do Anything? And We're Even Sharing a Bed."
 ---

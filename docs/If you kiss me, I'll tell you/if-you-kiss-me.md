@@ -1,6 +1,7 @@
 ---
 title: If you kiss me, I'll tell you
 has_children: true
+tags: ["secret relationship", "adult life", "straight to gay", "enemies to lovers", "spicy", "fluffy", "complete"]
 ---
 ## Original Title
 
@@ -18,6 +19,14 @@ Meanwhile, she herself seems utterly unconcerned about having had a physical rel
 
 ※ This is a workplace couple/friends with benefits/yuri story!!!!\
 You'll probably enjoy it more if you read the main Afternoon Tea story first!
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![novel cover](/assets/images/if-you-kiss-me.png)
 

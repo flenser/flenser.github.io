@@ -1,6 +1,7 @@
 ---
 title: From the Place Without Barlines
 has_children: true
+tags: ["slow burn", "high school", "parental neglect", "artists", "co-dependence", "high pressure", "angst", "complete"]
 ---
 ## Original Title
 
@@ -12,6 +13,14 @@ has_children: true
 
 \
 A co-dependent, emotionally charged story of a girl who writes fiction × a girl who's a piano prodigy.
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![From the Place Without Barlines](/assets/images/place-without-barlines.jpeg)
 
