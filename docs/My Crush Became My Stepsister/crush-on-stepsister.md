@@ -1,6 +1,7 @@
 ---
 title: My Crush Became My Stepsister
 has_children: true
+tags: ["slow burn", "secret relationship", "siblings", "high school", "taboo", "angst", "ongoing"]
 ---
 ## Original Title
 
@@ -21,6 +22,14 @@ The person I love is close enough to touch. But she's not my "classmate" anymore
 There's no way I can tell her how I've felt all this time. I'll just have to live the rest of my life keeping these feelings hidden.
 
 Sisters and lovers. Two relationships that should never intersect. Caught between them, where will the two of us end up?
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![My Crush Became My Stepsister](/assets/images/my-crush-became-my-stepsister.jpg)
 

@@ -1,7 +1,7 @@
 ---
 layout: episode-flat
 nav_order: 5
-parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
+parent: 'A Yuri About Being Asked "Hey, Aren''t You Gonna Do Anything?" by an Older Colleague'
 sequence: 6
 title: "Episode 5: If You Don't Like It, You Can Push Me Off."
 ---

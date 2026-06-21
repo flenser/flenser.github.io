@@ -1,7 +1,7 @@
 ---
 layout: episode-flat
 nav_order: 8
-parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
+parent: 'A Yuri About Being Asked "Hey, Aren''t You Gonna Do Anything?" by an Older Colleague'
 sequence: 9
 title: "Epilogue: Until the Day You Die, Don't You Forget That I Was First."
 ---

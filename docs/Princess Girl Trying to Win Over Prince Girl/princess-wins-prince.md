@@ -1,6 +1,7 @@
 ---
 title: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
 has_children: true
+tags: ["high energy", "high school", "fluffy", "seduction", "comedy", "published as light novel", "ongoing"]
 ---
 ## Original Title
 
@@ -23,10 +24,20 @@ What starts as a conquest plan rapidly becomes uncontrollable infatuation on Him
 
 A high-energy yuri rom-com featuring a pushy, princess-like younger girl and an older, prince-like girl!
 
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
+
 ![The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl](/assets/images/princess-wins-prince.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [八星　こはく]
+Author: [八星　こはく]\
+If you like the story, please support the author by buying their [book].
 
+[book]: https://kakuyomu.jp/publication/entry/9784049169713
 [kakuyomu]: https://kakuyomu.jp/works/822139839210498407
 [八星　こはく]: https://kakuyomu.jp/users/kohaku__08
