@@ -1,7 +1,7 @@
 ---
 title: Love Grows in the Classroom After School
 has_children: true
-tags: ["secret relationship", "high school", "teacher", "age gap", "taboo", "seduction", "slow burn", "time jump", "complete"]
+tags: ["secret relationship", "high school", "teacher", "age gap", "taboo", "seduction", "slow burn", "time jump", "published as light novel", "complete"]
 ---
 ## Original Title
 
@@ -38,7 +38,9 @@ After school in the classroom, once again today, I am being cornered by her.
 ![Love Grows in the Classroom After School](/assets/images/love-grows-in-the-classroom.png)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [日日綴郎]
+Author: [日日綴郎]\
+If you like the story, please support the author by buying their [book].
 
+[book]: https://www.amazon.co.jp/-/en/放課後の教室に、恋はつもる%E3%80%82-ファンタジア文庫-日日-綴郎/dp/4040754948/ref=sr_1_1?crid=GPOFGAMG3L9&dib=eyJ2IjoiMSJ9.Ci-7ludFmlwlsfllM13WeA.eH2Ps2kR1wjZKnnlwICZe1tE1Pf1i3Rcs8mt8i2Nb5U&dib_tag=se&keywords=放課後の教室に、恋はつもる&qid=1782037661&s=books&sprefix=放課後の教室に+恋はつもる%2Cstripbooks%2C623&sr=1-1
 [kakuyomu]: https://kakuyomu.jp/works/16818093078673262238
 [日日綴郎]: https://kakuyomu.jp/users/hibi_tsuzuro
