@@ -1,6 +1,7 @@
 ---
 title: The White Witch and the Black Witch — A Twisted Secret Between Them
 has_children: true
+tags: ["adult life", "angst", "magic", "fantasy", "co-dependence", "yandere", "complete"]
 ---
 ## Original Title
 
@@ -21,6 +22,14 @@ I don't want this. I never asked for it. I want it to stop.
 
 But I can't slip free of the collar she's put around my neck.
 What am I supposed to do?
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![The White Witch and the Black Witch](/assets/images/white-witch-black-witch.jpg)
 

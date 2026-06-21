@@ -1,6 +1,7 @@
 ---
 title: Love Grows in the Classroom After School
 has_children: true
+tags: ["secret relationship", "high school", "teacher", "age gap", "taboo", "seduction", "slow burn", "time jump", "complete"]
 ---
 ## Original Title
 
@@ -8,7 +9,7 @@ has_children: true
 
 ## Description
 
-"I'll say 'I like you' as many times as it takes. Until you respond."
+### "I'll say 'I like you' as many times as it takes. Until you respond."
 
 "I like you, Sensei."
 
@@ -25,6 +26,14 @@ The only thing she and I had in common was our gender — our thoughts, personal
 My second year as a teacher, filled with nothing but the unimaginable.
 
 After school in the classroom, once again today, I am being cornered by her.
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![Love Grows in the Classroom After School](/assets/images/love-grows-in-the-classroom.png)
 

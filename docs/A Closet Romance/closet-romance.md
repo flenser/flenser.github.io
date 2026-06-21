@@ -1,6 +1,7 @@
 ---
 title: A Closet Romance
 has_children: true
+tags: ["slow burn", "secret relationship", "straight to gay", "high school", "seduction", "parental neglect", "time jump", "angst", "complete"]
 ---
 ## Original Title
 
@@ -19,6 +20,14 @@ I'd leave my hometown soon, go to university in Tokyo, find a cute girlfriend wh
 That's what I thought, anyway. But then an unexpected turn of events brought me suddenly close to Mitsuki, the girl I'd been pining for all this time?
 
 This is the story of a lesbian high schooler utterly swept along by a straight girl who plays hard to get. 🫶
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![A Closet Romance](/assets/images/a-closet-romance.jpg)
 

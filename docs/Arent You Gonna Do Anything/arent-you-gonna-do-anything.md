@@ -1,6 +1,7 @@
 ---
-title: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
+title: 'A Yuri About Being Asked "Hey, Aren''t You Gonna Do Anything?" by an Older Colleague'
 has_children: true
+tags: ["adult life", "seduction", "fluffy", "short", "yandere", "complete"]
 ---
 ## Original Title
 
@@ -22,6 +23,14 @@ A voice in the dark, under the covers.\
 Is she joking? Does she mean it? Mio can't tell. But her heart and her body are already answering —
 
 A workplace yuri about a self-doubting pushover and a slightly sloppy older devil-woman, sharing one futon for a night that might just be once-in-a-lifetime.
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![Aren't You Gonna Do Anything?](/assets/images/arent-you-gonna-do-anything.jpg)
 

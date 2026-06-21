@@ -1,6 +1,7 @@
 ---
 title: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
 has_children: true
+tags: ["secret relationship", "age gap", "taboo", "abuse", "violence", "middle school", "adult life", "crumbling facade", "seduction", "angst", "high energy", "spicy", "ongoing"]
 ---
 ## Original Title
 
@@ -18,6 +19,14 @@ Amamiya Setsu. Designer. Her relationship with her husband and daughter is warm 
 A classmate of her daughter's — a girl a full twenty centimetres shorter than her, and yet one whose words and gaze have a way of turning adults completely upside down. But then there are those moments, glimpsed only occasionally, of an instability that is entirely her age — and there's no looking away from that.
 
 This is the story of a happily married woman who meets her daughter's friend, and the two of them ×× together.
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend](/assets/images/married-woman-falls-for-friend.jpg)
 
