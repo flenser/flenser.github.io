@@ -1,6 +1,6 @@
 ---
-title: Browse by Tag
-nav_order: 99
+title: Tag Cloud
+nav_order: 1
 ---
 
 {% assign all_tags = "" | split: "" %}
