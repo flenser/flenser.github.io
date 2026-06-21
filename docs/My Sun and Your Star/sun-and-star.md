@@ -33,7 +33,7 @@ Watch as the girl who wanted to die and the girl living with her own burdens bec
 ![My Sun and Your Star](/assets/images/sun-star-cover.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [雨野 天遊]
+Author: Amano Tenyū [雨野 天遊]
 
 [kakuyomu]: https://kakuyomu.jp/works/16818093075322842430
 [雨野 天遊]: https://kakuyomu.jp/users/rainten7777
