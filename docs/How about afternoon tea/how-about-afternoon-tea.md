@@ -1,7 +1,7 @@
 ---
 title: How about afternoon tea?
 has_children: true
-tags: ["slow burn", "secret relationship", "university", "adult life", "straight to gay", "spicy", "time jump", "angst", "complete"]
+tags: ["slow burn", "secret relationship", "university", "adult life", "straight to gay", "spicy", "time jump", "angst", "published as light novel", "adapted to manga", "complete"]
 ---
 ## Original Title
 
