@@ -80,4 +80,4 @@ My daughter had a cold. I had left work early. A classmate had come to drop off 
 That was all it was.\
 That was all it took for a turning point in a life to be made.\
 From meeting just one girl — a girl who knew nothing.\
-This was how I and Kai met.
+This was how Kai and I met.
