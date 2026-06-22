@@ -1,7 +1,7 @@
 ---
 title: A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks
 has_children: true
-tags: ["adult life", "seduction", "spicy", "angst", "yandere", "parental neglect", "age gap", "ongoing"]
+tags: ["adult life", "seduction", "explicit", "angst", "yandere", "parental neglect", "age gap", "ongoing"]
 ---
 ## Original Title
 

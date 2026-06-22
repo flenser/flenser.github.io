@@ -1,7 +1,7 @@
 ---
 title: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
 has_children: true
-tags: ["secret relationship", "age gap", "taboo", "abuse", "violence", "middle school", "adult life", "crumbling facade", "seduction", "angst", "high energy", "spicy", "ongoing"]
+tags: ["secret relationship", "age gap", "taboo", "abuse", "violence", "middle school", "adult life", "crumbling facade", "seduction", "angst", "high energy", "suggestive", "ongoing"]
 ---
 ## Original Title
 

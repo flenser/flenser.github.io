@@ -1,7 +1,7 @@
 ---
 title: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
 has_children: true
-tags: ["high energy", "high school", "fluffy", "seduction", "comedy", "published as light novel", "ongoing"]
+tags: ["high energy", "high school", "fluffy", "seduction", "comedy", "safe", "published as light novel", "ongoing"]
 ---
 ## Original Title
 

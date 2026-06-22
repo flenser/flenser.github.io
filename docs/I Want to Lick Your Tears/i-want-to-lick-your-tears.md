@@ -1,7 +1,7 @@
 ---
 title: I Want to Lick Your Tears. I Want You to Glare at Me
 has_children: true
-tags: ["spicy", "secret relationship", "high school", "honor student", "co-dependence", "crumbling facade", "angst", "ongoing"]
+tags: ["suggestive", "secret relationship", "high school", "honor student", "co-dependence", "crumbling facade", "angst", "ongoing"]
 ---
 ## Original Title
 

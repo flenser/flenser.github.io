@@ -1,7 +1,7 @@
 ---
 title: My Neighbour, Kataba-san
 has_children: true
-tags: ["slow burn", "secret relationship", "honor student", "high school", "parental neglect", "co-dependence", "high pressure", "angst", "abuse", "violence", "su1cidal behaviour", "ongoing"]
+tags: ["slow burn", "secret relationship", "honor student", "high school", "parental neglect", "co-dependence", "high pressure", "angst", "abuse", "violence", "su1cidal behaviour", "safe", "ongoing"]
 ---
 ## Original Title
 

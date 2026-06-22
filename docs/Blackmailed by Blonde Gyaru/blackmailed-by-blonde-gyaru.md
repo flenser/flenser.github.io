@@ -1,7 +1,7 @@
 ---
 title: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
 has_children: true
-tags: ["high energy", "spicy", "secret relationship", "enemies to lovers", "seduction", "high school", "honor student", "crumbling facade", "complete"]
+tags: ["high energy", "explicit", "secret relationship", "enemies to lovers", "seduction", "high school", "honor student", "crumbling facade", "complete"]
 ---
 ## Original Title
 

@@ -1,7 +1,7 @@
 ---
 title: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
 has_children: true
-tags: ["abuse", "violence", "su1cidal behaviour", "self-harm", "co-dependence", "secret relationship", "seduction", "spicy", "high school", "parental neglect", "high pressure", "angst", "complete"]
+tags: ["abuse", "violence", "su1cidal behaviour", "self-harm", "co-dependence", "secret relationship", "seduction", "suggestive", "high school", "parental neglect", "high pressure", "angst", "complete"]
 ---
 ## Original Title
 

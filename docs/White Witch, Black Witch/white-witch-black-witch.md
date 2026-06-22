@@ -1,7 +1,7 @@
 ---
 title: The White Witch and the Black Witch — A Twisted Secret Between Them
 has_children: true
-tags: ["adult life", "angst", "magic", "fantasy", "co-dependence", "yandere", "complete"]
+tags: ["adult life", "angst", "magic", "fantasy", "co-dependence", "yandere", "suggestive", "complete"]
 ---
 ## Original Title
 
