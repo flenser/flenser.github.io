@@ -1,7 +1,7 @@
 ---
 title: Don't you feel ashamed to be overpowered by a maid
 has_children: true
-tags: ["adult life", "spicy", "fluffy", "fantasy", "published as light novel", "complete"]
+tags: ["adult life", "suggestive", "fluffy", "fantasy", "published as light novel", "complete"]
 ---
 ## Original Title
 

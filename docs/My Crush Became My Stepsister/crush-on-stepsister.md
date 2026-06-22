@@ -1,7 +1,7 @@
 ---
 title: My Crush Became My Stepsister
 has_children: true
-tags: ["slow burn", "secret relationship", "siblings", "high school", "taboo", "angst", "ongoing"]
+tags: ["slow burn", "secret relationship", "siblings", "high school", "taboo", "angst", "safe", "ongoing"]
 ---
 ## Original Title
 

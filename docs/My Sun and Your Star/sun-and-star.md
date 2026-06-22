@@ -1,7 +1,7 @@
 ---
 title: My Sun and Your Star
 has_children: true
-tags: ["slow burn", "secret relationship", "honor student", "high school", "enemies to lovers", "co-dependence", "parental neglect", "high pressure", "time jump", "angst", "su1cidal behaviour", "complete"]
+tags: ["slow burn", "secret relationship", "honor student", "high school", "enemies to lovers", "co-dependence", "parental neglect", "high pressure", "time jump", "angst", "su1cidal behaviour", "safe", "complete"]
 ---
 ## Original Title
 

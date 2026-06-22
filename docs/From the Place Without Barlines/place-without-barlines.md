@@ -1,7 +1,7 @@
 ---
 title: From the Place Without Barlines
 has_children: true
-tags: ["slow burn", "high school", "parental neglect", "artists", "co-dependence", "high pressure", "angst", "complete"]
+tags: ["slow burn", "high school", "parental neglect", "artists", "co-dependence", "high pressure", "angst", "safe", "complete"]
 ---
 ## Original Title
 

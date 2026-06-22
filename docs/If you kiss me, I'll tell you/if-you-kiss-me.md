@@ -1,7 +1,7 @@
 ---
 title: If you kiss me, I'll tell you
 has_children: true
-tags: ["secret relationship", "adult life", "straight to gay", "enemies to lovers", "spicy", "fluffy", "complete"]
+tags: ["secret relationship", "adult life", "straight to gay", "enemies to lovers", "suggestive", "fluffy", "complete"]
 ---
 ## Original Title
 

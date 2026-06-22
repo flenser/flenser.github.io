@@ -1,7 +1,7 @@
 ---
 title: You Bleed Into My Colourless World
 has_children: true
-tags: ["secret relationship", "adult life", "slow burn", "co-dependence", "angst", "time jump", "fluffy", "complete"]
+tags: ["secret relationship", "adult life", "slow burn", "co-dependence", "angst", "time jump", "fluffy", "safe", "complete"]
 ---
 ## Original Title
 

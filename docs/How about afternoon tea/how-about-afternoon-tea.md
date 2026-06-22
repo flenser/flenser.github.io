@@ -1,7 +1,7 @@
 ---
 title: How about afternoon tea?
 has_children: true
-tags: ["slow burn", "secret relationship", "university", "adult life", "straight to gay", "spicy", "time jump", "angst", "published as light novel", "adapted to manga", "complete"]
+tags: ["slow burn", "secret relationship", "university", "adult life", "straight to gay", "suggestive", "time jump", "angst", "published as light novel", "adapted to manga", "complete"]
 ---
 ## Original Title
 
@@ -27,7 +27,7 @@ This is a university flatmate story about a straight junior being seduced by a b
 
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: [桃田ロウ]\
-If you want to support Momota-san directly you can do that through her [Fanbox] account.
+If you want to support Momota-sensei directly you can do that through her [Fanbox] account. If you subscribe to her Fanbox send me a screenshot as proof and I'll send you an epub of her Fanbox work.
 
 [kakuyomu]: https://kakuyomu.jp/works/16818023214131449614
 [桃田ロウ]: https://kakuyomu.jp/users/momotarou123
