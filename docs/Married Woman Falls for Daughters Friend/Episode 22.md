@@ -97,7 +97,7 @@ That colour was surely not imagined, but well, if she felt better, that was good
 Once the bandaging was done, I collected the dried uniform and Kai's underwear. ...Imagining Kai wearing my underwear right now left me strangely unsettled. Something about my own underwear being worn by someone else felt almost like my blood running through another person's veins. An odd, uneasy sensation.\
 "Just leave my clothes anywhere nearby, that's fine."\
 "Yes..."\
-Handed her uniform back, why did Kai lower her face as if reluctant to let it go.\
+Handed her uniform back, why did Kai lower her face as if reluctant to take it.\
 "Once you're changed, come to the door. We're heading out shortly."\
 *Where?* Kai's expression seemed to ask. I answered toward her forehead.\
 "Your house."
