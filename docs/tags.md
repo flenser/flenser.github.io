@@ -43,6 +43,17 @@ nav_order: 1
 {% endfor %}
 </div>
 
+## Tragic Ending (2)
+{: #tragic-ending .tragic-heading }
+
+<details markdown="1">
+<summary>⚠️ Click to reveal (spoiler)</summary>
+
+- [She Expressionless and Transparent](/docs/She seems to be someone you could hold tight if you paid the price/embrace-for-a-price.html) — ends in tragedy
+- [My Neighbour, Kataba-san](/docs/Neighbour Kataba/neighbour-kataba.html) — potentially tragic ending
+
+</details>
+
 {% for item in sorted %}
   {% assign parts = item | split: "###" %}
   {% assign count = parts[0] | plus: 0 %}
