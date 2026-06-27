@@ -28,13 +28,13 @@ The gaze coming from where Ran kept calling intimidating was getting on my nerve
 
 I answered Ran between bites of bread.
 
-Yudzuki, Hinata, and Nanoha were eating lunch together in the middle of the classroom. Yudzuki and Nanoha were in the adjacent class, and apparently since Hinata had ended up alone in ours, they'd been coming here to eat at lunch.
+Yudzuki, Hinata, and Fujishiro were eating lunch together in the middle of the classroom. Yudzuki and Fujishiro were in the adjacent class, and apparently since Hinata had ended up alone in ours, they'd been coming here to eat at lunch.
 
-It was perfectly fine for anyone to eat wherever they liked — but I kept feeling Nanoha's gaze, and every time I glared back at her to say *stop looking over here,* she looked pleased about it.
+It was perfectly fine for anyone to eat wherever they liked — but I kept feeling Fujishiro's gaze, and every time I glared back at her to say *stop looking over here,* she looked pleased about it.
 
 The stress was considerable.
 
-Getting noticed through involvement with Nanoha, getting pulled into unnecessary things — I wanted none of it.\
+Getting noticed through involvement with Fujishiro, getting pulled into unnecessary things — I wanted none of it.\
 I wanted to live quietly.
 
 "We're finally third-years. It's exam year."\
@@ -67,17 +67,17 @@ She patted my head when I thanked her, clearly pleased.
 
 Ran treated me like a child fairly often, which didn't always sit well with me — but I couldn't bring myself to say so, and just let her fuss over me.
 
-Using Ran as a kind of wall, I glanced in Nanoha's direction. She was absorbed in talking with Yudzuki and Hinata.
+Using Ran as a kind of wall, I glanced in Fujishiro's direction. She was absorbed in talking with Yudzuki and Hinata.
 
-During spring break I'd barely gone to Nanoha's place.\
+During spring break I'd barely gone to Fujishiro's place.\
 Partly because I'd taken on extra shifts, and partly because of the awkwardness after the kiss.
 
-That had been a reward for Nanoha.\
+That had been a reward for Fujishiro.\
 I told myself it was a meaningless kiss — and yet when I recalled that day clearly, my face went hot.
 
-I didn't know what face to make around Nanoha anymore.
+I didn't know what face to make around Fujishiro anymore.
 
-She hadn't messaged me to come over either, so spring break ended and third year arrived without resolution. Which made having Nanoha in the classroom right now even more awkward.
+She hadn't messaged me to come over either, so spring break ended and third year arrived without resolution. Which made having Fujishiro in the classroom right now even more awkward.
 
 Still, there was something I needed to ask her, so I'd been turning it over, not sure what to do.
 
@@ -87,14 +87,14 @@ Still, there was something I needed to ask her, so I'd been turning it over, not
 
 Fine wasn't quite true — I actually wanted someone to help. But I kept that to myself.
 
-Nanoha's birthday was coming up soon.\
+Fujishiro's birthday was coming up soon.\
 Because she'd done that unnecessary thing at Christmas, I'd started feeling like I needed to give her something in return.
 
 I had almost no experience giving anyone presents, so I was starting from nothing.
 
 While I was worrying about that, a notification came through on my phone.
 
-I looked at the screen, then immediately glanced toward Nanoha at the edge of the classroom.
+I looked at the screen, then immediately glanced toward Fujishiro at the edge of the classroom.
 
 She was smiling happily.\
 I looked away quickly and unlocked my phone.
@@ -108,7 +108,7 @@ I had no idea what, and the curiosity meant I couldn't concentrate on lessons at
 
 I made my way through classes in a fog of restlessness, and the moment school ended I was heading for her place at speed.
 
-When I arrived, Nanoha was in a remarkably good mood, looking over at me brightly.
+When I arrived, Fujishiro was in a remarkably good mood, looking over at me brightly.
 
 "What did you want to talk about?"\
 "Don't rush me."
@@ -120,7 +120,7 @@ There was a cup of the same in front of me too, for the record.
 "I went to the trouble of making it, so drink it."\
 "Never mind that, just talk—"
 
-Before I could finish, Nanoha pressed her finger to my lips, and I couldn't say anything.
+Before I could finish, Fujishiro pressed her finger to my lips, and I couldn't say anything.
 
 She was just smiling away, utterly pleased with herself.\
 I decided she was playing with me and felt a flash of irritation, knocking her hand away firmly.
@@ -134,7 +134,7 @@ I decided she was playing with me and felt a flash of irritation, knocking her h
 
 A pamphlet was slid in front of me. On the cover: *Civil Service Examination (Upper Secondary School Graduate Level).*
 
-Nanoha opened the pamphlet and started explaining.\
+Fujishiro opened the pamphlet and started explaining.\
 She gave me no room to get a word in.
 
 "You don't have a specific goal, and if you're going to work you'd want something stable, right? And if it's this, I can study alongside you."\
@@ -150,14 +150,14 @@ She'd gone quiet, and I'd thought she'd lost interest in me, and then it turned 
 "I'm not forcing you. It's your choice. But I already know which university I'm going to and I can't change that, so if Morishita could come to the same place, I'd be happy."\
 "Why me. You have so many friends."
 
-Today's Nanoha was making even less sense than usual. Why she was so fixed on me, I couldn't understand.
+Today's Fujishiro was making even less sense than usual. Why she was so fixed on me, I couldn't understand.
 
 She had plenty of friends.\
 I couldn't see why she'd choose me.
 
 "The only one I can show the real me to isn't family or friends — it's Morishita. That's all. Being with Morishita is just easy."
 
-Nanoha said that lightly, then looked over at me with a smile she'd put together for the occasion.\
+Fujishiro said that lightly, then looked over at me with a smile she'd put together for the occasion.\
 I didn't want to feel like I was playing into her hands, so I turned my face away.
 
 "I'm not doing that."\
@@ -196,7 +196,7 @@ But the relief — knowing I hadn't been disliked — was enormous.
 "If you'd said something I would have made time."\
 "I don't need that. We agreed to use each other when we want to be used."
 
-Nanoha's eyebrow moved slightly and she froze. But then an expression close to sadness came over her face and she opened her mouth.
+Fujishiro's eyebrow moved slightly and she froze. But then an expression close to sadness came over her face and she opened her mouth.
 
 "You're right. I'll say something from now on."\
 "Do that."\
@@ -209,14 +209,14 @@ Nanoha's eyebrow moved slightly and she froze. But then an expression close to s
 "I can't help looking at Morishita."\
 "Why."
 
-When I asked that, Nanoha's face went to genuine surprise. Then the tension left her eyes and she reached for my cheek with a soft expression and touched it.
+When I asked that, Fujishiro's face went to genuine surprise. Then the tension left her eyes and she reached for my cheek with a soft expression and touched it.
 
 "Hey, Morishita. Kiss me like you did before spring break."\
 "Sorry?"
 
 I had absolutely no idea what was happening.
 
-Today's Nanoha was completely off the rails.\
+Today's Fujishiro was completely off the rails.\
 When I looked at her she was gazing back at me with flushed cheeks and serious eyes — complete idiot, I thought.
 
 "Because of what Morishita did, I kept thinking about it even at cram school. You know how much trouble that caused."\
@@ -237,22 +237,22 @@ I had said that, that time.
 
 The feeling I'd had then was something I didn't understand, so I'd just attached a convenient reason to it.
 
-I've come to know many versions of Nanoha.
+I've come to know many versions of Fujishiro.
 
-The Nanoha who carries darkness inside her. The weak Nanoha. The Nanoha who retched in tears and agony.
+The Fujishiro who carries darkness inside her. The weak Fujishiro. The Fujishiro who retched in tears and agony.
 
 Every time I come to know another version of her, something stirs inside me.
 
 When she asks for something, what face will she make this time.\
 That kind of curiosity rose in me, and I did what I did.
 
-"My curiosity is different from Nanoha's perversion."\
+"My curiosity is different from Fujishiro's perversion."\
 "There's no difference at all."
 
-She patted my head without asking, so I knocked her hand away. Nanoha's cheeks puffed out.
+She patted my head without asking, so I knocked her hand away. Fujishiro's cheeks puffed out.
 
 "Why is it fine for Suzuki Ran but not for me?"\
 "Stop watching people, you pervert."\
 "Morishita's gone into her shell. What a shame."
 
-After that Nanoha kept grumbling, but I decided that was just the usual us, and stopped paying attention.
+After that Fujishiro kept grumbling, but I decided that was just the usual us, and stopped paying attention.

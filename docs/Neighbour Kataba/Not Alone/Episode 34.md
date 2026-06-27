@@ -8,13 +8,13 @@ title: Episode 34
 ---
 Episode 34
 
-On the way home, I ended up walking alongside Nanoha for some reason.
+On the way home, I ended up walking alongside Fujishiro for some reason.
 
 Ran and Hinata-chan wanted to keep shopping and stayed at the mall. Yudzuki said she had cram school and split off too.
 
 Maybe I should have stayed with Ran, but I was tired today, so I decided to go home.
 
-Nanoha had been silent for a while now, saying nothing.
+Fujishiro had been silent for a while now, saying nothing.
 
 She'd been off all day, somehow, completely different from how she usually is with me, and it was throwing off my rhythm.
 
@@ -34,7 +34,7 @@ I set the manga down on the bed and sat quietly beside her. Even so, she wouldn'
 
 I should have felt at ease, being with someone who had no interest in me and didn't interfere, but right now her indifference was making me angry.
 
-"What's wrong today, Nanoha?"\
+"What's wrong today, Fujishiro?"\
 "What? I'm normal."\
 "You're clearly irritated. Did I do something?"\
 "...Why did you do that?"\
@@ -50,19 +50,19 @@ I knew I should think about that properly, but right now I wanted to clear up my
 
 I turned my face away, pointedly.
 
-I'd thought it since we first met. Nanoha really is a pain to deal with. And yet I can't leave her alone. I should have my hands full with my own life, and here I am getting involved with her anyway.
+I'd thought it since we first met. Fujishiro really is a pain to deal with. And yet I can't leave her alone. I should have my hands full with my own life, and here I am getting involved with her anyway.
 
-Maybe I'm more foolish than Nanoha is.
+Maybe I'm more foolish than Fujishiro is.
 
 "If you'd had that rematch, would you have won? Have you ever beaten Yudzuki at that game?"\
 "No, but I wouldn't know unless I tried."\
-"That's the foolish part of you, Nanoha."\
+"That's the foolish part of you, Fujishiro."\
 "I'm not foolish."\
 "You're extremely foolish."\
 "Stop saying foolish, foolish, it's annoying!"
 
-Nanoha clenched her fists and started thumping them against my shoulder, again and again.\
-It didn’t hurt at all, but when I looked at Nanoha's face, I found myself at a loss for words.
+Fujishiro clenched her fists and started thumping them against my shoulder, again and again.\
+It didn’t hurt at all, but when I looked at Fujishiro's face, I found myself at a loss for words.
 
 Her face was bright red, and she looked as if she was about to burst into tears.
 
@@ -70,7 +70,7 @@ Her face was bright red, and she looked as if she was about to burst into tears.
 "Yeah. I don't know."\
 "Don't call me foolish when you don't even know me."
 
-Nanoha's violence wouldn't stop, so I tried to hold her back, and we ended up tangled together, and I found myself on my back on the floor.
+Fujishiro's violence wouldn't stop, so I tried to hold her back, and we ended up tangled together, and I found myself on my back on the floor.
 
 She ended up straddling me.\
 Her face was bright red from crying.
@@ -88,9 +88,9 @@ I don’t understand myself either.\
 I'm not someone who says things like this.\
 Not the kind of person who says something this foolish.
 
-I pulled Nanoha, who was still leaning over me, tightly towards me.
+I pulled Fujishiro, who was still leaning over me, tightly towards me.
 
-I don't understand Nanoha at all.\
+I don't understand Fujishiro at all.\
 I don't understand her relationship with Hinata-chan and Yudzuki.\
 I don't know what the right answer is here.
 
@@ -99,20 +99,20 @@ If you can't say it, then you shouldn't choose a path that causes you such pain.
 
 Sometimes running away is important too.
 
-But Nanoha's foolish, so she charges in without thinking, gets hurt, and even though she never shows it on the outside, she always looks as if she’s quietly crying out *it hurts,* *it's hard.*
+But Fujishiro's foolish, so she charges in without thinking, gets hurt, and even though she never shows it on the outside, she always looks as if she’s quietly crying out *it hurts,* *it's hard.*
 
 I rubbed her back, clumsily, over and over.
 
-"I haven't lost, so don't make that face. In front of everyone, just keep being the usual lying Nanoha right to the end. Here, you can make all the strange faces you want."\
+"I haven't lost, so don't make that face. In front of everyone, just keep being the usual lying Fujishiro right to the end. Here, you can make all the strange faces you want."\
 "I don't think calling me a 'liar' and 'strange faces' were necessary."\
 "It's the truth."
 
-When she said that, Nanoha's hand gripped my shirt tightly.
+When she said that, Fujishiro's hand gripped my shirt tightly.
 
 "Morishita really is foolish."\
 "I know."\
 "Don't go playing the good person on your own terms."\
-"Nanoha's personality is rubbing off on me."\
+"Fujishiro's personality is rubbing off on me."\
 "Don't blame other people right away..."
 
 Her grip on my shirt tightened further than before. Her whole body was shaking too, and something in me seemed to soften, like a protective instinct rising.
@@ -139,7 +139,7 @@ She’s the kind of person who pretends to be perfect despite being incomplete, 
 
 She pushed firmly against my shoulder and sat up.
 
-Nanoha's hair, which she'd taken the trouble to curl and make pretty, had come undone, so I reached out gently and fixed it for her.
+Fujishiro's hair, which she'd taken the trouble to curl and make pretty, had come undone, so I reached out gently and fixed it for her.
 
 At that, a smile settled onto her face.
 
@@ -150,7 +150,7 @@ At that, a smile settled onto her face.
 "I want cute."\
 "You're a pain."
 
-Nanoha always wants words of affirmation right away.\
+Fujishiro always wants words of affirmation right away.\
 She's a spoiled, demanding young lady.
 
 "Morishita, say I'm cute."\
@@ -158,8 +158,8 @@ She's a spoiled, demanding young lady.
 "I did my hair and makeup and everything because I wanted you to think I was cute."\
 "You don't have to go to that much trouble on your own."
 
-Nanoha was already cute enough just as she was.
+Fujishiro was already cute enough just as she was.
 
 It's so easy to feel it in my heart, I thought, and yet so difficult to say it out loud.
 
-After that Nanoha stayed in a sulky mood while she studied, but being there with her wasn't an uncomfortable feeling at all.
+After that Fujishiro stayed in a sulky mood while she studied, but being there with her wasn't an uncomfortable feeling at all.
