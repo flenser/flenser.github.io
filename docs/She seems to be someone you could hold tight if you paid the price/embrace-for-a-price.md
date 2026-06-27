@@ -26,7 +26,7 @@ Thus begins a complicated relationship.
    </div>
    {% endif %}
 
-![Embrace for a price](/assets/images/embrace-for-a-price.png)
+![Embrace for a price](/assets/images/embrace-for-a-price.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu]. \
 Author: [紅日もも]
