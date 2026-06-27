@@ -10,7 +10,7 @@ Episode 21
 
 I had slept very soundly. When I opened my eyes and looked at the clock on the wall, it was ten in the morning.
 
-Nanoha was in my arms.
+Fujishiro was in my arms.
 
 The sight was so funny and strange that no words came.
 
@@ -24,11 +24,11 @@ Today there was nothing in the way.
 
 The loneliness and pain I'd been carrying yesterday had vanished so completely it felt like a lie. In their place was something soft and floating that wrapped around me from all sides.
 
-Yesterday Nanoha had backed me into a corner with her scheming, and this was the result.\
+Yesterday Fujishiro had backed me into a corner with her scheming, and this was the result.\
 She's good at finding a person's weak spots and using them.\
 The fact that I keep showing her my weak spots is my own problem, but still.
 
-After a while, Nanoha opened her eyes.
+After a while, Fujishiro opened her eyes.
 
 She rubbed her half-open sleepy eyes, yawned, and then settled into a soft, easy expression and pressed herself toward me.
 
@@ -42,7 +42,7 @@ The time for filling each other's loneliness was supposed to be finished.
 
 She said it but moved away, though she made no attempt to get out of the bed. I didn't want to get out either, it was too cold, and I was thinking she should go first.
 
-My house clothes had Nanoha's smell all over them from every direction, which was a strange sensation.
+My house clothes had Fujishiro's smell all over them from every direction, which was a strange sensation.
 
 "Hey, Morishita."\
 "What."\
@@ -63,14 +63,14 @@ Still, those words were something even my mother had almost never said to me, an
 "With a beautiful girl right in front of you, isn't that the best Christmas present?"\
 "The most unwanted present imaginable."
 
-I brushed off her line without thinking about it, but Nanoha was beaming.
+I brushed off her line without thinking about it, but Fujishiro was beaming.
 
 "Well, jokes aside, do you want to do a present exchange like friends? Let's go shopping together."\
 "No. You're not my friend."
 
-But then, what is Nanoha to me? I'd said it myself and I didn't know what I meant by it. Although Nanoha had said *like friends*, which meant she probably didn't think of me as a friend either.
+But then, what is Fujishiro to me? I'd said it myself and I didn't know what I meant by it. Although Fujishiro had said *like friends*, which meant she probably didn't think of me as a friend either.
 
-Nanoha, the star student from the class next door.\
+Fujishiro, the star student from the class next door.\
 Someone who lent me manga and helped me study, who happened to be useful to me.
 
 "What kind of person am I to Morishita?"\
@@ -79,7 +79,7 @@ Someone who lent me manga and helped me study, who happened to be useful to me.
 "Pretty much, yeah."\
 "That's awful!"
 
-We were going back and forth like that when my stomach apparently decided it had had enough and announced itself with a long, gurgling sound. Mortified, I checked Nanoha's expression.
+We were going back and forth like that when my stomach apparently decided it had had enough and announced itself with a long, gurgling sound. Mortified, I checked Fujishiro's expression.
 
 "Come on, let's go out today. Just the two of us."\
 "No. I said I'm not doing a present exchange."\
@@ -90,7 +90,7 @@ We were going back and forth like that when my stomach apparently decided it had
 
 I had no reason to carry her bags. I decided to get ready to leave before she could steamroll me.
 
-When I moved to get out of the bed, Nanoha looked thoroughly put out.
+When I moved to get out of the bed, Fujishiro looked thoroughly put out.
 
 "Today after shopping I'm going to study this afternoon. Yesterday you promised to keep watch over me."\
 "I didn't."\
@@ -103,7 +103,7 @@ It was true I'd made that strange promise with her. If I denied it now that woul
 
 But no matter how I thought about it, I had no reason to go out with her.
 
-I pushed Nanoha aside and got out of the bed. I pulled on my outer layer and reached for the front door.
+I pushed Fujishiro aside and got out of the bed. I pulled on my outer layer and reached for the front door.
 
 "Hey, Morishita. I'll be waiting at the usual place, so come, okay?"\
 "I'm not coming."\
@@ -127,7 +127,7 @@ Clever and an idiot at the same time.
 
 She really is annoying and a pain in the neck.
 
-Nanoha invades my life far too much.\
+Fujishiro invades my life far too much.\
 I needed to go and tell her off properly, or I wouldn't feel settled.
 
 Just going to tell her off. That's all.\
@@ -146,13 +146,13 @@ I reached to the back and pulled out jeans and a hoodie, and put those on instea
 
 I trudged the road to the shrine, climbed the slope, and arrived at the spot, only to find, to my genuine surprise, a girl in white already there, praying at the shrine.
 
-We'd met here a number of times, but I didn't think I'd ever seen Nanoha praying before.
+We'd met here a number of times, but I didn't think I'd ever seen Fujishiro praying before.
 
 She turned, spinning the long skirt around her, and faced me.
 
 "Oh! You came!"
 
-Nanoha came hurrying over, and in her casual clothes she looked somehow older than usual. Her hair was different too, I noticed.
+Fujishiro came hurrying over, and in her casual clothes she looked somehow older than usual. Her hair was different too, I noticed.
 
 "Stop waiting for me without asking. It's a nuisance. I only came to tell you off. Then I'm going home."\
 "Is that really all you came for? You're not going to watch over my studying?"
@@ -184,7 +184,7 @@ The way she asked it, tentative and almost nervous, made me frown at her.
 "Morishita, you idiot."\
 "Idiot?!"
 
-Nanoha walked briskly ahead.\
+Fujishiro walked briskly ahead.\
 I followed along behind her.
 
 "Is that how you always dress when you're not in uniform, Morishita?"\
@@ -196,7 +196,7 @@ We walked a little further and the wind turned cold, so I pushed both hands into
 
 Past the residential streets and out into the part of town lined with department stores and shopping centres.
 
-When I go out with Ran, we usually end up at a sports goods store. Nanoha, by contrast, kept stopping at clothes shops. She kept asking "does this suit me?" about everything, which I found tedious, so I half-listened and let it wash over me.
+When I go out with Ran, we usually end up at a sports goods store. Fujishiro, by contrast, kept stopping at clothes shops. She kept asking "does this suit me?" about everything, which I found tedious, so I half-listened and let it wash over me.
 
 "Morishita, you're not listening to me at all. You'll end up with no friends, behaving like that."\
 "I don't mind not having friends."\
@@ -209,12 +209,12 @@ Ignoring what I'd said entirely, she held up a floral-print dress and tried to h
 Right.\
 Plain and simple is fine for me.
 
-My grip on her arm must have been stronger than I'd realised, because Nanoha's brow creased.
+My grip on her arm must have been stronger than I'd realised, because Fujishiro's brow creased.
 
 "This kind of thing doesn't suit me..."\
 "Does it not? I think Morishita's really cute, so I'd think something like a dress would work."
 
-Nanoha reached out and put her hand to my cheek without asking, smiled, and looked genuinely pleased about something.
+Fujishiro reached out and put her hand to my cheek without asking, smiled, and looked genuinely pleased about something.
 
 Being looked at like that made my face go hot all at once, and I shoved her away and put distance between us.
 
@@ -225,16 +225,16 @@ She said it matter-of-factly and went back to looking at other clothes.
 
 *Morishita's really cute.*
 
-Nanoha's words from a moment ago wouldn't leave my head.
+Fujishiro's words from a moment ago wouldn't leave my head.
 
 She probably says that to everyone.\
-Nanoha's social niceties.\
+Fujishiro's social niceties.\
 That's what I told myself, and I walked on with my eyes down.
 
-When she'd apparently finished acquiring what she'd come for, a satisfied-looking Nanoha said "let's head back." I let her lead me out of the shopping centre.
+When she'd apparently finished acquiring what she'd come for, a satisfied-looking Fujishiro said "let's head back." I let her lead me out of the shopping centre.
 
 As I'd suspected, I had genuinely been brought along as a bag carrier. I was handed all her everyday purchases and the clothes she'd bought to carry home.\
-On the way back, Nanoha's expression was bright, but she was quiet.\
+On the way back, Fujishiro's expression was bright, but she was quiet.\
 The moment we reached her apartment, she started doing something strange.
 
 She took everything I was holding out of my hands and set it on the floor. Then she placed a small plastic bag into my now-empty hands.
@@ -266,7 +266,7 @@ She cut off what I was going to say and then said something that made no sense.
 "Morishita, it's not about the amount."\
 "Excuse me?"
 
-Nanoha today was more incomprehensible than ever. While I was standing there bewildered, she smiled again.
+Fujishiro today was more incomprehensible than ever. While I was standing there bewildered, she smiled again.
 
 "Yesterday eating fried chicken with Morishita made me happy. So this is for that. You always walk to school with your hands shoved in your pockets, which looks a bit rough, so wear these on the way to school."\
 "How do you even know that. You're a stalker."\
@@ -275,7 +275,7 @@ Nanoha today was more incomprehensible than ever. While I was standing there bew
 She said it with a self-satisfied puff of her chest.\
 How did she know I didn't own gloves.
 
-Nanoha is an idiot and a fool and just a plain weirdo.
+Fujishiro is an idiot and a fool and just a plain weirdo.
 
 And yet why does my chest feel this tight.
 

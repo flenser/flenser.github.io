@@ -46,7 +46,7 @@ But we had an agreement not to speak at school. Right now I should be grateful f
 I moved to pass by Mei and go into the toilet, but for some reason she followed me in.
 
 "What? We don't talk at school."\
-"Nanoha, you look pale — did something happen?"\
+"Fujishiro, you look pale — did something happen?"\
 "Leave me alone."
 
 I needed Mei out of here as quickly as possible. Otherwise she'd witness something shameful. But she wouldn't leave. Irritation surged, and I threw the words at her harder than I meant to.
@@ -68,7 +68,7 @@ Was it Mei being there, making me tense in some strange way, throwing me off?
 
 An odd sweat broke out across my whole body, and the nausea was making my consciousness begin to blur.
 
-"Nanoha, open up for a second."
+"Fujishiro, open up for a second."
 
 My heart was hammering — and then Mei's voice reached me, and the hammering strangely began to settle.\
 I opened the door, and a girl with a troubled expression was standing there.
@@ -117,7 +117,7 @@ I breathed in and out again and again, steadying myself.
 
 When I glanced sideways, Mei was smiling.
 
-"So Nanoha makes that face too."\
+"So Fujishiro makes that face too."\
 "Awful."\
 "You won't make it in time if you don't hurry."
 
@@ -264,7 +264,7 @@ This wasn't what I'd wanted to say to Mei.
 
 I kept breathing in an odd rhythm, trying to pull myself back to normal.
 
-"Nanoha isn't dirty."\
+"Fujishiro isn't dirty."\
 "I am..."\
 "Haah..."
 
@@ -276,16 +276,16 @@ Then my collar was tugged softly, and Mei's forehead came down against mine with
 
 Her face was close and I panicked, but Mei's eyes were closed.
 
-"I showed you something dirty too. And Nanoha took care of it properly. So we're even."\
+"I showed you something dirty too. And Fujishiro took care of it properly. So we're even."\
 "Even...? Mei isn't dirty."\
-"Nanoha isn't dirty either."
+"Fujishiro isn't dirty either."
 
 Somehow her voice felt like it was resonating directly inside my head, and my chest pulled tight.
 
 The heat behind my eyes spread slowly.
 
 "Mei, you idiot."\
-"More of an idiot than Nanoha, probably."\
+"More of an idiot than Fujishiro, probably."\
 "Idiot..."\
 "Yes, yes."\
 "...Mei, thank you."\

@@ -199,7 +199,7 @@ Probably because I was sleepy and my better judgment wasn't working properly.
 
 I couldn't think of anything about being close to me at school that would hurt Morishita.
 
-"Nanoha and I live in different worlds."
+"Fujishiro and I live in different worlds."
 
 I wasn't sure what she meant by that.\
 Whether she considered herself above me or below me, I couldn't tell.
@@ -217,7 +217,7 @@ Hearing Morishita's voice was calming. A little while ago I'd been lonely and fr
 
 I wanted her to go along with my selfishness, just for today.
 
-"No. If Nanoha's not going to talk either, I'm hanging up."\
+"No. If Fujishiro's not going to talk either, I'm hanging up."\
 "Ugh... that's the worst, so I'll try."
 
 My thoughts were drifting, my voice going soft and unhurried. I could no longer quite track what I was saying.

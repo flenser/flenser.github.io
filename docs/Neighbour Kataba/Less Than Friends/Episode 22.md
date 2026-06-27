@@ -36,7 +36,7 @@ Unfortunately, an hour was apparently all Morishita's concentration could sustai
 
 I thought she'd go straight back to manga, but she surprised me. Instead she leaned over and peered at my notebook with what looked like genuine curiosity.
 
-"You have surprisingly neat handwriting, Nanoha."\
+"You have surprisingly neat handwriting, Fujishiro."\
 "What kind of handwriting did you think I had?"\
 "Sort of round."
 
@@ -49,7 +49,7 @@ What she drew was a rabbit with a gentle expression, nothing like the sharp-edge
 "What is this?"\
 "A rabbit."\
 "I can see that. Why did you draw a rabbit?"\
-"Because Nanoha is like a rabbit."\
+"Because Fujishiro is like a rabbit."\
 "The face?"\
 "No, the personality."\
 "Excuse me?"
@@ -57,7 +57,7 @@ What she drew was a rabbit with a gentle expression, nothing like the sharp-edge
 I had absolutely no idea what she was talking about.\
 Still talking to me, Morishita drew another rabbit just like the first beside it.
 
-"The part where you get so lonely you look like you might die. That's really just like Nanoha."\
+"The part where you get so lonely you look like you might die. That's really just like Fujishiro."\
 "If you could die of loneliness, life would be simple. And by that logic, Morishita would be a rabbit too."\
 "I can live just fine on my own, even if I'm lonely."
 
@@ -85,7 +85,7 @@ My concentration had gone too, so I leaned against the bed and took a break.
 "What's your type, Morishita?"\
 "Don't know."\
 "You can pick a favourite character from manga if you want."\
-"Too many to answer. What about you, Nanoha?"
+"Too many to answer. What about you, Fujishiro?"
 
 She asked in a tone that meant she didn't particularly care but was asking anyway. Even so, I thought about my answer to her seriously.
 
