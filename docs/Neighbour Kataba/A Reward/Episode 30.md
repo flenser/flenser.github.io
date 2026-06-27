@@ -11,7 +11,7 @@ Episode 30
 The test results were brutal.
 
 I'd worked harder than ever before.\
-Thanks to Mei, I'd managed to push myself much further into studying than I thought I could.
+Thanks to Morishita, I'd managed to push myself much further into studying than I thought I could.
 
 But I came second again.\
 First place, of course, was Yudzuki.
@@ -44,7 +44,7 @@ She touched me without asking far too freely. The irritation of it reached a poi
 
 The rest of the day passed without my head being in any of the lessons.
 
-At lunch, a message had come from Mei — *Can I come read manga today?* — but with results like these I couldn't face her, so I sent a refusal.
+At lunch, a message had come from Morishita — *Can I come read manga today?* — but with results like these I couldn't face her, so I sent a refusal.
 
 School finished and I trudged home.\
 I didn't want to go back to the apartment today either.\
@@ -62,7 +62,7 @@ Less than a month until second year ended, and then third year began, and studen
 
 It would probably be a busier year than I could imagine.
 
-When third year came, would Mei and I be able to keep going the way we were?
+When third year came, would Morishita and I be able to keep going the way we were?
 
 Our relationship seemed deep and yet was completely fragile, and I had no idea what might sever it.
 
@@ -82,14 +82,14 @@ Second on the test results again.
 I know.\
 I wanted first place too.
 
-Just once, I wanted to show Mei something impressive.
+Just once, I wanted to show Morishita something impressive.
 
 "I wanted first place..."\
 "Try again next time."
 
 There hadn't been anyone around, and then a voice appeared out of nowhere and I jumped to my feet.
 
-"Mei...?"\
+"Morishita...?"\
 "Why couldn't I come over today?"
 
 She stepped close and peered into my face, so I looked away.
@@ -100,7 +100,7 @@ Of all people, she had to be here.
 "Why?"\
 "You saw the results."
 
-*Please don't make this more humiliating than it already is,* I pleaded inwardly. But Mei blinked with a blank expression and then laughed.
+*Please don't make this more humiliating than it already is,* I pleaded inwardly. But Morishita blinked with a blank expression and then laughed.
 
 "It's not like you could take first that easily."\
 "I know, but... I'm frustrated."
@@ -113,35 +113,35 @@ I was more deflated than I expected, almost worried I wouldn't recover.
 "We made a promise I'd keep watch until you got first. So let's study today too."\
 "What?"
 
-The words were so unlike Mei that I looked up in surprise, searching her expression for what she meant, and found nothing I could read.
+The words were so unlike Morishita that I looked up in surprise, searching her expression for what she meant, and found nothing I could read.
 
 "That's just an excuse to read my manga, isn't it."\
 "Ah — caught?"\
 "Obviously."\
 "Well, it doesn't matter."
 
-That answer was so perfectly Mei, and I found I didn't dislike it.\
+That answer was so perfectly Morishita, and I found I didn't dislike it.\
 I'd dreaded seeing her and yet, now that she was here, I felt glad.
 
 "Alright, let's go to mine then."\
 "Okay."
 
-Setting off walking with Mei, my feet, which had been so heavy, were light.
+Setting off walking with Morishita, my feet, which had been so heavy, were light.
 
-When we got home, Mei sat on the floor and started reading manga. She always used the bed for manga, so I wondered what had changed.
+When we got home, Morishita sat on the floor and started reading manga. She always used the bed for manga, so I wondered what had changed.
 
 "What's the matter? You don't have to avoid the bed."\
 "Can I use it?"\
 "Of course."
 
-When I said so, Mei made a complicated face but sat on the edge of the bed all the same. But she didn't start reading. Her behaviour was too strange not to ask about.
+When I said so, Morishita made a complicated face but sat on the edge of the bed all the same. But she didn't start reading. Her behaviour was too strange not to ask about.
 
 "Is something the matter?"\
 "Not really."\
-"You're being weird, Mei."\
+"You're being weird, Morishita."\
 "I'm not weird. Come here."
 
-For some reason Mei was beckoning me over. I drifted toward her as if pulled.
+For some reason Morishita was beckoning me over. I drifted toward her as if pulled.
 
 "What do you want for your reward?"\
 "Sorry?"\
@@ -170,9 +170,9 @@ Without my noticing, I'd become greedy — I wanted something to acknowledge how
 
 "Fine."
 
-Mei agreed far more easily than I'd expected. But I hadn't actually thought I'd get one, and I hesitated.
+Morishita agreed far more easily than I'd expected. But I hadn't actually thought I'd get one, and I hesitated.
 
-Mei watched me with an exasperated expression, then for some reason closed the distance between us in one movement.
+Morishita watched me with an exasperated expression, then for some reason closed the distance between us in one movement.
 
 I had no idea what was happening, my guard came down, and I think my face did something very strange.
 
@@ -181,17 +181,17 @@ I had no idea what was happening, my guard came down, and I think my face did so
 "You're the one who said you wanted a reward kiss."\
 "W, well — yes, but?!"
 
-Mei was not being like Mei at all.\
+Morishita was not being like Morishita at all.\
 Which was why I was behaving quite oddly too, I think.
 
 No — maybe I was the strange one.\
 She was simply keeping a promise, and I was the one who'd proposed it and was now in a panic about it.
 
-Regardless of the turmoil in my head, Mei was moving closer, and the bed dipped.
+Regardless of the turmoil in my head, Morishita was moving closer, and the bed dipped.
 
 I wondered what on earth I was doing, but no one gave me an answer.
 
-Mei gently cupped my chin, and looked at me with soft, unfocused eyes.
+Morishita gently cupped my chin, and looked at me with soft, unfocused eyes.
 
 She was close enough that I could catch the clean soap smell of her, and I closed my eyes.
 
@@ -209,16 +209,16 @@ My lower lip was caught in a soft, gentle bite, and her tongue traced across my 
 
 I could have refused. I didn't.
 
-With a small, wet sound, Mei's heat flowed into me. I didn't know how to answer it and pressed back, tentatively.\
+With a small, wet sound, Morishita's heat flowed into me. I didn't know how to answer it and pressed back, tentatively.\
 Our warmth tangled together, and a soft sound seemed to ring directly inside my head, and my face was burning.
 
-For just a brief moment we shared that warmth, and yet my whole body was hot, my breath wouldn't come. Mei's warmth withdrew, and a breath escaped me.
+For just a brief moment we shared that warmth, and yet my whole body was hot, my breath wouldn't come. Morishita's warmth withdrew, and a breath escaped me.
 
 "Why..."
 
 A kiss that only touched lips — that I could understand. But the kiss just now, the kind where you confirm each other — that was different. That wasn't the kind of kiss that people who were neither friends nor lovers should be sharing.
 
-But I didn't want Mei to think I was flustered, so I stilled my unsteady breathing and arranged my face into composure.
+But I didn't want Morishita to think I was flustered, so I stilled my unsteady breathing and arranged my face into composure.
 
 "Why did you kiss me like that...?"\
 "I was just curious."\
@@ -230,9 +230,9 @@ I'd been swept along by her and I felt ridiculous.
 
 My face was hot, my body was hot, every place she'd touched was hot.
 
-She'd called the first kiss null and void herself, and then kissed me in a way that made it anything but — Mei was an idiot.
+She'd called the first kiss null and void herself, and then kissed me in a way that made it anything but — Morishita was an idiot.
 
-"Mei, you idiot."\
+"Morishita, you idiot."\
 "You're the one who told me to."
 
 True.\
