@@ -81,7 +81,7 @@ A cut-and-sew top, high at the neck but leaving both shoulders bare, and a long 
 
 And beside her — the person I most wanted to see and least wanted to see, both at once. Her gestures and way of speaking always seem grown-up, but there's something faintly childlike underneath it too. My stepsister.
 
-If people breathe through the palms of their hands, I think I'd have suffocated right there. That's how tightly, without a single gap, their fingers were laced together.
+If people breathe through the palms of their hands, I think they'd have suffocated right there. That's how tightly, without a single gap, their fingers were laced together.
 
 "F— Fuuka... hi."
 
