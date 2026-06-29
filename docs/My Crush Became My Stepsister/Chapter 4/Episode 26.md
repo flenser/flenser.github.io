@@ -89,7 +89,7 @@ If I just had a little more courage, I could reach that mouth. I wanted to say i
 
 "...She wouldn't. Fuuka's not like that."
 
-"Yuna might think so, but Fuuka might not."
+"Yuna, you might think so, but Fuuka might not."
 
 That's impossible. We've been together for so long, there's no way a feeling like that would suddenly appear now. And besides — two girls together, that would be rude to even suggest about Fuuka.
 
