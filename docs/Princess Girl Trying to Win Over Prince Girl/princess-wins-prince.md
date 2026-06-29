@@ -35,6 +35,7 @@ A high-energy yuri rom-com featuring a pushy, princess-like younger girl and an 
 ![The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl](/assets/images/princess-wins-prince.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
+Author: Yatsuboshi Kohaku [八星　こはく]
 Author: [八星　こはく]\
 If you like the story, please support the author by buying their [book].
 
