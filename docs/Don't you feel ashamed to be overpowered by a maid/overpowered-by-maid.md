@@ -1,6 +1,7 @@
 ---
 title: Don't you feel ashamed to be overpowered by a maid
 has_children: true
+tags: ["adult life", "suggestive", "fluffy", "fantasy", "published as light novel", "complete"]
 ---
 ## Original Title
 
@@ -16,10 +17,20 @@ A masochistic desire unimaginable for her usually pure and virtuous self. This i
 
 A love story of reversed master-servant roles between a commoner maid and a princess who issues forbidden commands.
 
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
+
 ![novel cover](/assets/images/overpowered-by-maid.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [笹塔五郎]
+Author: [笹塔五郎]\
+If you like the story, please support the author by buying their [book].
 
+[book]: https://www.amazon.co.jp/-/en/メイドに力負けするなんて恥ずかしくないんですか-角川スニーカー文庫-笹-塔五郎/dp/4041169666/ref=pd_sbs_d_sccl_1_5/357-2377741-2008045?pd_rd_w=yAu3a&content-id=amzn1.sym.d9975236-2c6f-40f8-8a79-8a86a96a4ad2&pf_rd_p=d9975236-2c6f-40f8-8a79-8a86a96a4ad2&pf_rd_r=ZM6C0H765BYXZR424NNG&pd_rd_wg=z7F3s&pd_rd_r=d132b36d-6408-42bc-a4ac-db250dfe1a99&pd_rd_i=4041169666&psc=1
 [kakuyomu]: https://kakuyomu.jp/works/822139837670415687
 [笹塔五郎]: https://kakuyomu.jp/users/sasacibe

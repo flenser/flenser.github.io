@@ -1,6 +1,7 @@
 ---
 title: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
 has_children: true
+tags: ["abuse", "violence", "su1cidal behaviour", "self-harm", "co-dependence", "secret relationship", "seduction", "suggestive", "high school", "parental neglect", "high pressure", "angst", "complete"]
 ---
 ## Original Title
 
@@ -17,7 +18,15 @@ Thus begins a complicated relationship.
 *This story is a work of fiction and does not condone or encourage any acts that contravene laws or regulations.\
 *Trigger warning: This story contains themes of suicide, abuse, self-harm, and violence. Reader discretion is advised.
 
-![Embrace for a price](/assets/images/embrace-for-a-price.png)
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
+
+![Embrace for a price](/assets/images/embrace-for-a-price.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu]. \
 Author: [紅日もも]

@@ -47,15 +47,15 @@ I dropped my shoulders and set the phone back on the desk.
 
 *What was I expecting...?*
 
-Nanoha and I had a deal that she'd help me study through end-of-term exams — so since then, no messages had come. Before that we'd been in contact so much, and now that kind of contact had gone completely quiet.
+Fujishiro and I had a deal that she'd help me study through end-of-term exams — so since then, no messages had come. Before that we'd been in contact so much, and now that kind of contact had gone completely quiet.
 
 She probably didn't want me coming over anymore.
 
 Was that actually true, though?
 
-I hadn't heard anything like that from Nanoha directly. Maybe I was just deciding it on my own, pulling back on my own.
+I hadn't heard anything like that from Fujishiro directly. Maybe I was just deciding it on my own, pulling back on my own.
 
-I didn't know anything about Nanoha.\
+I didn't know anything about Fujishiro.\
 That was natural enough — neither of us tried to get deeply involved.
 
 But it felt somehow wrong to assume what she was feeling when I barely knew her at all.
@@ -63,7 +63,7 @@ But it felt somehow wrong to assume what she was feeling when I barely knew her 
 *Haah...*
 
 Being alone made me do nothing but think, and I was tired of it.\
-Thinking about my mother, thinking about Nanoha — the worries never ran out either way — so I decided to take a walk.
+Thinking about my mother, thinking about Fujishiro — the worries never ran out either way — so I decided to take a walk.
 
 I had a bath, changed into house clothes, pulled a warm outer layer over the top.
 
@@ -111,7 +111,7 @@ The park was empty, of course.
 
 *What had I been expecting...?*
 
-I didn't know anything about what kind of home Nanoha had. I wasn't particularly interested. But somehow — vaguely — I'd thought maybe she'd be here today too.
+I didn't know anything about what kind of home Fujishiro had. I wasn't particularly interested. But somehow — vaguely — I'd thought maybe she'd be here today too.
 
 I sat down on the usual bench and looked up at the sky.
 
@@ -125,30 +125,30 @@ Go home, eat the chicken, sleep.
 
 A voice I shouldn't have been able to hear reached me, and I leapt to my feet.
 
-A few metres away, Nanoha was standing with a puzzled expression. I held back whatever was running wild inside me and tried to speak to her normally.
+A few metres away, Fujishiro was standing with a puzzled expression. I held back whatever was running wild inside me and tried to speak to her normally.
 
-"What are *you* doing here, Nanoha?"\
+"What are *you* doing here, Fujishiro?"\
 "Taking a walk."
 
-Nanoha took my hand and sat me back down on the bench. Then she pressed herself right up against me, sitting unreasonably close.
+Fujishiro took my hand and sat me back down on the bench. Then she pressed herself right up against me, sitting unreasonably close.
 
 "Morishita — why did you stop coming over?"\
 "Exams finished, and I thought I'd be a nuisance."\
 "You're not a nuisance. I actually wanted you to come."
 
-Nanoha leaned into me as she said it. She was always close, but tonight felt closer still.
+Fujishiro leaned into me as she said it. She was always close, but tonight felt closer still.
 
 "You really don't mind?"\
 "I said I don't mind."\
-"Nanoha, your ranking dropped because of me."
+"Fujishiro, your ranking dropped because of me."
 
-Nanoha stopped leaning against me and looked at me with a startled expression.
+Fujishiro stopped leaning against me and looked at me with a startled expression.
 
-After end-of-term exams, when the top results were posted, I'd found myself unconsciously looking for Nanoha's name. Looking for it — or rather, I'd been watching the names of the people who always placed near the top.
+After end-of-term exams, when the top results were posted, I'd found myself unconsciously looking for Fujishiro's name. Looking for it — or rather, I'd been watching the names of the people who always placed near the top.
 
 I'd held something like resentment toward that kind of person — assuming they came from comfortable homes, had money for cram school, were loved by their families, living lives that simply went smoothly.
 
-But spending time with Nanoha had shown me that was just my own groundless fantasy. My own bitterness.
+But spending time with Fujishiro had shown me that was just my own groundless fantasy. My own bitterness.
 
 "It's pretty rough having you know my embarrassing side..."\
 "It's not embarrassing."
@@ -168,17 +168,17 @@ She was so close that I thought I could feel a trembling passing through her bod
 "Stay with me until I can get first place. Help me study."\
 "I'd just be in the way."\
 "Keep watch over me? I can try harder when Morishita's watching."\
-"Then I'll keep watch — but tell me about yourself, Nanoha."\
+"Then I'll keep watch — but tell me about yourself, Fujishiro."\
 "What? What do you mean?"
 
 I shouldn’t feel embarrassed at all, yet the heat is rising to my face.
 
-It was Nanoha's fault for reacting strangely.
+It was Fujishiro's fault for reacting strangely.
 
 "What you like, what you don't like, things that are hard, things that make you happy. Tell me those things properly, and I'll keep watch."\
 "What is that."
 
-Nanoha let out a small laugh, like she couldn't help it.
+Fujishiro let out a small laugh, like she couldn't help it.
 
 "That doesn't sound like you, Morishita."\
 "Shut up. And you're annoying, get away from me."\
@@ -194,4 +194,4 @@ From beside me, despite everything — *heh* — came a sound like she was pleas
 
 It should have been cold. But somewhere at my core, I felt warm.
 
-I'd thought she was a strange creature from the beginning — but once again, I thought: Nanoha really is strange.
+I'd thought she was a strange creature from the beginning — but once again, I thought: Fujishiro really is strange.

@@ -67,7 +67,7 @@ I asked her, but apparently it wasn't that she'd found something she wanted to d
 
 She just, whenever she comes to my flat, always studies. And so I study alongside her, not wanting to fall behind. That's the kind of relationship it had become.
 
-"Nanoha, you're not concentrating."\
+"Fujishiro, you're not concentrating."\
 "Oh, caught me?"\
 "Study."\
 "A strict supervisor."
@@ -106,7 +106,7 @@ Speaking of which, when is Morishita's birthday?
 
 She definitely wasn't going to tell me, so I decided the only option was to bribe Suzuki Ran.
 
-"What about Nanoha...?"
+"What about Fujishiro...?"
 
 The unexpected question made my eyes go wide as if they might fall out.
 
@@ -140,7 +140,7 @@ Morishita had apparently grown bored and was squeezing and flicking her pen over
 
 I poked her cheek with the end of my pen, and she looked at me with a suspicious expression. But then her face turned slightly serious, and I braced myself. Morishita's slender shoulders rose and fell as she breathed.
 
-"Nanoha, why do you want first place so badly...?"\
+"Fujishiro, why do you want first place so badly...?"\
 "What's got into you today? Have you started taking an interest in me?"\
 "If you won't tell me, forget it."\
 "No, I was just wondering why you were curious."\
@@ -168,7 +168,7 @@ Some other goal to work toward...
 "Then, when I get first place, give me a reward."\
 "Buy it yourself."\
 "Not a thing, like... a reward kiss, for example?"\
-"There it is. So you really do like kissing, Nanoha."\
+"There it is. So you really do like kissing, Fujishiro."\
 "That was just a for-example."
 
 Morishita was making a face of such profound distaste it was almost artistic.\

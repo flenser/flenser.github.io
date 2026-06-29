@@ -187,7 +187,7 @@ I didn't even know why I was this irritated.
 "Then at least don't hurt the cute me."\
 "Saying that about yourself — aren't you a bit too confident?"\
 "If I don't think I'm cute, who's going to?"\
-"Everyone thinks Nanoha is cute."
+"Everyone thinks Fujishiro is cute."
 
 Morishita said that and gave my hair a firm pull. Today I couldn't make sense of myself — but Morishita was making even less sense than usual.
 

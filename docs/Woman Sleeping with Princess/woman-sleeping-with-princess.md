@@ -1,6 +1,7 @@
 ---
 title: The Story of the Woman Who Ended Up Sleeping with the Club Princess
 has_children: true
+tags: ["slow burn", "university", "short", "enemies to lovers", "parental neglect", "artists", "high pressure", "angst", "safe", "published as light novel", "complete"]
 ---
 ## Original Title
 
@@ -15,6 +16,14 @@ Shinomiya, a junior, and Hatano, her senior, despise each other. They're both me
 As they each get on with university life, Hatano comes to learn that Shinomiya — whom she can't stand — is a dropout from a family of artists, and that her self-destructive way of living stems from exactly that. Hatano herself is an aspiring novelist — a creative in a different field — and she finds herself unable to look away from Shinomiya, recognising in her the same loneliness, the same lack.\
 Awkwardly, haltingly, they begin to spend time together — and find themselves drawn to each other.\
 This is the story of two people who hate each other, learning to walk through life side by side.
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![The Story of the Woman Who Ended Up Sleeping with the Club Princess](/assets/images/woman-sleeping-with-princess-cover.jpg)
 

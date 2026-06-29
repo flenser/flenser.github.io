@@ -1,6 +1,7 @@
 ---
 title: My Neighbour, Kataba-san
 has_children: true
+tags: ["slow burn", "secret relationship", "honor student", "high school", "parental neglect", "co-dependence", "high pressure", "angst", "abuse", "violence", "su1cidal behaviour", "safe", "ongoing"]
 ---
 ## Original Title
 
@@ -32,6 +33,14 @@ A yuri story of co-dependent girls harbouring deep worries within their hearts.
 
 *This story is a work of fiction and does not condone or encourage any acts that contravene laws or regulations.\
 *Trigger warning: This story contains themes of suicide, abuse, self-harm, and violence. Reader discretion is advised.
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![My Neighbour, Kataba-san](/assets/images/neighbour-kataba.jpg)
 

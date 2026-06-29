@@ -27,7 +27,7 @@ I was the one who'd caused it.
 
 We'd started talking about exams, and I'd told her that my grades had genuinely gone up.
 
-Thinking that thanks to Nanoha my scores had improved and I'd become a little more what my mother wanted.
+Thinking that thanks to Fujishiro my scores had improved and I'd become a little more what my mother wanted.
 
 But the next thing I knew there was a thud against my head. Less pain than heat — the spot where it had struck was unbelievably hot.
 
@@ -49,11 +49,11 @@ At least zoning out at school would be better than this.
 Times like this were exactly when I used to wish I had manga to read.\
 No money for that, so I'd given up on it long ago.
 
-Which was probably why I'd leaned on Nanoha too much.
+Which was probably why I'd leaned on Fujishiro too much.
 
 Thinking back now, having someone come over, read your manga, and leave, over and over — of course that would be annoying.
 
-It's been nearly a month since the argument with Nanoha, and we haven't spoken. We weren't particularly close friends to begin with, so I'd just gone back to the life I had before.
+It's been nearly a month since the argument with Fujishiro, and we haven't spoken. We weren't particularly close friends to begin with, so I'd just gone back to the life I had before.
 
 But I had regrets about how I'd spoken. I could have thought more carefully before opening my mouth.
 
@@ -125,7 +125,7 @@ I panicked — *oh no* — and was about to apologise, but when I saw who was th
 
 Why...?
 
-I turned it over as fast as I could but could not make sense of Nanoha standing in front of me.
+I turned it over as fast as I could but could not make sense of Fujishiro standing in front of me.
 
 She was looking at me with a startled expression.
 
@@ -147,7 +147,7 @@ The door swung open and she stepped straight into the entryway without asking.
 
 The latch clicked shut. Just the two of us in the entrance hall.
 
-I was standing on the bare entrance floor in bare feet, and my feet were cold. Without any particular explanation Nanoha pushed me gently further inside and came on in.
+I was standing on the bare entrance floor in bare feet, and my feet were cold. Without any particular explanation Fujishiro pushed me gently further inside and came on in.
 
 "I'll report you for trespassing."\
 "Morishita..."
@@ -163,7 +163,7 @@ It went as red as the fingers she'd caught in the door. But no matter how hard I
 "I never said any such thing. You decided I meant that all on your own."\
 "But I must have been a nuisance..."
 
-Nanoha ignored what I was saying and reached toward my right temple.
+Fujishiro ignored what I was saying and reached toward my right temple.
 
 A flash of yesterday came back and my body flinched, drawing back.
 

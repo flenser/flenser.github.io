@@ -1,6 +1,7 @@
 ---
 title: My Sun and Your Star
 has_children: true
+tags: ["slow burn", "secret relationship", "honor student", "high school", "enemies to lovers", "co-dependence", "parental neglect", "high pressure", "time jump", "angst", "su1cidal behaviour", "safe", "complete"]
 ---
 ## Original Title
 
@@ -21,10 +22,18 @@ Watch as the girl who wanted to die and the girl living with her own burdens bec
 
 *Trigger warning: This story contains themes of suicide.
 
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
+
 ![My Sun and Your Star](/assets/images/sun-star-cover.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [雨野 天遊]
+Author: Amano Tenyū [雨野 天遊]
 
 [kakuyomu]: https://kakuyomu.jp/works/16818093075322842430
 [雨野 天遊]: https://kakuyomu.jp/users/rainten7777

@@ -1,6 +1,7 @@
 ---
 title: I Want to Lick Your Tears. I Want You to Glare at Me
 has_children: true
+tags: ["suggestive", "secret relationship", "high school", "honor student", "co-dependence", "crumbling facade", "angst", "ongoing"]
 ---
 ## Original Title
 
@@ -42,6 +43,14 @@ For now, just with those cold, cold eyes of yours that make me feel like I'm abo
 
 {: .warning }
 Content warnings: Cruel depictions / Violence / Sexual content
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ---
 

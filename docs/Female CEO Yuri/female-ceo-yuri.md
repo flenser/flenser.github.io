@@ -1,6 +1,7 @@
 ---
 title: A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks
 has_children: true
+tags: ["adult life", "seduction", "explicit", "angst", "yandere", "parental neglect", "age gap", "complete"]
 ---
 ## Original Title
 
@@ -20,6 +21,14 @@ It was only meant to be a temporary arrangement, until Yuno found a new place to
 But by the time she noticed, it was herself who was locked inside the cage.
 
 A perverse yuri story in which a perfect, cold woman is spoiled and slowly dissolves, sunk by the girl she picked up in an alley.
+
+{% if page.tags %}
+   <div style="margin-top: 1rem;">
+     {% for tag in page.tags %}
+       <a href="{{ site.baseurl }}/docs/tags.html#{{ tag | slugify }}" class="label label-blue">{{ tag }}</a>
+     {% endfor %}
+   </div>
+   {% endif %}
 
 ![Female CEO Yuri](/assets/images/female-ceo-yuri.jpg)
 

@@ -43,40 +43,40 @@ I was almost at the familiar spot, relief starting to come, when I ran straight 
 
 But we had an agreement not to speak at school. Right now I should be grateful for that.
 
-I moved to pass by Mei and go into the toilet, but for some reason she followed me in.
+I moved to pass by Morishita and go into the toilet, but for some reason she followed me in.
 
 "What? We don't talk at school."\
-"Nanoha, you look pale — did something happen?"\
+"Fujishiro, you look pale — did something happen?"\
 "Leave me alone."
 
-I needed Mei out of here as quickly as possible. Otherwise she'd witness something shameful. But she wouldn't leave. Irritation surged, and I threw the words at her harder than I meant to.
+I needed Morishita out of here as quickly as possible. Otherwise she'd witness something shameful. But she wouldn't leave. Irritation surged, and I threw the words at her harder than I meant to.
 
 "I feel sick, so just leave me alone!"\
 "I'll stand guard here so no one else comes in."
 
-Mei didn't move from in front of the door.\
+Morishita didn't move from in front of the door.\
 With her there, I couldn't concentrate.\
 But she was right that having anyone else come in would be a problem, and more than anything there was no time before the test.
 
-I gave up on Mei and went into a cubicle.
+I gave up on Morishita and went into a cubicle.
 
 Same as always — fingers pressed to the back of my throat. But only sounds came out, not what needed to. The important thing wouldn't come.
 
 Why?\
 It always works. Why not today?\
-Was it Mei being there, making me tense in some strange way, throwing me off?
+Was it Morishita being there, making me tense in some strange way, throwing me off?
 
 An odd sweat broke out across my whole body, and the nausea was making my consciousness begin to blur.
 
-"Nanoha, open up for a second."
+"Fujishiro, open up for a second."
 
-My heart was hammering — and then Mei's voice reached me, and the hammering strangely began to settle.\
+My heart was hammering — and then Morishita's voice reached me, and the hammering strangely began to settle.\
 I opened the door, and a girl with a troubled expression was standing there.
 
 "I'll help."\
 "What? Help how?"
 
-Mei said something incomprehensible and my thinking stopped entirely. She ignored what I'd said, turned my shoulder in a smooth pivot, and began rubbing my back.
+Morishita said something incomprehensible and my thinking stopped entirely. She ignored what I'd said, turned my shoulder in a smooth pivot, and began rubbing my back.
 
 "You won't manage it like that, all tensed up. Crouch down."\
 "Wait. What are you doing?"\
@@ -89,7 +89,7 @@ I couldn't disappoint my father any further.
 
 So I had no choice but to do as she said and crouch down.
 
-Mei's hand moved gently across my back, and my breathing began to settle with it.
+Morishita's hand moved gently across my back, and my breathing began to settle with it.
 
 Then slender fingers appeared from behind and touched my lips, and I clenched my teeth.
 
@@ -97,46 +97,46 @@ Then slender fingers appeared from behind and touched my lips, and I clenched my
 "Getting dirty is fine. You can't do it yourself, can you?"
 
 That wasn't the point.\
-This close, with Mei of all people watching — there was no way I could let her see me like this.
+This close, with Morishita of all people watching — there was no way I could let her see me like this.
 
 But I couldn't hold strong anymore, and the nausea had reached its limit, so I was too shaken to know what to do.
 
-Mei kept rubbing my back gently the whole time.
+Morishita kept rubbing my back gently the whole time.
 
 I was resisting at first, but I think I gave in to her kindness.
 
-The strength drained from my body quietly, and I stopped clenching my teeth. And then Mei's fingers slipped softly into my mouth.
+The strength drained from my body quietly, and I stopped clenching my teeth. And then Morishita's fingers slipped softly into my mouth.
 
 What followed was over so fast it felt almost ridiculous to have been struggling with it before.
 
-Everything that had been making me suffer came out, and Mei's clean hands were dirtied in the process.
+Everything that had been making me suffer came out, and Morishita's clean hands were dirtied in the process.
 
 Tears came too, and I was in a state no one should ever see.
 
 I breathed in and out again and again, steadying myself.
 
-When I glanced sideways, Mei was smiling.
+When I glanced sideways, Morishita was smiling.
 
-"So Nanoha makes that face too."\
+"So Fujishiro makes that face too."\
 "Awful."\
 "You won't make it in time if you don't hurry."
 
 Those words snapped me back to reality, and I rushed to rinse my mouth and put my toothbrush in.
 
-For some reason Mei was standing rooted to the spot right next to me. Still with the toothbrush in my mouth, I took her hand and worked soap into it thoroughly.
+For some reason Morishita was standing rooted to the spot right next to me. Still with the toothbrush in my mouth, I took her hand and worked soap into it thoroughly.
 
 However many times I washed it, the scene from just now surfaced sharp and clear in my head, and the shame and embarrassment rose until I couldn't look at her face.
 
-Mei's fingers had a red, swollen mark where my teeth had pressed hard against them. That mark made everything undeniably, unmistakably real.
+Morishita's fingers had a red, swollen mark where my teeth had pressed hard against them. That mark made everything undeniably, unmistakably real.
 
-"Mei, you idiot."\
+"Morishita, you idiot."\
 "If you're back to your usual self, that's good enough."\
 "Idiot..."
 
 That wasn't right.\
 There were things I needed to say properly.
 
-Mei looked satisfied, and let go of my hand.
+Morishita looked satisfied, and let go of my hand.
 
 "Okay. I'm going."
 
@@ -184,7 +184,7 @@ Not answering the things that mattered was Yudzuki's bad habit.
 But I decided pressing further would get me nowhere, and ended the conversation.
 
 There were things that mattered more than talking with Yudzuki.\
-I opened my phone and sent Mei a message: *Waiting at home.*
+I opened my phone and sent Morishita a message: *Waiting at home.*
 
 She might come. She might not.
 
@@ -194,7 +194,7 @@ When I got home, a quiet emptiness hung over everything, uncomfortable as always
 In the kitchen sink the rice bowl from breakfast was still there, and the memory of the morning came back, and a faint nausea rose with it.
 
 The worst.\
-Mei had seen the worst of me...
+Morishita had seen the worst of me...
 
 The regret had no bottom.\
 But without her, I might not have been able to get through the test properly.
@@ -203,38 +203,38 @@ I went back to my room and sat on the floor, leaning against the bed.
 
 The floor was very cold.
 
-I always made Mei sit here to study, and she never once complained about it.
+I always made Morishita sit here to study, and she never once complained about it.
 
 Her words could be cold and her attitude rough, but sometimes she turned gentle and reliable.
 
 Strange creature...
 
 Settling back into my own room settled something in me too, and the intercom rang, and I scrambled to it.\
-I opened the door and a sulky-looking Mei was staring back at me.
+I opened the door and a sulky-looking Morishita was staring back at me.
 
 "You came?"\
 "You're the one who told me to."
 
-Mei pattered inside.
+Morishita pattered inside.
 
 I held back the feeling rushing up in my chest, poured tea into a cup, and brought it to my room.
 
-Mei had already started reading manga.
+Morishita had already started reading manga.
 
-"Hey, Mei."\
+"Hey, Morishita."\
 "What."\
 "I want to talk for a bit."\
 "What."\
 "Look over here."
 
-Mei didn't seem likely to come down from the bed, so I lay down on it too and looked at her. She lay there with her eyes wide open, and placed the manga between our faces.
+Morishita didn't seem likely to come down from the bed, so I lay down on it too and looked at her. She lay there with her eyes wide open, and placed the manga between our faces.
 
 "What."\
 "I want to talk properly."\
 "This is fine as it is."\
 "I want to talk seriously."
 
-My tone must have been too grave, because Mei sat up, set the manga down, and leaned against the wall.
+My tone must have been too grave, because Morishita sat up, set the manga down, and leaned against the wall.
 
 I sat cross-legged on the bed and looked at her.
 
@@ -252,7 +252,7 @@ I hadn't wanted anyone to see me like that.
 
 Even now when I remembered it the shame and the wretchedness made me want to disappear.
 
-I'd tried not to think about it during the tests, but of all people, Mei had to see it — what a miserable thing.
+I'd tried not to think about it during the tests, but of all people, Morishita had to see it — what a miserable thing.
 
 "Being unwell isn't something you can help."\
 "It's not something I can just say is fine. Showing you something that awful, and getting you dirty on top of it..."
@@ -260,35 +260,35 @@ I'd tried not to think about it during the tests, but of all people, Mei had to 
 Unusually for me, my feelings surged and my voice trembled.\
 If I let my guard down even a little the tears would come.
 
-This wasn't what I'd wanted to say to Mei.
+This wasn't what I'd wanted to say to Morishita.
 
 I kept breathing in an odd rhythm, trying to pull myself back to normal.
 
-"Nanoha isn't dirty."\
+"Fujishiro isn't dirty."\
 "I am..."\
 "Haah..."
 
-Mei's sigh reached me, and my heart pressed hard against my chest and my breathing grew difficult.
+Morishita's sigh reached me, and my heart pressed hard against my chest and my breathing grew difficult.
 
 I didn't want her to think I was disgusting.
 
-Then my collar was tugged softly, and Mei's forehead came down against mine with a gentle knock.
+Then my collar was tugged softly, and Morishita's forehead came down against mine with a gentle knock.
 
-Her face was close and I panicked, but Mei's eyes were closed.
+Her face was close and I panicked, but Morishita's eyes were closed.
 
-"I showed you something dirty too. And Nanoha took care of it properly. So we're even."\
-"Even...? Mei isn't dirty."\
-"Nanoha isn't dirty either."
+"I showed you something dirty too. And Fujishiro took care of it properly. So we're even."\
+"Even...? Morishita isn't dirty."\
+"Fujishiro isn't dirty either."
 
 Somehow her voice felt like it was resonating directly inside my head, and my chest pulled tight.
 
 The heat behind my eyes spread slowly.
 
-"Mei, you idiot."\
-"More of an idiot than Nanoha, probably."\
+"Morishita, you idiot."\
+"More of an idiot than Fujishiro, probably."\
 "Idiot..."\
 "Yes, yes."\
-"...Mei, thank you."\
+"...Morishita, thank you."\
 "Mm."
 
-That day, without a word, Mei stayed beside me until my heart had settled.
+That day, without a word, Morishita stayed beside me until my heart had settled.

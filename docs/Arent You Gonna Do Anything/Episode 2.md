@@ -1,7 +1,7 @@
 ---
 layout: episode-flat
 nav_order: 2
-parent: "A Yuri About Being Asked `Hey, Aren't You Gonna Do Anything?` by an Older Colleague"
+parent: 'A Yuri About Being Asked "Hey, Aren''t You Gonna Do Anything?" by an Older Colleague'
 sequence: 3
 title: "Episode 2: Isn't That Distance a Little Unfair."
 ---
