@@ -17,6 +17,7 @@ nav_exclude: true
 - [From the Place Without Barlines ✅](/docs/From the Place Without Barlines/place-without-barlines.html)
 - [Good Night, Sleeping Beauty](/docs/Good Night, Sleeping Beauty/sleeping-beauty.html)
 - [How about afternoon tea? ✅](/docs/How about afternoon tea/how-about-afternoon-tea.html)
+- [I Stopped Being Possessive, and Then She Fell Apart](/docs/Stopped Being Possessive/stopped-being-possessive.html)
 - [I Want to Lick Your Tears. I Want You to Glare at Me](/docs/I Want to Lick Your Tears/i-want-to-lick-your-tears.html)
 - [If you kiss me, I'll tell you ✅](/docs/If you kiss me, I'll tell you/if-you-kiss-me.html)
 - [Love Grows in the Classroom After School ✅](/docs/Love Grows in the Classroom/love-grows-in-classroom.html)
