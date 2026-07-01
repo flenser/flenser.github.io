@@ -70,7 +70,7 @@ Her words seeped into me, slow and deep.
 I bit my lip and glared at her.
 
 "Why not?"\
-"Because Hoka is mine... I don't want to let go."
+"Because Honoka is mine... I don't want to let go."
 
 My voice was trembling.\
 Shiori narrowed her eyes slightly, her gaze taking on something testing.
@@ -85,7 +85,7 @@ The words stuck in my throat.
 "It is. I was watching."
 
 Shiori's quiet voice cut in somewhere it shouldn't have been able to reach.\
-It wasn't as if I'd never seen Hoka's expression cloud over.\
+It wasn't as if I'd never seen Honoka's expression cloud over.\
 But even so. Even so, I didn't want to let go.
 
 "...Then what am I supposed to do?"

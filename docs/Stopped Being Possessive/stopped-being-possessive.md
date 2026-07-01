@@ -15,7 +15,7 @@ tags: ["suggestive", "high school", "yandere", "co-dependence", "ongoing"]
 
 To Nanase Yuna, Shiraishi Honoka was "hers alone."\
 She wanted to be closer to her than anyone, loved more than anyone — so pushing away the people around Honoka, monopolizing her side, had become second nature.\
-But then Hoka tells her she wants time to talk with others, to connect with people too...
+But then Honoka tells her she wants time to talk with others, to connect with people too...
 
 {% if page.tags %}
    <div style="margin-top: 1rem;">
