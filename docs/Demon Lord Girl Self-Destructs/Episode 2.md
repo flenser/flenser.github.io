@@ -49,7 +49,7 @@ I tilted my head, and Teresia explained.
 
 Teresia cut off my question before I could press her on what felt like a remark I shouldn't let slide.
 
-"Your body, which carried the demon lord's supernatural power, sustained what should have been a fatal wound from the demon sword, which itself carried a matching supernatural power. I believe the demon lord's vitality and the demon lord's lethality collided and cancelled each other out."\
+"Your body, which carried the demon lord's supernatural power, sustained what should have been a fatal wound from the demon sword, which itself carried a matching supernatural power. I believe the demon lord's vitality and the demon sword's lethality collided and cancelled each other out."\
 "So something like a contradiction happened?"\
 "In this case, the two forces happened to be of roughly equal strength. In any case, thanks to that, the final damage you sustained barely stopped just short of being fatal. A blessing in disguise, I suppose..."\
 "Even if it was a coincidence, I think we owe the gods some thanks for this one."\
