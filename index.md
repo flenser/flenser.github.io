@@ -28,6 +28,7 @@ nav_exclude: true
 - [My Neighbor, Kataba-san](/docs/Neighbour Kataba/neighbour-kataba.html)
 - [She, expressionless and transparent, seems to be someone you could hold tight if you paid the price ✅](/docs/She seems to be someone you could hold tight if you paid the price/embrace-for-a-price.html)
 - [The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing "Yuri Friends" ✅](/docs/Blackmailed by Blonde Gyaru/blackmailed-by-blonde-gyaru.html)
+- [The Introvert Whose Only Redeeming Feature Is Her Face Somehow Built a Yuri Harem ~A Former Young Lady Becomes a "Maid" in Akihabara~](/docs/Yuri Maid Harem/maid-harem.html)
 - [The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl](/docs/Princess Girl Trying to Win Over Prince Girl/princess-wins-prince.html)
 - [The Story of the Woman Who Ended Up Sleeping with the Club Princess ✅](/docs/Woman Sleeping with Princess/woman-sleeping-with-princess.html)
 - [The White Witch and the Black Witch — A Twisted Secret Between Them ✅](/docs/White Witch, Black Witch/white-witch-black-witch.html)
