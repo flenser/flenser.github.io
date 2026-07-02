@@ -1,5 +1,13 @@
+---
+layout: episode-flat
+nav_order: 6
+parent: Demon Lord Girl Self-Destructs ~The World Has Been Saved, But the Saint Won't Let Go of Me~
+sequence: 6
+title: Episode 6
+---
 ## Episode 6
 
+\
 First things first: Teresia is a good person.\
 That is an incontrovertible fact, an absolute truth beyond any dispute.\
 Not because she's a saint — she was already that kind of person, a creature made almost entirely of goodness, back when she was just a childhood friend to me and nothing more.\
