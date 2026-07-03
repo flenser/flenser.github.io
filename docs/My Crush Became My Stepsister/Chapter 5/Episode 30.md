@@ -4,7 +4,7 @@ layout: episode
 nav_order: 30
 parent: "The Distance Between Sisters"
 sequence: 30
-title: "Episode Thirty"
+title: Episode Thirty
 ---
 ## Episode Thirty
 
