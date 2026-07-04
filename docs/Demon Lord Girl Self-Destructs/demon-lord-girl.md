@@ -29,7 +29,7 @@ And so she takes the demon sword in her own hands and drives it into her chest..
 
 ![Demon Lord Girl Self-Destructs](/assets/images/demon-lord-girl.jpg)
 
-The original Japanese Web Novel can be found on [kakuyomu].\
+The original Japanese Web Novel can be found on [kakuyomu]\
 Author: Karasuba [カラスバ]
 
 [kakuyomu]: https://kakuyomu.jp/works/2912051602784115773
