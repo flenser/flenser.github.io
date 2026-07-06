@@ -9,7 +9,7 @@ tags: ["suggestive", "fantasy", "yandere", "violence", "co-dependence", "ongoing
 
 ## Synopsis
 
-### A girl who became a demon lord at the end of her journey, and a saint girl bearing down on her with crushing emotions.
+### A girl who became a demon lord at the end of her journey, and a saint girl bearing down on her with crushing emotions
 
 ---
 
