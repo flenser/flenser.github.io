@@ -42,7 +42,7 @@ A chaotic yuri rom-com overflowing with beautiful girls!
    </div>
    {% endif %}
 
----
+![Yuri Maid Harem](/assets/images/yuri-maid-harem.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: Yatsuboshi Kohaku [八星　こはく]
