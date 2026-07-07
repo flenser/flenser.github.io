@@ -1,5 +1,13 @@
-# Episode 8: Because It's You, Möbius-san
+---
+layout: episode-flat
+nav_order: 8
+parent: 'The Introvert Whose Only Redeeming Feature Is Her Face Somehow Built a Yuri Harem ~A Former Young Lady Becomes a "Maid" in Akihabara~'
+sequence: 8
+title: "Episode 8: Because It's You, Möbius-san"
+---
+## Episode 8: Because It's You, Möbius-san
 
+\
 "I don't have a body towel, so I'll just use my hands, if that's alright..."\
 "Yeah, that works better for me."
 
