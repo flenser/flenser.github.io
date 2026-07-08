@@ -1,7 +1,7 @@
 ---
 title: I Stopped Being Possessive, and Then She Fell Apart
 has_children: true
-tags: ["suggestive", "high school", "yandere", "co-dependence", "ongoing"]
+tags: ["suggestive", "high school", "yandere", "co-dependence", "angst", "ongoing"]
 ---
 ## Original Title
 
@@ -25,7 +25,7 @@ But then Honoka tells her she wants time to talk with others, to connect with pe
    </div>
    {% endif %}
 
----
+![I Stopped Being Possessive](/assets/images/stopped-being-possessive.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: Hagedachi [ハゲダチ]
