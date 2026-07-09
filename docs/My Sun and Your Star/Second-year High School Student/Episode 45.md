@@ -54,7 +54,7 @@ She said it with such a ‘hehe, just kidding’ sort of tone, so I brushed her 
 Hikari knows how to joke around when she’s joking, but when she’s serious, she speaks in a manner befitting her age, so I often found myself unable to keep up with the contrast.
 
 When I asked her about herself, I discovered some rather troublesome facts.\
-　It seeHikari-san has cut ties with her parents.\
+It seems Hikari-san has cut ties with her parents.\
 It looks like she’s run away from home.\
 A runaway beauty...
 
