@@ -57,7 +57,7 @@ I remember this day clearly.\
 The day Chitaira Kai became *Kai*.\
 The day she became *my* Kai, and no one else's.\
 Some things I will never forget. Others, I find I can't quite recall.\
-When did I begin to fall for Kai.\
+When did I begin to fall for Kai?\
 When I stepped into her family's business? When I held her trembling hand? When she kissed me?\
 Or the moment I first saw those eyes?\
 Was I, at this point, truly trying to save Kai out of nothing more than sympathy, a sense of justice, pity?\
