@@ -343,7 +343,7 @@ The mother was trying to calm the little boy, who was kicking and squirming.
 ‘I wanted to play with the dolphins…’
 
 　The boy looked as if he was about to burst into tears at any moment.\
-Her father lifted him up and hoisted him onto his shoulders.
+His father lifted him up and hoisted him onto his shoulders.
 
 “Let’s come back soon. We’ll see them again.”\
 “Really? Then I’ll wait patiently until we meet them again.”\
