@@ -54,7 +54,7 @@ I want to respond to Takisawa’s feelings, but contrary to those feelings, my o
 
 ‘I like you.’
 
-Where can I vent this agony of not being able to convey those two words? The more I think about it, the more my consciousness is sucked into a dark abyss. It’s just like a black hole.
+Where can I vent this agony of not being able to convey those three words? The more I think about it, the more my consciousness is sucked into a dark abyss. It’s just like a black hole.
 
 I’ll stop thinking about it for now.
 
