@@ -147,14 +147,14 @@ There were plenty of other empty spots, so why did she go out of her way to stan
 
 “Takisawa, you pervert. You’re staring too much.”
 
-　Saying that, she suddenly pretended to cover himself, which made me feel even more embarrassed, so I aimed the shower at Endo-san to avoid looking at her face.
+　Saying that, she suddenly pretended to cover herself, which made me feel even more embarrassed, so I aimed the shower at Endo-san to avoid looking at her face.
 
 “Takisawa, you do things like that?”
 
 　She looked really surprised, but there was a hint of amusement in her expression. Somehow, I felt like I was the only one who wasn’t keeping my cool, and I began to hate being here.
 
 　Endo’s naked body was beautiful.\
-　Her figure, the colour of her skin, his contours…\
+　Her figure, the colour of her skin, her contours…\
 　I was left dumbfounded, wondering if there was a single flaw in her.
 
 As the bath had an open-air section, we decided to make the most of it. By then, other students were starting to trickle in.

@@ -125,7 +125,7 @@ Takisawa buried half her face in her scarf and looked straight ahead. Knowing th
 “And you apologise too much.”\
 “S-sor-…”
 
-　My words were cut off by Takisawa’s thumb. She traced my lips with his finger.
+　My words were cut off by Takisawa’s thumb. She traced my lips with her finger.
 
 “Ta-Takisawa…”\
 “Hmph. You’re really weird, Endo-san. Aren’t you having fun?”\

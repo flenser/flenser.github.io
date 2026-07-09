@@ -139,7 +139,7 @@ Both had beautiful, striking colours.
 Takisawa's reaction to my comment was a bit lukewarm. She seemed uninterested in everything. No matter what I said, she always seemed a bit distracted.
 
 　Does Takisawa even have any likes?\
-Lately, I've found myself increasingly preoccupied with thoughts like this about him.
+Lately, I've found myself increasingly preoccupied with thoughts like this about her.
 
 "It's nearly ten. I'll be heading home."
 

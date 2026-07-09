@@ -105,7 +105,7 @@ I've never liked anyone romantically.
 
 So I don't understand romantic feelings.
 
-I am grateful to Takisawa and wanted to be friends, to get closer to him.\
+I am grateful to Takisawa and wanted to be friends, to get closer to her.\
 I always felt like I was just being helped, so I wanted to repay the favour.
 
 I thought that was all it was.

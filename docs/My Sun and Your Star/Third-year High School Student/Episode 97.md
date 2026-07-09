@@ -58,7 +58,7 @@ Because I’d been gazing at Takisawa during the lesson just now, I’d missed a
 
 Having cleared up everything I didn’t understand, Takisawa seemed satisfied and moved away from my desk.
 
-As soon as Takisawa left, the right side of my body suddenly went cold. She didn’t return to his own desk, but went out into the corridor and disappeared somewhere.
+As soon as Takisawa left, the right side of my body suddenly went cold. She didn’t return to her own desk, but went out into the corridor and disappeared somewhere.
 
 ‘Sora-san really is something, isn’t she? Hina, you’re staring at Sora-san far too much during class. And you’re looking as red as an apple.’
 

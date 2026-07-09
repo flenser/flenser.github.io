@@ -22,7 +22,7 @@ She didn’t look as though she was going to wake up.
 Endo’s lips were soft and felt lovely.\
 I suppose that’s why I want to touch them so much.
 
-Just as I was about to touch those lips again, Endo opened his eyes.
+Just as I was about to touch those lips again, Endo opened her eyes.
 
 ‘You pervert, Takisawa… attacking me in my sleep?’
 
@@ -66,7 +66,7 @@ Endo-san took my hand.
 
 “Wow, I’m really looking forward to this! Let’s all have a great day today!”
 
-Ando-san was in high spirits right from the morning, and it was quite a struggle to keep up with him. At the amusement park, Ando-san and Mai took the lead in showing us around.
+Ando-san was in high spirits right from the morning, and it was quite a struggle to keep up with her. At the amusement park, Ando-san and Mai took the lead in showing us around.
 
 Izumi-chan, who had been glued to Endo-san yesterday, was now glued to Yamamoto-san today, so the fluttering in my chest had settled down.
 

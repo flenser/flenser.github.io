@@ -50,10 +50,10 @@ When I asked what had happened, it seems she’d found a lost child and couldn�
 
 　That’s so typical of Takisawa.
 
-Even at a time like this, she’d rather help a child in trouble than enjoy himself. Takisawa may be a bit clumsy, but she has a wonderfully kind heart, and I know that better than anyone.
+Even at a time like this, she’d rather help a child in trouble than enjoy herself. Takisawa may be a bit clumsy, but she has a wonderfully kind heart, and I know that better than anyone.
 
 I decided to help Takisawa.\
-She was giving the lost child, a girl called Hana-chan, ride on her shoulders to keep her entertained.
+She was giving the lost child, a girl called Hana-chan, a ride on her shoulders to keep her entertained.
 
 Watching her like that, I couldn’t help but smile.
 

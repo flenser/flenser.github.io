@@ -145,7 +145,7 @@ It was a bit frustrating to admit it, given the smug look on Endo-san’s face, 
 
 Every time, after I’ve finished eating, I think I should have savoured it more.
 
-Once I’d finished clearing up, Endo-san called me into his room.
+Once I’d finished clearing up, Endo-san called me into her room.
 
 When I entered the room, Endo-san handed me a gift bag.
 
