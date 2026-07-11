@@ -33,9 +33,9 @@ The reason is simple.
 
 　I want to become an architect.
 
-　My father was an architect, so I’ve looked up to her since I was little.
+　My father was an architect, so I’ve looked up to him since I was little.
 
-　My father designed the entire layout of this house. The layout, with its attention to every detail, is just like her.
+　My father designed the entire layout of this house. The layout, with its attention to every detail, is just like him.
 
 　A home is a great source of support for those who live in it. It also becomes a precious place where one lives with loved ones.
 
@@ -81,7 +81,7 @@ I want to ask her why she did that, but if I do, I’m sure she won’t speak to
 
 I’m so preoccupied with Takisawa… I want to know her better, but this distance is so frustrating…
 
-Despite these worries, I left home determined to focus on today’s match.\
+Despite these worries, I left home, determined to focus on today’s match.\
 The match, Takisawa, university.
 
 There’s so much to think about, and I’m constantly filled with anxiety.
