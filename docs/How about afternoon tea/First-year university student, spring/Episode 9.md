@@ -1,200 +1,204 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 9
 parent: First-year university student, spring
 sequence: 9
-title: 'Episode 9: Have You Sobered Up Yet?'
+title: 'Episode Nine: Have You Sobered Up Yet?'
 ---
-Episode 9: Have You Sobered Up Yet?
+## Episode Nine: Have You Sobered Up Yet?
 
-Guided by the location details of the bar sent by Ritsu-san, my body cut through the night breeze at a breathless pace, heading towards Yui-san.
+\
+Relying on the location Ritsu-san had sent me, I cut through the night air, my body moving fast enough to leave me breathless, heading straight for Yui-san.
 
-After that, I returned to my seat and immediately apologised to Hayakawa-kun, telling him I had something come up and would be going.
+After that, I'd gone right back to the table, apologized to Hayakawa-kun, and told him something had come up and I had to go.
 
-　I felt terribly guilty for having eaten my fill, yet the photo Ritsu-san had sent wouldn't leave my mind, leaving a gnawing ache deep in my chest.
+Guilty about eating and running, but the photo Ritsu-san had sent wouldn't leave my head, and something rough and unpleasant sat lodged in my chest, impossible to shake.
 
-I'd known from the start she was that sort of person. She had a side I didn't know. A face she hid from me.
+I'd known from the start she was this kind of person. There's a side to her I don't know. A face she keeps hidden from me.
 
-It wasn't about being homosexual or heterosexual; it was like a wall separating Yui-san and me.
+It had nothing to do with her being gay or straight — it was more like some kind of wall standing between me and Yui-san.
 
-　I didn't know what had happened to Yui-san after I left home today. She'd offered to pick me up after my shift, so at least by morning, she hadn't had any plans.
+I don't know what happened to Yui-san after I left the house today. She'd offered to come pick me up after my shift, so at least that morning, she can't have had plans yet.
 
-She might have gone out drinking to drown her sorrows, and I could imagine her hitting on a woman in the course of that.
+Maybe she'd gone out drinking to blow off steam, and things had drifted from there into flirting with some woman, I could imagine that much.
 
-Or perhaps something had happened much earlier, something so awful she'd drunk too much. If she'd told me, I wouldn't have left the house either.
+Or maybe something had happened even earlier, something bad enough to drink that much over. If she'd just told me, I wouldn't have left the house at all.
 
-　The woman she was holding looked delighted.
+The woman she'd been holding had been smiling, happy.
 
-Seeing that expression, for a moment, just a moment. I thought something I shouldn't have.
+Seeing that expression, for one moment, just the briefest moment, I thought something I shouldn't have.
 
-That that was my place, or something.
+*That's my spot.*
 
-She'd said she'd hold me when I felt lonely. Yet it dawned on me that for Yui-san, I wasn't the one she wanted to hold when she felt lonely.
+She'd told me she'd hold me when I felt lonely. Seeing this, I felt like I finally understood — when Yui-san felt lonely, it wasn't me she wanted holding her.
 
-The bar was tucked away in a corner of the drinking district. As only those over twenty were allowed in, I called Ritsu-san from outside the entrance. She answered immediately.
+*
 
-'Ah, Kanata-chan, have you arrived?'
+The bar sat in a corner of the drinking district. Since you had to be twenty to get in, I called Ritsu-san from outside the entrance. She picked up right away.
 
-"Yes, I'm outside the bar."
+*"Oh, Kanata-chan, you here?"*
 
-'Right, I'll come and meet you now. ...Right then, Yui, you should head home now.'
+"Yes, I'm outside."
 
-Over the phone, amidst the music, I could hear a voice saying something like, "Eh? You're leaving already?" Was it the girl from earlier?
+*"Okay, bringing her out now. ...C'mon, Yui, time to go home."*
 
-'Kanata-chan, I'll hang up now.'
+Through the phone, mixed in with the music, I could hear a voice — something like *eh, you're leaving already?* Probably that girl from before.
 
-"...Yes."
+*"Kanata-chan, hanging up for a sec."*
 
-I waited, fidgeting, for the two of them to arrive. Every minute, every second felt incredibly long.
+"...Okay."
+
+I waited, restless, for the two of them to appear. Every second felt impossibly long.
 
 "Yui, come on, walk straight."
 
-"I am walking straight."
+"I am walking straight~"
 
-Yui-san emerged from the bar, practically being carried by Ritsu-san. One glance told me she was dead drunk.
+Yui-san came out of the bar half-carried by Ritsu-san. One look told me she was completely wasted.
 
-　I had plenty I wanted to say, but I held it back, swallowed it down, and raised my hand lightly.
+There was plenty I wanted to say, but I swallowed it all down and gave a small wave instead.
 
 "Ritsu-san!"
 
-"Ah, Kanata-chan, sorry about this, it's all this idiot's fault."
+"Ahh, Kanata-chan, sorry, this idiot's fault."
 
-"Huh? Why are you here, Kanata?"
+"Huh, why's Kanata here?"
 
-Only now noticing me, Yui-san stared at me with eyes clouded by alcohol.
+Only just noticing, Yui-san turned bleary, alcohol-glazed eyes on me.
 
-"She came to fetch you, you see."
+"She came to pick you up, you know."
 
-"That won't do, Kanata. Did you come alone? Wandering about places like this is dangerous."
+"No good, Kanata, you came alone? It's dangerous wandering around a place like this."
 
-I thought she should be more worried about herself than me, but I kept it to myself. This wasn't the time to deal with a drunk.
+*I'm more worried about you than the other way around,* I thought, but swallowed that too. Not the moment to be arguing with a drunk.
 
-"...Why did you drink until you ended up like this?"
+"...Why did you drink this much?"
 
-I often saw her drinking while watching films at home, but this was the first time I'd seen her this drunk.
+I'd often seen her drinking while watching movies at home, but this was the first time I'd seen her this drunk.
 
-　I always thought Yui-san could hold her liquor rather well. She never seems to change colour.
+I'd always thought Yui-san held her liquor pretty well. Her expression never so much as shifted.
 
-"Well, I don't know. I tried to stop her, but she just kept knocking it back..."
+"Dunno. Tried to stop her but she just kept going..."
 
-Ritsu-san seemed troubled too. Basically, she wanted me to take her home and sort things out.
+Ritsu-san looked worn out too. Basically asking me to just take her off her hands and deal with it.
 
-"Right then," I nodded, raising my hand towards the road. Luckily, a taxi stopped immediately.
+I nodded — *got it* — and raised a hand toward the road. Luckily, a taxi pulled over right away.
 
-"Ah, Yui, this is from that girl earlier. She asked me to give it to you. She said to get in touch."
+"Oh, Yui, this is from that girl earlier. Asked me to give it to you. Said to text her."
 
-Ritsu shoved a scrap of paper into Yui's pocket and pushed her into the open door. I followed her into the cab.
+Ritsu-san shoved a scrap of paper into Yui-san's pocket and pushed her through the open door. I climbed in right after.
 
-"Thanks, Kanata-chan. You've saved me. I'll buy you something next time."
+"Thanks, Kanata-chan. Really saved me there. I'll treat you to something next time."
 
-Through the taxi window, Ritsu flashed a wink and headed back to the bar.
+Ritsu-san gave a sharp wink through the taxi window and headed back into the bar.
 
-After telling the driver our destination, the car began to glide gently through the night streets.\
-The shoulder where I'd touched Yui felt hot, as if it were burning.
+I told the driver where to go, and the car eased into motion through the night streets.
 
-Even though I wasn't even twenty yet, I was here at a bar – dangerous, they'd say. Or that I shouldn't be walking alone through the drinking district. I tuned out the drunken lectures, struggling instead to sort out the emotions smouldering deep within me.
+Where Yui-san's shoulder pressed against mine, it felt hot, almost burning.
+
+*Coming to a bar when you're not even twenty is dangerous, you shouldn't walk through the drinking district alone* — I let her drunken lecturing wash over me while I struggled, with everything I had, to sort out the feeling smoldering somewhere deep inside.
 
 ＊＊＊
 
-"Don't fall over, now."
+"Please don't fall."
 
-"I'm fine, I'm not that drunk."
+"I'm fine~, not even that drunk."
 
-Pulling Yui-san's arm, I somehow managed to get her to the living room and breathed a sigh of relief.
+I managed to drag Yui-san by the arm all the way to the living room, and let out a breath of relief.
 
-Yui-san was slender, but she was about ten centimetres taller than me. If she really leaned on me, I wasn't confident I could support her.
+Yui-san is slight, but she's about ten centimeters taller than me, so if she really leaned her full weight on me, I wasn't confident I could hold her up.
 
-"Please sit down. I'll get you some water."
+"Sit down, I'll get you some water."
 
-I placed the glass on the counter, opened the fridge, and took out a bottle of mineral water.
+I set a glass on the counter, opened the fridge, and pulled out mineral water.
 
-My priority now was looking after Yui, who was drunk. Honestly, though, my mind was in turmoil.\
-I couldn't understand why I felt so utterly helpless.\
-The image of Yui embracing another woman wouldn't leave my head.
+The priority right now is taking care of a drunk Yui-san. Honestly, my head was a mess inside, but still.\
+I don't understand why I feel this frustrated, this helpless.\
+The photo of Yui-san holding another woman won't leave my head.
 
-My chest felt queasy. I felt like lashing out.
+Something churns, ugly, deep in my chest. Makes me want to lash out at something.
 
-Why? Even though I'm closer to her than anyone else right now, I couldn't accept that when Yui-san was troubled or hurt, she'd seek comfort from another woman.
+Why? Right now I'm closer to her than anyone else, and yet I can't accept that when something upsets or hurts Yui-san, it's some other woman who gets to comfort her.
 
-That's why I was furious. Furious at my own helplessness – that even at a time like this, I wasn't chosen, that I was so unreliable.
+That's why I'm angry. At my own uselessness — not being chosen even now, apparently not reliable enough.
 
-As I poured water into the glass, lost in these thoughts, suddenly, I was embraced from behind and my body swayed.
+While I was pouring water into the glass, turning that over in my head, someone suddenly wrapped their arms around me from behind, and my whole body swayed.
 
-　Water spilled from the glass onto the counter.
+Water spilled from the glass across the counter.
 
-"...Yui?"
+"...Yui-san?"
 
-Yui's arms wrapped around my waist. Her grip was unexpectedly firm, and through our tightly pressed backs, I felt her warmth.
+Yui-san's hand circled my stomach. Stronger than I expected, and I could feel the warmth of her through where our backs pressed flush together.
 
-"...Kanata, how was your date today?"
+"...So, Kanata, how was your date today?"
 
-Her voice, softer and sweeter than usual from the alcohol, whispered against my ear, sending a shiver down my spine.
+Whispered in a voice softer and sweeter than usual, thanks to the alcohol, and a shiver ran down my spine.
 
-　Why ask that now? And this position... What was it? That photo came back to me. She'd held that girl just like this.
+Why is she asking that, now, of all times. And what is this position. That photo came flooding back. This was exactly how she'd been holding that girl.
 
-"...Yui-san, haven't you had a bit too much to drink? Please let go."
+"...Yui-san, aren't you a little too drunk right now? Let go."
 
-"It's fine, come on, tell me."
+"C'mon, it's fine, tell me."
 
-Her arms tightened around me. It felt like she was rubbing salt into the raw wounds in my heart.
+Her arms tightened. It felt like she was rubbing salt straight into some raw, frayed place inside me.
 
-　How was your date? What on earth do you want to know? You couldn't care less about me. You don't give a damn.
+How was my date? What was even the point of asking that. She has zero interest in me. Doesn't care either way.
 
-Just before heading to meet Yui-san. Hayakawa-kun told me he liked me. He said he didn't need an answer yet, he just wanted to tell me how he felt.
+Just a little before I'd headed to Yui-san. Hayakawa-kun had told me he liked me. Said he didn't need an answer yet, he just wanted to say it.
 
-Hayakawa-kun, who didn't even give me a chance to refuse, might not have been as nice a person as I thought.
+A man who wouldn't even give me the chance to turn him down properly — maybe he wasn't quite as good a person as I'd thought.
 
-　They say gamesmanship matters in romance, but that sort of thing is difficult for me. Never mind, I don't really get it. Could someone just put this feeling of mine into simple words for me?
+They say romance is all about strategy, but that kind of thing is beyond me. Whatever, forget it, I don't get any of it. Could someone please just put this feeling of mine into simple words for me.
 
-"...It was nice. He confessed. Hayakawa-kun said he likes me. I haven't replied yet, though."
+"...It was fun. He confessed to me. Hayakawa-kun said he likes me. Haven't given him an answer yet, though."
 
-I felt Yui-san's hand tense, twitch.
+I felt Yui-san's hand tense, just slightly.
 
-"Hmm... I see. Are you going to go out with him?"
+"Hmm... I see. Gonna date him?"
 
-Her voice sounded slightly muffled, perhaps because she was pressing her forehead firmly against my shoulder.
+Yui-san pressed her forehead into my shoulder, rubbing slightly, and her voice came out a little muffled because of it.
 
-"...It's none of your business, Yui-san."
+"...That's none of your business, Yui-san."
 
-If that's how you feel, then I won't say anything either. You probably just think of me as nothing more than a troublesome junior anyway.
+If that's how you're going to be, then I won't say anything either. You probably just think of me as some annoying underclassman anyway.
 
-　The moment I spat out that feigned bravado, the arms holding me loosened.
+The instant I spat out that last bit of forced bravado, the arms around me let go.
 
-Or so I thought, until she grabbed my shoulders and suddenly slammed my back against the wall with a thud.
+And then, before I could register it, my shoulder was seized, and I was shoved back hard against the wall.
 
-It happened so fast I didn't comprehend what was happening. The instant I looked up at Yui-san, I gasped at the unexpectedly close distance.
+It happened so fast I had no idea what was going on, and the moment I looked up at Yui-san, I caught my breath at how much closer she was than I'd expected.
 
-She yanked my chin up. Just as I thought, 'Ah...'—her perfectly chiselled face was right there.
+My chin was tilted up, and just as I thought *ah* — Yui-san's face, so perfectly composed, was right there.
 
-The soft sensation pressed against my lips. A faint hint of grapefruit flavour.
+Something soft pressed against my lips. A faint hint of grapefruit.
 
-Everything crammed inside my head exploded in an instant, leaving me blank.
+Everything crammed inside my head burst apart at once, and went white.
 
-I froze, unable to comprehend what had happened. It must have been only a few seconds, but the scent of another woman mingling with Yui-san's perfume dragged me back to reality. It grated on my nerves.
+I couldn't process what had happened, frozen in place. It was probably only a few seconds, but the scent of some other woman, mixed into Yui-san's perfume, dragged me straight back to reality. Scraped against every nerve.
 
-　The thoughts I’d thought scattered returned in a rush, and I shoved Yui-san hard in the shoulder.
+The thoughts that had scattered came rushing back all at once, and I shoved Yui-san's shoulder as hard as I could.
 
-Seeing her fall backwards onto her backside, I let my emotions take over and, before I knew it, had poured a glass of water over her head.
+Before I even knew what I was doing, I'd dumped the glass of water over her head as she landed on the floor.
 
-"...You... you..."
+"...C-cold..."
 
-She pushed back her wet fringe, furrowed her brow slightly, looking annoyed, and gazed up at me listlessly. I glared back. So Yui-san can make expressions like this too.
+She pushed her wet bangs back, looking up at me with a faintly irritated, weary expression, and I glared down at her. So she makes that face too.
 
-"...Are you sober now?"
+"...Have you sobered up yet?"
 
-Wiping my lips with the back of my hand, tears inexplicably welled up.
+Wiping my mouth with the back of my hand, tears welled up unexpectedly.
 
-"You're the worst..."
+"...You're the worst."
 
-As a tear spilled over and fell, Yui-san's eyes widened in alarm for a moment.
+The moment the tears spilled over, Yui-san's eyes went wide, flustered.
 
-I realised instantly: this person has never had the experience of kissing someone who rejected them.
+I understood right away — this person has never once kissed someone who didn't want it.
 
-　It was infuriating, truly unforgivable.
+Infuriating. It made me furious, and I couldn't forgive that part of her, not really.
 
 "...S-sorry."
 
-I brushed past Yui-san, who tried to stop me, and barricaded myself in my room. Click. After locking the door, Yui-san said something from the other side, but I ignored it all and crawled under the covers.
+I pushed past Yui-san as she tried to stop me and shut myself in my room. After locking the door with a sharp click, Yui-san said something from the other side, but I ignored all of it and burrowed into bed.
 
-I'd made up my mind. Today, absolutely, this door wouldn't open.
+I've decided. This door is absolutely not opening today.

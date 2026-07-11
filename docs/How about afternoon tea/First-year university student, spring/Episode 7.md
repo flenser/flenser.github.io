@@ -1,290 +1,295 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 7
 parent: First-year university student, spring
 sequence: 7
-title: 'Episode 7: Fancy Having Sex with Me?'
+title: 'Episode Seven: Want to Try Having Sex With Me?'
 ---
-Episode 7: Fancy Having Sex with Me?
+## Episode Seven: Want to Try Having Sex With Me?
 
-"Eh? Like, between women?"
+\
+"Eh, how it works between two women?"
 
-"Shhh! Ritsu-san, your voice is too loud!"
+"Shh! Ritsu-san, your voice!"
 
-A quiet weekday afternoon in the café.
+A weekday afternoon at the café, customers thin on the ground.
 
-Suddenly, words entirely unsuitable for a peaceful tea time were uttered, and I hurriedly silenced Ritsu-san.
+A line so out of place for a mild teatime had come flying out of nowhere, and I scrambled to shush her.
 
-　Perhaps unable to grasp the intent behind the question, Ritsu-san looked puzzled as she picked a macaron from the cake stand and popped it into her mouth.
+Maybe she hadn't caught the intent behind the question, because Ritsu-san just made a puzzled face and popped a macaron off the cake stand into her mouth.
 
-Thankfully, I’d only seated Ritsu-san at the counter so other customers couldn’t hear. I breathed a sigh of relief.
+Good thing I'd only seated her at the counter, where no other customers could overhear. I breathed a small sigh of relief.
 
-As for why Ritsu-san was at my part-time job’s café… Well, it was because I'd invited her. I'd said, "We're doing an afternoon tea set at our shop, so please come if you'd like."
+As for why Ritsu-san was even at my part-time café — it's because I'd invited her, telling her we had an afternoon tea set and she should come try it if she liked.
 
-Of course, I wasn't doing it purely for the shop's sales.
+Not, of course, that I was drumming up business for the shop's sake.
 
-It was because I had something I wanted to ask Ritsu-san, who is Yui-san's friend.
+I had something I wanted to ask Ritsu-san, Yui-san's friend.
 
-That thing I wanted to ask... well, it basically brings us back to the question at the beginning.
+And that something, well, loops right back around to the question at the very top.
 
-I was surprised when Ritsu-san actually dropped by straight after university on the very day I invited her.\
-　Yui once said, "Ritsu's best quality is her quick response. If you invite her for drinks, she always comes," and it seems that wasn't entirely untrue.
+I'd been surprised that on the very day I invited her, Ritsu-san swung by straight from campus.\
+Yui-san had said once, "Ritsu's good thing is how light on her feet she is — invite her for drinks and she'll always show up," and apparently that wasn't an exaggeration.
 
-"...Why not just ask Yui? Wouldn't that be quicker?"
+"...You could just ask Yui that, though. Wouldn't that be faster?"
 
-Leaning her cheek on her hand, Ritsu's drooping eyes stared intently at me. She certainly had a point...
+Chin propped on her hand, Ritsu-san's drooping eyes studied me carefully. She had a point, honestly, but...
 
-"... It's a bit too raw to ask the person involved, you know?"
+"...It's too raw to ask the person directly."
 
-"Well, yeah... It'd be awkward if I asked weird questions and got told everything step by step, wouldn't it?"
+"Ohh, yeah... wouldn't want her getting weird ideas and offering a hands-on demonstration, huh?"
 
-Ritsu gave a mischievous smile, thinking Yui would definitely do that. This time, I shot her a lingering, resentful glare.
+*Yui would totally do that*, Ritsu-san said, laughing mischievously, and I shot her a resentful look in return.
 
-"...Yui-san wouldn't do that."
+"...Yui-san wouldn't do something like that."
 
-"Oh my, when did you start getting so attached? How sweet."
+"Aw, look at you, all attached already. Cute."
 
-　Ritsu said teasingly, but that wasn't what I meant. I wanted to say that, as I've said many times before, I'm simply not Yui's type, so there's no way she'd make a move on me.
+Ritsu-san said it teasingly, but that wasn't what I meant. What I wanted to say, again, was simply that since I'm not Yui-san's type, there was no way she'd ever make a move on me.
 
-"But you know, I really don't know what kind of sex Yui has. You don't ask your friends about that sort of thing in detail, do you?"
+"But honestly, I don't actually know what Yui gets up to in bed. You don't usually ask a friend for the play-by-play, right?"
 
-"It's not about Yui specifically, it's just... generally speaking."
+"It's not about Yui-san specifically, I mean... in general."
 
-"Er... so you want to know how women generally do it with each other?"
+"So... you want to know how it generally works, between two women?"
 
-Leaning close over the counter, Ritsu whispered as quietly as possible, and I nodded vigorously in response.
+Leaning in over the counter, keeping her voice as low as she could, Ritsu-san asked, and I nodded, small.
 
-It was simply a question.
+It was pure curiosity.
 
-When I really thought about Yui's motives from my perspective, it boiled down to this:
+Working through Yui-san's logic as I understood it, it came down to this:
 
-She doesn't bother with girlfriends because it's too much hassle, but she wants to have sex with cute girls.
+Relationships are too much hassle, so she doesn't do girlfriends, but she still wants to sleep with cute girls.
 
-　But then I wonder: what does Yui actually get out of it?
+But there was something I couldn't wrap my head around. What does Yui-san actually get out of it?
 
-Repeating it endlessly without any affection involved – is sex between women really that good?
+Doing it over and over, without ever tiring of it, with no love attached — is sex between women really that good?
 
-"Ah, I see... OK, so that's the starting point then."
+"Ah, I see... okay, so that's where we're starting."
 
-After moistening her lips with the milk tea I'd recommended, Ritsu gave a defiant smile.
+Ritsu-san wet her lips with the milk tea I'd recommended, then grinned, bold.
 
-"Next time, ask Yui. 'Which finger do you always use, Yui-san?' Then I'm sure she'll tell you what you want to know, Kanata-chan."
+"Ask Yui next time — 'Yui-san, which finger do you usually use?' Ask her that, and I bet she'll tell you exactly what you want to know."
 
-That night, after receiving that advice. The chance came abruptly.
+*
 
-"Eh... Nails? You want to do it? Mine? Not your own?"
+That was the advice I got that night. And the chance came, out of nowhere.
 
-　Yui froze, nail file in hand, looking utterly flummoxed.
+*
 
-All I’d done was offer to do it for her while she sat in her usual spot on the sofa, humming to herself as she filed her nails.
+"Wait... my nails? You want to do them? Mine? Not your own?"
 
-The scent of nail polish remover hung in the air as Yui’s manicure vanished cleanly. Her fingertips looked unusually fresh.
+Nail file still in hand, Yui-san froze, wearing the exact face of someone who'd just been startled out of nowhere.
 
-The other day, I recalled the moment she held my hand. Simple black polish on short nails.
+I'd only said, to Yui-san humming to herself in her usual spot on the sofa, filing her nails — *let me do that.*
 
-Last week, I'm certain it was a deep navy. Her fingertips, which change colour so frequently, seem to mirror her fickle nature.
+With the polish stripped clean off, the scent of remover still lingering, her bare fingertips looked unusually fresh to me.
+
+I remembered holding her hand the other day. Simple black polish over short nails.
+
+Last week it had been deep navy, I think. Fingertips that change color this often somehow felt like a perfect reflection of how easily her interests shift.
 
 "...Is something wrong?"
 
-"No... it's not wrong, but..."
+"No... nothing's wrong, but..."
 
-　Ignoring Yui-san, who was unusually hesitant, I snatched the nail file from her hand. Plonking myself down beside her, I held out my hand, urging her on.
+Ignoring how unusually halting she sounded, I took the file straight out of her hand. Settling in heavily beside her, I held my hand out. *Come on.*
 
-I scrutinised the right hand she reluctantly offered. As I ran the file over the tips of her nails, which hadn't grown much, Yui-san watched me, as if gauging my reaction.
+Her right hand, offered reluctantly, I studied closely. I set the file against her nails, barely grown out at all, and Yui-san watched me, gauging my reaction.
 
-"...Do you find it enjoyable, filing someone else's nails?"
+"...Is doing someone else's nails actually fun for you?"
 
-Enjoyable? If asked, I wouldn't say it was particularly enjoyable. But I saw it as a chance to study Yui-san's hands closely.
+Fun — if you asked me, not especially. But I figured this was my chance to study her hand up close.
 
-"It is enjoyable."
+"It's fun."
 
-"...Hmm."
+"...Hm."
 
-I moved the file evenly, adjusting the length, recalling the usual length of Yui-san's nails.
+Filing evenly, shaping it the way I remembered her nails usually being kept, I moved the file along.
 
-"But Yui, your nails are quite short, so there might not be much to do."
+"But Yui-san, your nails are already so short there's barely anything to work with."
 
-Even when filing, her nails — always well-maintained — only needed a slight length adjustment and smoothing of the edges before returning to their usual state.
+Filing or not, her nails, always so well maintained, only needed the length evened and the corners rounded off before snapping right back to their usual shape.
 
-"It's boring, isn't it? That's enough."
+"Boring, right? It's fine, you can stop."
 
-Looking unusually restless, Yui said this as if she couldn't bear it any longer. I shook my head from side to side, still clutching her right hand.
+Sounding unusually restless, like she couldn't quite take it anymore, Yui-san said it, and I just shook my head side to side, still gripping her right hand.
 
 "That hand too."
 
-"Eh?"
+"Huh?"
 
-I said that, shifting my gaze to her left hand. Honestly, no matter how I looked at it, I couldn't see her nails as being long. They were well-groomed, feminine hands.
+I said it and turned my gaze to her left hand. No matter how I looked at it, there was nothing here that looked like it needed trimming either. A well-tended, feminine hand.
 
-She seemed reluctant to have her nails done... or rather, slightly troubled.
+She didn't seem to dislike having her nails done, exactly — more like she was a little flustered.
 
-When she first offered her right hand, it felt odd. If someone else was going to do your nails, you'd normally offer your dominant hand, the one you find harder to do yourself.
+I'd noticed something off the moment she'd first offered her right hand. If you're having someone else do your nails, you'd normally offer your dominant hand, the one that's harder to manage yourself.
 
-"...Yui-san, you're left-handed, aren't you?"
+"...Yui-san, you're left-handed, aren't you."
 
-I thought to myself, what a belated question. It wasn't that I hadn't noticed her holding chopsticks with her left hand while we ate together... I knew and asked anyway.
+Even as I said it, I thought — what a needlessly obvious question, this late in the game. It's not like I hadn't noticed her holding chopsticks in her left hand at meals. I knew, and asked anyway.
 
-"Yes, I am... Why?"
+"Yeah, I am... why?"
 
 "Then..."
 
-Resolving myself, I took Yui-san's left hand. I thought she might refuse, but she didn't pull away. I gently grasped her index finger.
+Steeling myself, I took her left hand. I braced for her to pull away, but she didn't. I curled my fingers gently around her index finger.
 
-"Is this the finger you use when embracing a woman?"
+"Is this the finger you use, when you're with a woman?"
 
-I could tell she'd drawn in her breath. Seeing Yui-san, usually so composed, flustered for the first time gave me a slight, fleeting sense of satisfaction.
+I could tell she'd caught her breath. Getting one over on the usually unshakeable Yui-san, even just this once, felt a little satisfying.
 
-Perhaps caught off guard by such a sudden question, she stared straight at me.
+She hadn't expected a question like that, apparently, because she looked at me straight on.
 
-Her gaze seemed to probe the true meaning behind my question. So I stared back, refusing to be outdone.
+A look that seemed to be searching for the real reason behind the question. So I looked right back, refusing to lose ground.
 
-　There was no reason. I simply wanted to know you. More properly, to reach deeper into your heart.
+There wasn't really a reason. I just wanted to know her. More. Properly. Down to the deepest part of her.
 
-After a long pause, Yui-san, worn down, let out a small sigh.
+After a long stretch of silence, Yui-san, apparently giving up, let out a small sigh.
 
-"...No."
+"...Wrong."
 
-But the words that came back were unexpected. Huh, no? I tilted my head.
+But the answer that came back wasn't what I expected. Huh, wrong? I tilted my head.
 
-"My ring finger is longer than my index finger. The ones I use are the middle finger and the ring finger."
+"My ring finger's longer than my index finger. So it's the middle finger, and the ring finger."
 
-I clasped her hand, as if to check the length of her fingers. It was true, they were long and beautiful, I thought, but indeed, her ring finger was slightly longer than her index finger.
+She curled her hand, as if confirming the length herself. It was true — I'd thought her fingers were just long and pretty, but her ring finger really was slightly longer than her index finger.
 
-As I squeezed her ring finger, my hand was gently squeezed back. Her long fingers slid smoothly between mine and wouldn't let go.
+I gave her ring finger a small squeeze, and this time, her hand squeezed mine back. Her long fingers slid between mine, twining together, and wouldn't let go.
 
-"Hey... why did you want to know that?"
+"Hey... why do you want to know that?"
 
-　Despite seeming slightly flustered moments ago, she’d already reverted to her usual composed self. Her gentle question made me realise she’d taken control of the conversation.
+A moment ago she'd looked flustered, but somehow she was already back to her usual composed self. Asked so gently, I realized — ah, she's taken control of the conversation.
 
-I tried to convey with my eyes that I wanted her to let go, but Yui just smiled brightly and tightened her grip.
+I sent her a look, wanting my hand back, but Yui-san just smiled brightly and gripped it even tighter.
 
-She was smiling, but her face clearly said, I’m not letting you escape.
+She was smiling, but her face said, clear as day: *not letting you go.*
 
 "Um... well..."
 
-Liar, Ritsu. You said Yui-san would tell me if I asked her this. I feel like I've pressed the wrong button somehow.
+Ritsu-san, you liar. She'd said asking it that way would get Yui-san to explain. It felt like I'd pressed some entirely different switch instead.
 
-"...Ritsu-san told me to ask you that."
+"...Ritsu-san told me to ask it like that."
 
-I'm sorry, Ritsu-san. I couldn't bear it anymore and let your name slip out.
+Sorry, Ritsu-san. Unable to bear it any longer, I let the name slip out.
 
 "Hmm... You saw Ritsu? When?"
 
-"Today... She came to my part-time job."
+"Today... she came to my part-time job."
 
-"Oh? When did you two get so close? Makes me a bit jealous."
+"Huh. When did you two get that close? Kind of makes me jealous."
 
-Her mischievous thumb rubbed against our joined hands. She was smiling, but the grip on my hand felt slightly forceful, not like the usual Yui-san.
+Her mischievous thumb traced idly over our joined hands. She was smiling, but the grip on my hand had a slight, forceful edge to it — not quite the usual Yui-san.
 
-"So, why did Ritsu tell you to ask me that?"
+"So, why'd Ritsu tell you to ask that?"
 
-It felt like she was closing off every escape route, one by one. Unable to bear it, I glanced at Yui-san.
+Every escape route closing off one by one, I finally glanced up at her, unable to bear it any longer.
 
-　When she locked eyes with me, it felt like she could see straight through my soul, and I instinctively looked away. Putting it into words felt too risky, too likely to cause misunderstanding...
+Held under her gaze, it felt like she could see straight through to my heart, and I looked away without meaning to. Putting it into words felt far too likely to be misread.
 
-Just as that thought crossed my mind, the fingers of her free hand lifted my chin from where I’d lowered my head.
+Just as I thought that, the fingers of her free hand tipped my chin up from where I'd ducked it down.
 
-Our eyes met, and I almost forgot to breathe.
+Our eyes met, and I nearly forgot to breathe.
 
-"...Hey, Kanata. You want to ask me something, don't you? I won't tell you if you stay silent."
+"...Hey, Kanata. There's something you want to ask, isn't there? I won't understand if you stay quiet."
 
-　Yui-san's voice calling my name, making me feel like crying, was far gentler than I'd imagined.
+Saying my name, on the verge of tears as I was, Yui-san's voice came out far gentler than I expected.
 
 "...I'm sorry."
 
-I couldn't take it anymore. Any more back-and-forth would only expose my flaws. When I surrendered and apologised, Yui-san chuckled softly.
+I couldn't take it anymore. Pushing this back-and-forth any further would only dig me in deeper. I surrendered, apologizing, and Yui-san let out a small burst of laughter.
 
-"Oh, come on... What was that? That's cheating."
+"Geez... what was that, that's not fair."
 
-She laughed softly, as if the taut string had snapped, just like she always did, and I couldn't tell what to make of it.
+The tension that had been strung tight between us snapped, and she was smiling soft again, like always, and it left me thoroughly confused.
 
-"But, Yui-san, you were angry..."
+"But, Yui-san, you were mad..."
 
-"Not angry, not angry."
+"Not mad, not mad."
 
-She pulled my hand, drawing my head to her chest. Patting my head gently, I finally understood I'd been forgiven.
+She pulled our joined hands and drew my head against her chest. Patted gently, again and again, and only then did I understand — I'd been forgiven.
 
-"...I'm sorry, it was an insensitive question."
+"...Sorry, that was a tactless question."
 
-"Not at all, I was just teasing a little."
+"It's fine, I was just teasing you a little."
 
-　Everyone has one or two things they don't want asked about, yet I might have been lacking in consideration.
+Everyone's got one or two things they'd rather not be asked about, and maybe I'd been thoughtless about it.
 
-"So? What did you really want to know?"
+"So? What did you actually want to know?"
 
-Yui-san asked while twirling my long hair playfully. I too, idly rolling the file I'd been clutching, looked up at her.
+She asked, twirling my long hair idly between her fingers. I looked up at her too, rolling the nail file between my hands, restless.
 
-"...I just wondered, is it really that good, being with another woman?"
+"...I just got curious whether it's really that good, between two women."
 
-　Yui-san's hand stopped abruptly. Had I blurted something out again?
+Her hand went still, abruptly. Had I said something wrong again?
 
-Her fingers released my hair. Her palm pressed gently against my back, slowly stroking down my spine.
+Her fingers stopped playing with my hair, and it slipped loose. A palm pressed gently against my back instead, slowly stroking down my spine.
 
-I'd never been touched like this before. Just as I thought to pull away, as if she'd read my mind, her arm wrapped around my waist, drawing me closer.
+I'd never been touched like this before, and the instant I thought to pull away, her arm looped around my waist, as if she'd seen it coming, and drew my body in close.
 
 "...Interested?"
 
-　A sweet voice whispered in my ear. Startled, I tried to push her shoulders away, but my hands were caught effortlessly, and our gazes locked directly.
+A sweet voice, whispered right against my ear. Startled, I went to push her shoulder back, but my hand was caught, effortlessly, and our eyes locked, straight on.
 
-Her eyes were a deep colour, almost like I could be sucked in.
+Eyes so deep in color they felt like they might pull me in.
 
-"...Want to have sex with me?"
+"...Want to try having sex with me?"
 
-"...Huh!?"
+"...Wha—!?"
 
-Heat rushed to my face. I could feel myself blushing visibly, but there was nothing I could do about my heart pounding wildly.
+Heat rushed to my face. I could feel myself going red by the second, and there was nothing I could do about my heart, hammering faster and faster.
 
-　Those mischievous eyes were fixed on me. I couldn't tell if she was serious or joking.
+Mischievous eyes, watching me. I couldn't tell at all whether she was serious or joking.
 
-It felt like I was being tested.
+It felt like being tested.
 
-"Um, Yui-san, you like girls who are cute and not a hassle, right…?"
+"Um, Yui-san, didn't you say you like girls who are cute and not a hassle...?"
 
-"Did you hear that from Ritsu?"
+"You hear that from Ritsu?"
 
-"I don't think I fit that description."
+"I don't think I qualify."
 
-Cute or not aside. I was well aware I wasn't the 'not a hassle' type.
+Cute or not aside. I'm well aware I'm not "not a hassle."
 
-　I'm the type who overthinks things. I don't really go with the flow or momentum of the moment.
+I'm the type who overthinks everything. Not someone who values riding the moment on pure momentum.
 
-I should know better. Objectively speaking, I'm hardly the kind of playmate Yui-san would want.
+She had to know that too. Objectively, I'm hardly cut out to be the kind of playmate Yui-san actually wants.
 
 "...What am I to you, Yui-san?"
 
-Roommate. Daughter of a friend of my father's. Junior at university. There are all sorts of labels.
+Roommate. Her father's friend's daughter. A university underclassman. There are plenty of labels.
 
-What on earth is this person thinking when they look at me?
+What exactly does she see, when she looks at me?
 
-"Hmm... a cute but troublesome junior."
+"Hmm... a cute, high-maintenance underclassman."
 
-She said it with a cheerful smile, so I pulled my hand away from her. I tossed the file I was holding and stood up.
+She said it with a bright smile, and I wrenched my hand free with everything I had. I flung the nail file down and stood up.
 
-"You idiot, Yui!"
+"You idiot, Yui-san!"
 
-I spat out a parting shot and stormed back into my room with a loud slam.
+I spat the parting shot and fled into my room, slamming the door hard enough to rattle it.
 
-　Yui-san didn't come after me.
+Yui-san didn't come after me.
 
-I admit I was definitely in the wrong this time, and for Yui-san, it was probably just a bit of payback.
+This time, I think the fault really was mine, and it was probably meant, on her end, as a little payback.
 
-Even so, that was too much. There are limits to teasing.
+Even so — that wasn't fair. There's a limit to how far teasing should go.
 
-I leaned my back against my room door and slid down to sit.
+I sank down against my bedroom door, sliding to the floor.
 
-"Honestly, I can't... it's awful..."
+"Seriously, ugh, the worst..."
 
 My heart wouldn't stop pounding.
 
-　As if to interrupt my confusion, my pocket vibrated. I pulled out the phone I’d left inside.
+As if cutting straight through my confusion, my pocket buzzed. I pulled out the phone I'd left in there.
 
-One notification on the chat app. The name Hayakawa Eita appeared.
+One notification on the chat app. Hayakawa Eita's name floated up.
 
-‘I’ll go to the shop tomorrow to return the umbrella when Aosawa finishes work. I’ll treat you to dinner as thanks.’
+*I'll come by the shop tomorrow to return the umbrella, timed for when Aozawa's shift ends. I'll treat you to dinner as thanks.*
 
-I sighed. Oh dear, because Yui-san lent her umbrella, this has turned into a hassle after all.
+I let out a sigh. Ugh, seriously, this is exactly why lending that umbrella in the first place turned into a hassle.
 
-"...It wasn't me who lent it, so if he wants to thank someone, he should thank Yui-san."
+"...I'm not the one who lent it, so if he wants to thank someone, he should thank Yui-san..."
 
-The muttered words echoed in the room, reaching no one. The thought of tomorrow's shift made me gloomy, and I flung myself onto the bed as if to shake off the thoughts.
+The muttering went nowhere, just echoing through the empty room. Dreading tomorrow's shift already, I threw myself face-first onto the bed to shake the thought loose.

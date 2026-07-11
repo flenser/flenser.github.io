@@ -1,244 +1,243 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 1
 parent: First-year university student, spring
 sequence: 1
-title: 'Episode 1: The Person Called Ichinose Yui'
+title: 'Episode One: A Person Named Ichinose Yui'
 ---
-Episode 1: The Person Called Ichinose Yui
+## Episode One: A Person Named Ichinose Yui
 
-The red scar on her shoulder, visible through the neckline of her loungewear T-shirt, stood out starkly against her pale skin.
+\
+The red mark on her shoulder, peeking out from the collar of her T-shirt, stood out sharply against her pale skin.
 
-It took only a few moments to realise that scar was someone's teeth marks.
+It took me only a few seconds to realize the mark was someone's teeth.
 
-　Leaning back against the sofa, Yui-san was engrossed in the film playing on the large screen. I crept up behind her and peered over the sofa to look at the mark.
+I crept up behind the sofa where Yui-san sat, absorbed in the movie playing on the big screen, and peered at the mark over the back of the couch.
 
-Blimey, that looks painful. When she left home yesterday, it probably wasn't there.\
-So this mark must be from last night. Because Yui-san didn't come home yesterday.
+Ouch. That looked like it hurt. It hadn't been there yesterday, when she'd left the house — I was fairly sure.\
+Which meant it was from last night. Because Yui-san hadn't come home last night.
 
-　What on earth does 'sex so good it makes you want to bite' feel like?
+*Sex that felt so good you wanted to bite.* What was that even like?
 
-Even imagining her night with someone else remained just that – imagination. Yet the only fact left here was that last night, someone had clung to her, sinking their teeth into this white shoulder hard enough to leave a mark.
+I could try to imagine her with someone, but my imagination could only take me so far. All I really had was the fact laid bare in front of me: that last night, in someone's arms, teeth had sunk into that white shoulder hard enough to leave a mark.
 
-"Doesn't this hurt?"
+"Doesn't that hurt?"
 
-"Eh?"
+"Huh?"
 
-When I gently prodded the red, swollen mark with my fingertip, her hand shot up to cover it.
+I poked the red, swollen mark with a fingertip, and she immediately clapped a hand over it.
 
-"...It hurts. Don't touch it."
+"...It hurts, so don't touch it."
 
-Her brows drew together slightly, a hint of annoyance. Her long black hair slid smoothly off her shoulder. I met the reproachful gaze of her beautiful face, staring straight back at her.
+Her brows drew together, just faintly annoyed. Her long black hair slid off her shoulder as she turned to give me a reproachful look, and I met her fine-boned face head-on.
 
-"But it's terribly swollen. That wound is noticeable."
+"Well, it's really swollen. It's pretty noticeable, you know."
 
-"It'll fade in a day or two, won't it?"
+"It'll be gone in a couple of days."
 
-"It looks painful. How come you don't get angry?"
+"Looks painful. You're awfully calm about it."
 
-"It didn't draw blood, so I don't get angry over every little thing. But it hurt like hell, so maybe next time I won't."
+"It's not like I'm bleeding. No point getting mad over every little thing. Though it hurt enough that there might not be a next time."
 
-Saying this, she gave a mischievous smile.
+She said it with a mischievous little laugh.
 
-Yui-san is a woman who likes women – a homosexual, so to speak.
+Yui-san was a woman who liked women — what people call a lesbian.
 
-　But the woman who had presumably bitten Yui-san wasn't her lover.
+But the woman who'd presumably left that bite mark wasn't her girlfriend.
 
-It took less than a month after I started staying with her for me to realise.\
-On days Yui-san didn't come home, she'd always be crashing at some woman's place. By dawn, when she left the house, the scent of her perfume that should have lingered had vanished.
+It hadn't taken me a month of living with her to figure that out.\
+On the nights Yui-san didn't come home, she was always crashing at some woman's place, and by the time she came back at dawn, the perfume she'd been wearing when she left was gone.
 
-At first, I thought she had a boyfriend. I assumed she was staying out because she couldn't invite a boyfriend home with me suddenly staying there.
+At first I thought she had a boyfriend — that she was staying out because she couldn't exactly bring a guy home now that I'd suddenly moved in with her. That's what I assumed, right up until I saw her kissing a woman at a drinking thing billed as a "department mixer."
 
-　Until I saw her kissing a woman at a so-called faculty social gathering.
+Part of it was that she never hid being gay. But she was also something of a campus celebrity — the senior with a reputation for playing the field with women.
 
-It wasn't just that she didn't hide being homosexual; she was also a notorious womaniser among the seniors at university.
+"You're going to get stabbed one of these days, seriously."
 
-"You'll get stabbed one day, honestly."
+"Oh, come on, enough about me. Come here, let's watch the movie together."
 
-"Oh, come on, enough about me. Here, come over here. Let's watch a film together."
+Always like this. Whenever a conversation got too close to something real, she'd find some clever way to dodge it.
 
-It was always like this. Whenever I tried to broach a sensitive subject, she'd skilfully sidestep it.
+She beckoned me over with a little wave, and when I came around the sofa and settled in beside her, she tossed a blanket over my lap without missing a beat — the kind of smooth, practiced gesture that told you exactly how used to women she was.
 
-　She beckoned me over with a little wave, and when I swung round the sofa and settled down beside Yui-san, she promptly draped a blanket over my knees. That's when I thought, she really is used to women.
+She picked up the remote from the coffee table and paused the movie.
 
-She picked up the remote from the coffee table and paused the film.
+"Huh? I thought we were watching this."
 
-"Huh? Weren't we going to watch the film?"
+"Yeah, you pick something you want to watch. I'll go make us something to drink."
 
-"Yeah, you can pick what you want to watch, Kanata. I'll go and get us something to drink."
+She handed me the remote. Never mind that we were halfway through — Yui-san hummed to herself, apparently unbothered about missing the rest of the story, and wandered off to the kitchen.
 
-"Right," I said, taking the remote. Though the film was undoubtedly unfinished, Yui-san didn't seem particularly bothered about the plot continuing. Humming to herself, she headed towards the kitchen.
+This house had a proper surround system and a projector, the kind you'd see on display in an electronics store — and in a place this big, this sterile, for someone living alone, it was the one thing that actually felt like it reflected something Yui-san *liked*.
 
-This house was equipped with a proper surround sound system and projector, the sort you'd find displayed in an electronics shop. And within this house – far too spacious and impersonal for someone living alone – it was the one thing that gave me a sense of Yui-san's "likes".
+That she loved movies was one of the few things I actually knew about her.
 
-　That Yui-san loved films was one of the few things I knew about her.
+Beyond that, I really didn't know much.
 
-Beyond that, I knew very little else.
+A third-year at the same university — two years above me. Left-handed.\
+Preferred coffee to tea. Her drink of choice was a highball.\
+She didn't cook, but she could keep house, and the place was spare and tidy, without a single unnecessary thing in it.
 
-She was a third-year at the same university. So two years older than me. Left-handed.\
-Preferred coffee over tea, and her drink of choice was a highball.\
-Didn't cook, but could manage household chores; her place was spotless, devoid of anything superfluous.
+The reason she lived alone in a proper detached house like this, in the middle of Tokyo, was that she was the daughter of one of Japan's more prominent conglomerate families.
 
-The reason she lives alone in such a splendid single-storey house in Tokyo is that she is the daughter of one of Japan's leading zaibatsu conglomerates.
+Her father was the current company president — and, as it happened, an old university friend of my own father's.\
+That connection was how I'd ended up living here in the first place.\
+Even running through everything I could think of, that was still all I really knew about her.
 
-Yui-san's father is the current president, and surprisingly, he is also a university friend of my father's.\
-It was through this connection that the idea of me staying here came about.\
-Even listing everything I can think of off the top of my head, I still know next to nothing about her.
+The clink of a mug set down on the table in front of me snapped me back to the present — hot milk.
 
-　The sound of the hot milk placed on the table before me jolted me back to reality.
-
-"Here you are."
+"Here you go."
 
 "Thank you."
 
-As I sipped from the mug, the faint scent and sweetness of honey spread through my mouth.
+I brought the mug to my lips, and the faint scent and sweetness of honey spread through my mouth.
 
-Back in March, when I'd just started staying with her, she made me hot milk every night. I'd returned alone from England, where my family lived, to continue my studies.\
-　Back then, she felt like a kind, dependable older sister.\
-Honestly, I never imagined she was a homosexual, and on top of that, someone with such a twisted view of love. Thinking this, I glance sideways at Yui-san.
+Back in March, when I'd first moved in — freshly returned to Japan alone from my family in England, here for university — she'd made me hot milk like this every single night.\
+Back then she'd just seemed like a kind, dependable older sister type.\
+I really hadn't imagined, not for a second, that she was also gay, and that her whole approach to romance was completely broken. I thought about that as I glanced sideways at her.
 
 "Decided what you want to watch?"
 
-"...This one, the dog one."
+"...That dog one."
 
-I point at the dog on the screen in the dimly lit room. I thought Yui-san might not like this sort of thing.
+I pointed at the dog on the dimly lit screen. I had a feeling this wasn't really Yui-san's kind of thing.
 
-　Two months into my lodging. I'd come to understand firsthand just how indulgent she was towards women. She always accommodated my slightest whim.
+Two months into living here, I'd come to understand — in my bones — just how soft she was on the women around her. Any little selfish request, and she'd go along with it, every time.
 
-"You like dogs? Fine, let's watch this one today."
+"You like dogs? Sure, let's watch this one today."
 
-Yui-san took the remote and pressed play.\
-At the same time, I tugged the blanket slightly, pulling it up to my shoulders.
+Yui-san took the remote back and hit play.\
+At the same time, I tugged the blanket up a little, up to my shoulders.
 
-"What's the matter? Cold?"
+"What's wrong, are you cold?"
 
-Noticing my reaction, Yui's hand drew me closer, her shoulder pressed against mine. The warmth radiating from her skin felt comforting. Human warmth dispels loneliness.
+She noticed and pulled me in by the shoulder. The warmth where our bodies pressed together felt good. Skin-to-skin warmth had a way of chasing off loneliness.
 
-If she were my girlfriend, she'd surely be even kinder, I thought.
+If it were her girlfriend sitting here instead of me, I bet she'd be even gentler than this.
 
-She claims she "doesn't do relationships" – it's just that she isn't interested. What a waste. Being this beautiful, it's no wonder she never lacks suitors.
+Except, by her own account, she didn't believe in having girlfriends — she just wasn't the type. Such a waste. Someone this beautiful, of course she'd never run out of people interested in her.
 
-　For her, perhaps committing to just one person is the real waste.
+Maybe, to her, narrowing it down to just one person was the actual waste.
 
-I don't understand what it feels like to fall for a woman. I've never even imagined it.
+I didn't understand what it was like to fall for a woman. I'd never even tried to imagine it.
 
-The hand that drew me close gently stroked my hair, playing with the ends.
+The hand around my shoulder drifted up, gently stroking my hair, playing idly with the ends.
 
-I suppose it's precisely because she does this naturally with everyone that so many women get hooked.
+Probably this was just something she did naturally, with anyone — and that was exactly why so many women fell for her.
 
-"...Yui-san, you're such an insincere person, so why are you so popular?"
+"...Yui-san, how are you so popular when you're this unfaithful?"
 
-Ahaha, Yui-san laughs. Truthfully, I've long since realised why this person is popular.
+She laughed. Ahaha. Honestly, I'd long since figured out why she was popular.
 
-It's just that I desperately want to blame this person, who I simply cannot be devoted to.
+I just couldn't help wanting to needle her about it — about the fact that she was constitutionally incapable of settling on one person.
 
-"Well, I wonder what it is about me?"
+"Who knows, right? What is it people like about me?"
 
-　Even though I said it accusingly, she barely seemed to notice, just smiling cheerfully, which left me confused.
+I'd meant it as a jab, but she just smiled it off, easy and unbothered, and that only left me more confused.
 
-Is that normal?
+Was that normal? Sleeping with someone you weren't even dating?
 
-Not being in a relationship, yet spending the night together? Is that how university students are?
+Was that just what being a college student was like?
 
 "Do you have a boyfriend, Kanata?"
 
-The question came so suddenly I looked at Yui in surprise. Since I started staying with her, I'd never once spent the night away. I thought she must have noticed.
+The question caught me off guard — it felt so out of nowhere that I turned to stare at her. I hadn't stayed out overnight once since moving in. I'd figured she must have noticed.
 
-"No. You can tell just by watching me live, can't you..."
+"No. I mean, you can tell just from watching how I live, can't you..."
 
-"Oh, right. You're so good at getting people to look after you, I thought you must have someone. Long-distance, maybe?"
+"Huh. You're good at being spoiled, so I figured maybe — long distance, or something."
 
-"...I did back there, but he cheated on me and then dumped me."
+"...I did, back home. But he cheated, and then he dumped me."
 
-Even thinking about it now makes my heart ache, like it's being pricked and scraped. I don't have any lingering feelings, but he left a deep wound that really gouged my heart.
+Even thinking about it now, something behind my ribs gave a sharp little twinge. I had no lingering feelings for him, none at all, but he'd left a wound that cut pretty deep.
 
-　That incident was one reason I chose a Japanese university, but I still don't have the courage to complain about it to anyone.
+That whole mess was actually part of why I'd chosen to go to university in Japan — though I still didn't have the nerve to complain about it to anyone.
 
-"Cheating? Good riddance, then."
+"Cheated on you? Sounds like breaking up was the right call."
 
-"And this is coming from the perpetually unfaithful Yui-san?"
+"Says the woman who cheats on everyone."
 
-I couldn't help but laugh as I pointed it out. As if Yui-san herself didn't have relationships with all sorts of women.
+I couldn't help laughing as I pointed it out. Yui-san, of all people, sleeping with all these different women.
 
-"In my case, you wouldn't call it cheating, would you? I don't have a girlfriend."
+"For me it's not cheating. I don't have a girlfriend."
 
-"I don't see the difference. Is there really no one in this world who can love just one person, purely and wholeheartedly, forever?"
+"I don't get the difference. Is there really nobody in this world who can just... love one person, faithfully, straight through?"
 
-I'm glad we chose a heartwarming animal film today. It soothes my frayed nerves.
+Good thing I'd picked a warm, fuzzy animal movie for tonight. It was soothing something frayed in me.
 
-Dogs are wonderful, aren't they? They love their owners purely and unconditionally. Is it greedy of me to want that kind of devoted love?
+Dogs really were the best — loving their owners so straightforwardly, without complication. Wanting that kind of devotion for myself — was that just me being greedy?
 
-　Not that I necessarily want a lover like a dog, mind.
+Not that I wanted a girlfriend who acted like a dog or anything.
 
-"You're cute, Kanata, so you'd probably get a boyfriend in no time."
+"You're cute, Kanata, I bet you'd have a boyfriend again in no time."
 
-"You don't think I'm cute at all... I'm not your type, am I?"
+"You don't actually think I'm cute... I'm not even your type, you've said as much."
 
 "...Did I say that?"
 
-"You said something close to it. Right when we first moved in together."
+"Something close to it. Back when I first moved in."
 
-　I still remember the words Yui-san said to me, apologetically lowering her eyebrows as if to reason with me, when I panicked upon learning she was a lesbian.
+I still remembered the words Yui-san had used, apologetic, brows drawn down, gently explaining herself to me after I'd panicked upon learning she was gay.
 
-——It’s not like I’d go for any woman indiscriminately, so don’t worry. Sorry for keeping quiet about it.
+*Don't worry — it's not like I'll make a move on any woman regardless. Sorry for not telling you sooner.*
 
-I know she said it to reassure me, but it also meant I wasn’t included.
+I knew she'd said it to put me at ease. But it also meant, plainly, that I wasn't someone she'd consider.
 
-　Not that it matters, really. I'm not gay myself, and since I'm staying at Yui's place for the duration of university, it's probably better that way.
+Which was fine. I wasn't gay, and I was going to be living in Yui-san's house for the rest of my time at university, so it was better this way, without any of that complicating things.
 
-I know that, but still... it doesn't feel quite right.
+I knew all that. And still — somehow, it didn't quite sit right with me.
 
-"When we first moved in together, right? Kanata, you were like a cat that hadn't been socialised with people."
+"Right around when you first moved in, huh. You were like a cat that wasn't used to people yet."
 
-The sudden, out-of-the-blue remark made a question mark appear above my head.
+The comment came so out of nowhere that a question mark all but appeared over my head.
 
 "A cat?"
 
-"It took two months before you finally let me touch you, didn't it? You were on high alert at first."
+"It took you two whole months before you'd even let me touch you. You were so on guard at first."
 
-"...It's nothing. I'm just snuggling up because it's cold."
+"...I'm just cold right now, that's all this is."
 
-"Shall I turn the heating up then?"
+"Should I turn the AC up higher, then?"
 
-Stared at intently by those dark eyes, I couldn't think of a reply and my gaze drifted.
+Her dark eyes held mine, and I didn't know how to answer, my gaze skittering away.
 
-I know I should pull away. But part of me definitely doesn't want to let go of this warmth.
+I knew I should pull back. But some part of me, undeniably, didn't want to let go of this warmth.
 
-　Even though I know it. That I'm homesick and lonely.
+I knew exactly what this was. Homesickness. Loneliness.
 
-"...Yui-san, you're being rather mean."
+"...You're kind of mean, Yui-san."
 
-"Am I?"
+"You think?"
 
-"Not realising it is the worst..."
+"Not even realizing it is the worst part..."
 
-"Sorry, sorry. Just joking. I'm just happy Kanata's warming up to me."
+"Sorry, sorry. I'm just teasing. I'm happy you've gotten this comfortable with me."
 
-Feeling tickled around my throat, knowing she was teasing me, I pulled her hand away and glared at her. Yui-san laughed.
+Her fingers tickled at my throat, and once I realized she was messing with me, I peeled her hand off and glared at her — and she just laughed.
 
-　Like a cloud. Elusive, ethereal, the sort who might vanish before you realise.
+She was like a cloud. Impossible to get a grip on, drifting along, and you'd look away for a second and she'd be gone somewhere else.
 
-But I was utterly captivated by that sweet, comforting hot milk, leaning into her shoulder. Right now, I rather liked nights like this.
+But I'd been thoroughly won over by that sweet, comforting hot milk, comfortable enough to lean against the shoulder pressed to mine — and right now, if I was honest, I was rather enjoying a night like this.
 
-Suddenly, as if to interrupt this small moment of relaxation, Yui-san's smartphone, resting on the coffee table, rang.
+Just as I was settling into that small, quiet moment of relaxation, Yui-san's phone rang on the coffee table, breaking the spell.
 
-An unfamiliar woman's name. Yui glanced at it briefly before tapping the mute button.
+A woman's name I didn't recognize. Yui-san glanced at it and immediately tapped it to silence.
 
-"Is it alright? Not answering?"
+"Are you sure? Not going to answer?"
 
-"Hmm, yeah. It's fine for now. I'll call back later if I feel like it."
+"Mm, nah, it's fine for now. I'll call back later if I feel like it."
 
-She flipped her phone over, sounding disinterested, which somehow annoyed me. Wanting to get back at her a little, I felt like being slightly mean.
+She said it with total disinterest and flipped the phone face-down, which for some reason annoyed me enough that I wanted a little payback for earlier — wanted to needle her, just a bit.
 
-"Could it be the person who bit you you?"
+"Is that the one who bit you?"
 
-"No idea, I've forgotten."
+"Who knows. Forgot already."
 
-"Liar," I said, pinching the arm around my shoulder hard.
+Liar, I thought, and pinched the arm still wrapped around my shoulder.
 
-A May night. The start of university life, full of anxiety, away from home.
+A May night. The start of a college life away from home, full of uncertainty.
 
-Meeting Yui-san – kind, mean, and a liar – was the beginning of it all.
+Meeting Yui-san — kind, and mean, and a liar — was where it all began.
 
-Back then, I believed without a shred of doubt that these trivial days would surely continue right up until graduation.
+At the time, I believed, without a shred of doubt, that these ordinary, easy days would just go on like this until graduation.

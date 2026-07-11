@@ -1,258 +1,271 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 4
 parent: First-year university student, spring
 sequence: 4
-title: 'Episode 4: An Emotion Without a Name'
+title: 'Episode Four: A Feeling With No Name'
 ---
-Episode 4: An Emotion Without a Name
+## Episode Four: A Feeling With No Name
 
-I stared at the broad, imposing back walking ahead of me. He wore a plain white T-shirt and jeans, and when he turned to look back at me, he smiled happily, suggesting we go see the pandas.
+\
+I stared at the broad back walking ahead of me.
 
-His dazzling smile directed at me stood in stark contrast to my own heart, which felt as heavy and overcast as the sky above.
+He wore a plain white T-shirt and jeans, and when he turned around, he grinned, delighted, and said we should go see the pandas.
 
-　Forcing a polite smile, I repeated meaningless responses and followed behind him. Why had it come to this? I'd been feeling this helplessness for ages.
+Against that blinding smile of his, my own mood sat heavy and dull, grey as the overcast sky.
 
-I felt bad for Hayakawa-kun, but I really wasn't in the mood today. I wished the rain would come sooner, just like the forecast said.
+I kept up a strained smile, tossing out empty little responses as I trailed behind him, and somewhere in the back of my mind I'd been asking myself, over and over, how I'd ended up here.
 
-I took a deep breath. At the same time, I caught that familiar sweet scent and thought, Ah, it's Yui-san's scent.
+I felt bad for Hayakawa-kun, but honestly, I hadn't wanted to come today at all.
 
-　But she wasn't here now. This was the scent of her perfume.
+I almost wished it would just start raining early, the way the forecast promised.
 
-Saturday afternoon. The time when I should have been enjoying a cup of tea.
+I breathed in deep, and a familiar sweet scent drifted up with it — ah, Yui-san's smell, I thought.
 
-Instead, here I was, somehow at the zoo with a colleague from my part-time job.
+But she wasn't here. This was just her perfume, still clinging to me.
 
-How did it come to this? Well... the story goes back to the night before last.
+A Saturday afternoon. The kind of hour I should have been spending over a cup of tea.
 
-"Listen... Aosawa, do you like animals?"
+And instead, here I was, at the zoo, for some reason, alone with a coworker from my part-time job.
 
-A café nearing closing time. Hayakawa-kun, whose shifts I'd been overlapping with lately, fired off this utterly unexpected question, and the world seemed to freeze, as if a frame had been cut out.
+How had it even come to this. The whole mess traced back to two nights ago.
 
-Eh? Animals? Do I like them?
+*
 
-Was that really a question he needed to ask right now?
+"Hey, so... Aozawa, do you like animals?"
 
-　Animals... well, there are all sorts, aren't there? You might like dogs but not birds, and once you start down that path, it's endless.
+The café was nearly closed for the night. The question came flying out of nowhere from Hayakawa-kun, whose shifts had been overlapping with mine a lot lately, and for a second the world seemed to just stop.
 
-"I do, I suppose. Dogs and such."
+Huh. Animals. Did I like them?
 
-He'd probably just wanted to chat, so I gave a half-hearted reply while idly wiping the saucer with a cloth.
+Was that really a question that needed asking right now?
 
-We'd just seen off the last customer; all that remained was closing up, but there were still ten minutes until closing time.
+Animals covered a lot of ground, though — you could like dogs and still hate birds, there was no end to how specific you could get about it.
 
-　Despite my noncommittal reply, Hayakawa-kun leaned forward over the counter, resting his hands on it.
+"I like them. Dogs, especially."
 
-"Aosawa, you like animals... I'm glad..."
+He'd probably just wanted to make conversation, so I gave a vague answer while wiping down a saucer with a cloth, hands needing something to do.
 
-No, I mean, I like dogs, but if you ask if I like animals in general, that's not quite right.
+We'd just seen off the last customer, and all that was left was closing up, though we still had a good ten minutes before then.
 
-And what exactly is "I'm glad" about? Puzzled, I tilted my head.
+Even though my answer had been half-hearted, Hayakawa-kun leaned in over the counter, planting his hands on it.
 
-"Aosawa, you said you didn't have plans for Saturday, right?"
+"Aozawa, you like animals — good, that's good..."
 
-"Eh?"
+I mean, I liked dogs, sure, but that wasn't the same as liking animals across the board.
 
-"I've got two tickets. Fancy coming with me? To the zoo."
+And what exactly was "good" about it. I tilted my head, confused.
 
-The suddenness made my eyes widen. He had indeed asked about my Saturday plans earlier. But at the time, I'd assumed it was just a request to swap shifts or something similar. ...I should have said I had something, even if it was a lie.
+"Aozawa, you said earlier you didn't have plans Saturday, right?"
 
-Staring into those eyes full of expectation, I held my breath.
+"Huh?"
 
-　Having admitted I liked animals, refusing now would be like saying I didn't want to go with him.
+"I've got two tickets — want to come with me? To the zoo?"
 
-I wanted to avoid that. I liked this shop, and I didn't want to do anything that might cause a rift in our relationship.
+My eyes went wide at how sudden it was. He had asked about my Saturday earlier, that part was true, but I'd assumed it was about swapping a shift or something like that. I should have lied and said I had plans anyway.
 
-When I reluctantly nodded, Hayakawa-kun smiled happily.
+He was looking at me with such open hope in his eyes that I found myself holding my breath.
 
-That was Thursday night.
+Having already admitted I liked animals, turning him down now would basically be announcing that I didn't want to go anywhere with him.
 
-　According to the forecast I’d checked that morning, rain was expected this evening.
+I wanted to avoid that. I liked this job, and I didn't want to do anything that might put a crack in the relationships here.
 
-Yui-san, who’d apparently noticed me preparing to go out on a Saturday — something unusual — looked at me curiously while making coffee in the kitchen, making me feel terribly awkward.
+Reluctantly, I nodded, and Hayakawa-kun's face lit up, pleased.
 
-It’s not like I’m doing anything I’d be embarrassed about if asked.
+That had been Thursday night.
 
-“Kanata. Did you say you had work today?”
+*
 
-“No, I’m going to the zoo with someone from work…”
+According to the forecast I'd checked that morning, rain was coming in from the evening today.
 
-"The zoo? Hmm... A date?"
+Yui-san must have noticed me getting ready to go out on a Saturday, which never happened, because she kept glancing at me curiously while making coffee in the kitchen, and it made me strangely uncomfortable.
 
-"No, it's not a date. They just invited me because they had tickets..."
+It wasn't like I was doing anything I needed to hide.
 
-As I snapped out the denial, Yui narrowed her eyes and smiled. She beckoned me over with a quick wave.
+"Kanata. Didn't you say you had a shift today?"
+
+"No, I'm... going to the zoo, with someone from work."
+
+"The zoo? Hm... A date?"
+
+"No, it's not a date. He just had an extra ticket and asked me along, that's all."
+
+I denied it a little too fast, and Yui-san's eyes narrowed into a small smile. She beckoned me over with a curl of her fingers.
 
 "Kanata, come here."
 
-"...What is it? I'm going to be late."
+"...What. I'm going to be late."
 
-"Never mind that."
+"Just come here."
 
-As I stepped right up to Yui-san, her hand shot out straight towards me. What on earth? I thought, just as her wrist pressed against my neck and made a sharp, rubbing motion.
+I walked over to stand in front of her, and her hand reached out, straight for me. Before I could even wonder what she was doing, her wrist pressed against the side of my neck and dragged, once, in a slow, deliberate stroke.
 
-Sweet. It smelled like Yui-san. Realising she'd put perfume on me, I looked up. Yui-san was smiling brightly.\
-I was baffled. Why on earth would she suddenly do something like this?
+Sweet. It was Yui-san's scent. I realized she'd just put perfume on me, and when I looked up, she smiled, bright and pleased with herself.\
+I was baffled. Why would she do something like that, out of nowhere?
 
-"Um... Yui?"
+"...Um... Yui-san?"
 
-"It's a charm to make your date go well. Have fun."
+"A little charm, for a good date. Have fun out there."
 
-"...But I keep telling you it's not that."
+"...I keep telling you, it's not a date."
 
-"I'm going to be late!" I pretended to rush off, left my umbrella, and headed out.
+Panicking about being late, I made a show of rushing out, forgetting my umbrella by the door as I left.
 
-Of course, I knew it was going to rain today.
+I knew perfectly well it was supposed to rain today.
 
-＊＊＊
+***
 
-　By the time we left the zoo, evening had fallen, and it seemed today's weather forecast had been wrong.
+By the time we left the zoo, it was already evening, and the forecast, apparently, had missed the mark.
 
-The panda I glimpsed briefly after queuing was unexpectedly cute, and since I hadn't been to a zoo since primary school, I think I enjoyed it more readily than I'd expected.
+We'd stood in line for a brief glimpse of the panda, and it had been far cuter than I expected — I hadn't been to a zoo since elementary school, and I'd ended up enjoying it more honestly than I thought I would.
 
-"The pandas were cute, weren't they? What shall we do next? Fancy going to a café?"
+"The panda was so cute. What now — want to grab a café somewhere?"
 
-We'd agreed to go to the zoo, but I hadn't said anything about going to a café. My objective was achieved. I'd really done well today.
+I'd agreed to the zoo. I hadn't agreed to anything after that. Goal accomplished. I'd done really, really well today.
 
-　It might seem contrived, but I looked up at the sky, which looked as if it might rain any moment.
+I looked up at the sky, which did seem, conveniently, like it might start pouring any minute — not that I was faking the concern.
 
-"I forgot my umbrella, so I'll head back before it really starts pouring. Thank you for today."
+"I forgot my umbrella, so I should head home before it really comes down. Thank you for today."
 
-To be honest. Somehow, I'd realised from the start what Hayakawa-kun wanted with me, what he expected.
+If I was honest with myself, I'd known from the start, in some vague way, what Hayakawa-kun wanted from this, what he was hoping for.
 
-But I'd finally found a part-time job where I felt comfortable, and I didn't want awkward relationships caused by strange human dynamics.
+But I'd finally found a part-time job I actually liked, and I didn't want some messy tangle of feelings turning it awkward.
 
-"...Right, I see."
+"...I see. Okay."
 
-I felt bad for Hayakawa-kun, who slumped his shoulders dejectedly, but I hoped this would make him realise. Just as I turned to leave, he grabbed my arm to stop me. It was a knobbly, masculine hand.
+He deflated, shoulders dropping, and I felt bad about it, but I hoped this would be enough to get the message across, and turned to go — only for a hand to catch my arm and stop me. A man's hand, knuckled and rough.
 
-"Aosawa, let me walk you home. You went out of your way to spend time with me today."
+"Aozawa, let me walk you home. You spent the whole day with me, it's the least I can do."
 
-"There's no need to go that far. I enjoyed myself today too."
+"You really don't have to, I had fun today too."
 
-I'd discovered pandas were cuter than I'd imagined, so it wasn't all bad. It's not that I dislike Hayakawa-kun...
+I had, genuinely, learned that pandas were cuter than expected, and it hadn't all been bad. I didn't dislike Hayakawa-kun, exactly...
 
-"Well, that won't satisfy me. Please."
+"Then I won't feel right about it. Come on, let me."
 
-It was a mistake to give in to his pleading then, agreeing since it was close to my place.
+That was the mistake — giving in to him pushing, thinking it was close enough anyway.
 
-The downpour I'd been dreading finally started just as we reached the last few dozen metres to my house.
+The downpour that had been threatening all day finally broke just as we came within a few dozen meters of the house.
 
-We ran frantically to the house, but by the time we arrived, we were both thoroughly soaked.
+We bolted the rest of the way, but by the time we arrived, we were both soaked through.
 
-"...Eh? Aosawa's place... is this it...?"
+"...Wait, this is your place, Aozawa...?"
 
-"Strictly speaking, it's the house of a senior I'm staying with. Sorry about that. I'll lend you a towel and an umbrella, so could you wait by the front door for a moment?"
+"Technically it's my senior's place, I'm just staying here. Sorry — I'll grab you a towel and an umbrella, could you wait at the entrance a second?"
 
-"Eh... wow... it even has a garage..."
+"Whoa... it even has a garage..."
 
-Leaving Hayakawa-kun staring blankly, I pressed the intercom. A few seconds later, the door clicked open.
+Leaving him gaping, I pressed the intercom. A few seconds later, the door clicked open.
 
-"Welcome home. Forgot your keys...? What happened? You're soaking wet!"
+"Welcome back, forgot your keys— wait, what happened? You're drenched."
 
-Seeing me, drenched like a drowned rat from the sudden downpour, Yui-san's eyes widened.
+Yui-san's eyes went round at the sight of me, soaked clean through by the sudden downpour.
 
-"I forgot my umbrella... Sorry, I'd like to lend Hayakawa-kun a towel."
+"I forgot my umbrella... Sorry, could I borrow a towel for Hayakawa-kun too?"
 
-"H-Hello, I'm Hayakawa Eita..."
+"H-hi, nice to meet you, I'm Hayakawa Eita..."
 
-"Ah, nice to meet you. Hold on a moment for the towel."
+"Ah, nice to meet you. Towel, hang on a sec."
 
-After a brief greeting, Yui-san fetched two towels and handed one to Hayakawa-kun.
+With a breezy greeting, Yui-san disappeared and came back with two towels, handing one over to Hayakawa-kun.
 
-"Hayakawa-kun, was it? Where do you live? It's raining, shall I take you home?"
+"Hayakawa-kun, was it? Where do you live? It's pouring — want a ride?"
 
-"Eh? N-no, it's alright. I can catch the train home."
+"Huh? N-no, I'm fine, really. I can take the train."
 
-Seeing him shake his head, his cheeks flushed ever so slightly, I couldn't help but give a wry smile.
+His cheeks colored slightly as he shook his head, and I couldn't help a small, wry smile.
 
-"Oh? Well then, I'll lend you my umbrella. Just give it back to Kanata later."
+"Yeah? Then borrow an umbrella. You can just have Kanata bring it back to me later."
 
-Without a second thought, Yui-san reached into the umbrella stand and handed him her own umbrella – one of only two left.
+Without a second thought, Yui-san grabbed her own umbrella — one of only two in the stand — and handed it straight over to him.
 
-"Yui-san, it's alright, I'll lend him mine."
+"Yui-san, it's fine, I'll lend him mine."
 
-"Eh, you're lending him yours? This pink umbrella?"
+"Huh, you're lending yours? That pink one?"
 
-Hearing that, I choked on my words. It was a bit... no, quite a bit too girly for a man to carry.
+I swallowed the words that had almost come out. It was, admittedly, a little — no, a lot — too girly for a man to be seen carrying.
 
-"...I'm sorry, could you bring the umbrella next time you come for your part-time job?"
+"...Sorry, could you just bring the umbrella back next shift?"
 
-"Ah, yeah, understood. Sorry for borrowing your umbrella too... Aosawa, well then... Thanks for today. See you."
+"Ah, yeah, sure. Sorry, borrowing an umbrella on top of everything... Aozawa, well — thanks for today. See you."
 
-"Yes. Thank you for seeing me home."
+"Yes. Thank you for walking me back."
 
-After seeing Hayakawa-kun off and closing the front door, a wave of exhaustion washed over me and I sighed. My blouse, clinging wet to my skin, felt disgusting and cold.
+I saw him off and closed the front door, and the moment it clicked shut, exhaustion hit me all at once, and I sighed. My blouse clung wet and unpleasant to my skin, and I was cold.
 
-I'd intended it as an excuse to leave early, but getting caught in this much rain was unexpected.
+I'd meant to use the rain as an excuse to get home early, but I honestly hadn't expected it to come down quite that hard.
 
-"...Kanata, are you alright? You're soaking wet."
+"...Kanata, you okay? You're soaked."
 
-Yui-san roughly dried my hair with a thick towel, making me feel like a wet dog.
+Yui-san scrubbed roughly at my hair with a thick towel, and I felt, for a second, like a dog getting toweled off.
 
-"...Yui-san..."
+"...Yui-san, you know..."
 
-"Hmm?"
+"Hm?"
 
-"You're kind to men too, aren't you? That was a bit surprising."
+"You're pretty kind to men too. That surprised me a little."
 
-I'd assumed her kindness was reserved for women only. I never expected her to offer to take him home. It took me a little by surprise.
+I'd assumed her kindness only extended to women. I hadn't expected her to offer him a ride like that. It threw me, just a bit.
 
-"That's prejudice. Just because I like women doesn't mean I dislike men."
+"That's a stereotype. Liking women doesn't mean I hate men."
 
-Well, that makes sense, I thought. Even heterosexuals don't like the opposite sex because they dislike the same sex. It's obvious, and I reflected on my own shallowness.
+Of course, I thought. Straight people don't like the opposite sex because they hate their own — that's just how it works, and I felt a little embarrassed at how shallow my assumption had been.
 
 "You're right. Sorry."
 
-"Never mind that. You'll catch a cold. Why don't you take a bath? I ran a bath while I was fetching the towel earlier."
+"Anyway, forget that, you'll catch a cold. Go take a bath — I already ran the water while I was grabbing the towels."
 
 "...Thank you."
 
-　My body was frozen to the core, shivering with cold, so Yui-san's thoughtfulness was truly appreciated.
+I was chilled clean through, and her thoughtfulness was genuinely a relief.
 
-Just as I was about to step into the entrance hall, Yui-san's hand reached out to me.
+Just as I stepped up into the house, Yui-san's hand reached for me.
 
-Her fingertips, painted with black nail polish, touched the buttons of my blouse. The buttons were undone, exposing my neck to the cold air.
+Black-polished fingertips brushed the button of my blouse. It came undone, baring my neck to the cool air.
 
-At first, I didn't understand what was happening.
+For a second, I had no idea what was happening.
 
-"...Huh? Yui-san!?"
+"...W-wait, Yui-san!?"
 
-"Eh?"
+"Huh?"
 
-Just as her fingertips undid the second button, I frantically pulled my chest together and created distance from Yui-san.
+Her fingers had just gotten the second button undone when I clutched the front of my blouse shut and scrambled back, putting distance between us.
 
-I glared at Yui-san, who looked at me with wide, bewildered eyes, as if I couldn't believe what had happened.
+Yui-san blinked at me, round-eyed, and I glared back at her, not quite believing this.
 
-"Wh-why are you undressing me...?"
+"W-why are you undressing me...?"
 
-"Eh, ah, sorry. You looked cold and wet, so I just... out of habit..."
+"Oh — ah, sorry. You looked cold and wet, it's just... habit."
 
-　Out of habit.
+Just habit.
 
-What sort of habit is it to undress women? Looking up at her in exasperation, Yui gave a wry smile. It really seemed unconscious.
+What kind of habit was that, stripping women out of their clothes. I stared at her, at a loss, and she gave a sheepish little laugh. She really did seem to have done it without thinking.
 
-Frowning, I pushed Yui's shoulder away and stomped into the house, still in my wet socks.
+Annoyed, I shoved her shoulder back and stomped into the house, still in my soaked socks.
 
-"Sorry, don't be angry."
+"Sorry, don't be mad."
 
-"While I'm in the bath, you wipe the hallway, Yui."
+"While I'm in the bath, you can dry the hallway floor, Yui-san."
 
-"I didn't mean to, honestly."
+"It wasn't on purpose, I promise."
 
-"You idiot, Yui."
+"Yui-san, you idiot."
 
-I wanted to say it was precisely because it was unconscious that it annoyed me, but I held back that urge, ignored her, and fled into the bathroom.
+*It makes me even more annoyed that it was unconscious,* I wanted to say, but I bit it back and fled into the bathroom instead.
 
-My frozen body shivered violently.
+My chilled body shivered.
 
-I gently touched the nape of my neck. The sweet scent had vanished, probably washed away by the rain, and now I felt just a little wistful for it.
+I touched my neck, lightly.
 
-I know that's not what I meant.
+The sweet scent had washed away in the rain somewhere along the way, and now, oddly, its absence left a small ache of its own.
 
-My heart, which never once skipped a beat when I was with Hayakawa-kun, now pounds so fiercely it's bewildering.
+I knew she hadn't meant anything by it.
+
+My heart hadn't so much as skipped once, the whole time I'd been with Hayakawa-kun. Now it was pounding, hard, fast, confusing.
 
 "...Why..."
 
-My heartbeat shows no sign of calming. Crushed by an emotion I couldn't even name, I instinctively crouched down and hugged my knees.
+My pulse refused to settle.
+
+Crushed under a feeling I couldn't even put a name to, I sank down where I stood, and pulled my knees in against my chest.

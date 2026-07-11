@@ -1,276 +1,280 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 6
 parent: First-year university student, spring
 sequence: 6
-title: 'Episode 6: Do I Not Have to Refuse?'
+title: "Episode Six: You Don't Have to Refuse?"
 ---
-Episode 6: Do I Not Have to Refuse?
+## Episode Six: You Don't Have to Refuse?
 
-They say a person's true nature shows when they're weak or cornered, and I believe that to be true.
+\
+They say a person's true nature comes out when they're weak, or cornered, and I think that's actually true.
 
-Last night, I think I blurted out something utterly ridiculous because of the fever.
+Last night, running that fever, I think I said some genuinely outrageous things.
 
-When I woke up this morning, Yui-san was already gone, and my temperature had returned to normal.
+By the time I woke this morning, Yui-san was already gone, and my temperature had dropped back to normal.
 
-　My body was sticky with sweat from the high fever, so I headed to the bathroom to freshen up with a shower.
+I'd sweated so much overnight from the fever that my whole body felt sticky, and wanting to feel clean again, I headed for the bathroom to shower.
 
-Yui-san didn't seem to be awake yet.
+Yui-san didn't seem to be up yet.
 
-Thinking back on yesterday, it felt more than a little awkward – it felt downright awkward.
+Thinking back over yesterday, "a little awkward" didn't begin to cover it — it was mortifying.
 
-I turned on the tap and let the hot water pour over my head. It was about time Yui-san would wake up. I needed to think of an excuse, some kind of excuse...
+I turned the tap and let the hot water run over my head. Yui-san would be getting up soon. I needed an excuse ready, some kind of excuse...
 
-　Just as I was thinking that, I heard a knock on the bathroom door. My heart clenched.
+While I was still working on that, a knock sounded at the bathroom door, and my heart clenched tight.
 
-Yui had woken up. She must have come to wash her face.
+Yui-san must be up. Come to wash her face, probably.
 
-I turned off the tap with a click and turned around. Through the frosted glass, I could see Yui's silhouette.
+I twisted the tap shut and turned around, and through the frosted glass I could make out her silhouette.
 
-"You're taking a shower first thing in the morning when you've got a cold?"
+"You're taking a shower in the morning, with a cold?"
 
-　She said it with an exasperated tone, but I couldn't help it – the sweat was making me feel sick.
+She said it like she couldn't quite believe me, but I'd been drenched in sweat and gross — there was no helping it.
 
-"My fever's gone down, so I'm fine now."
+"My fever's down, so, I'm fine now."
 
-My own voice echoed in the bathroom, sounding unnaturally weak. It felt even worse because I was feeling guilty about last night. I needed to say thank you and sorry, but I was too embarrassed and couldn't find the words.
+My own voice, echoing in the bathroom, sounded strangely weak. Guilt over last night probably had something to do with it. I needed to say thank you, and sorry, but embarrassment stuck the words in my throat.
 
-"Right then, that's good."
+"Yeah? Good, then."
 
-I turned the tap again. Once I'd finished showering, I'd look her in the face and properly express my gratitude.
+I turned the tap back on. Once I finished the shower, I'd look her in the eye and say a proper thank you.
 
-And if possible, I hoped she'd forget yesterday's blunder.
+And if I could manage it, I'd pray she'd just forget about yesterday's mess entirely.
 
-Stepping out of the bathroom, I was wringing the water from my hair with a towel when I noticed something.
+*
 
-It wasn't there. The hairdryer wasn't in its usual spot.
+Stepping out of the bathroom, drying my hair off with a towel, I noticed something.
 
-Since only Yui-san and I were in this house, if someone was playing a prank, there was only one culprit.
+It wasn't there. The hair dryer, gone from its usual spot.
 
-"...Oh, Yui-san, really..."
+There was no one else in this house but me and Yui-san, so if this was a prank, there was only one possible culprit.
 
-Had I been too selfish yesterday and made her angry? Was this her revenge?
+"...Ugh, Yui-san, seriously..."
 
-Feeling uneasy, I draped the bath towel over my shoulders and headed for the living room.
+Maybe she'd gotten annoyed with me yesterday for being too demanding. Was this payback?
 
-"Yui-san, um, the hairdryer..."
+A little anxious, I threw a bath towel over my shoulders and headed for the living room.
 
-Before I could finish, Yui-san, sitting on the sofa, noticed me and beckoned me over with a little wave.
+"Yui-san, um, the dryer..."
 
-In her other hand, she held the very hairdryer I'd been searching for.
+I'd barely gotten the words out when Yui-san, sitting on the sofa, noticed me and waved me over with a little beckoning motion.
 
-"Come here, I'll dry your hair for you."
+The dryer I'd been hunting for sat in her other hand.
 
-"Eh?"
+"C'mere, I'll dry it for you."
 
-Was she not angry about yesterday after all? Hesitantly approaching, she patted the sofa, so I sat down as prompted.
+"Huh?"
+
+Maybe she wasn't actually mad about yesterday after all? I approached cautiously, and she patted the sofa cushion, so I let myself be nudged into sitting down.
 
 "Um, Yui-san..."
 
 "Turn around."
 
-Unable to bring up yesterday's incident, I turned around as instructed.
+Still unable to bring up yesterday, I did as told and faced away.
 
-　I heard the pop of a cap being removed.
+I heard the little pop of a cap being twisted off something.
 
-"Is it alright if I use my hair oil? Unless you dislike the scent."
+"Hair oil, mine okay? As long as you don't hate the smell."
 
-Saying that, her hand, with just a little oil on the back, reached around from behind. A sweet, gentle fragrance.
+Her hand, lightly slicked with oil, reached toward me from behind. A sweet, gentle scent.
 
-Ah, this is the scent of Yui-san's hair, mixed with her perfume. I always thought it smelled lovely.
+Ah — this was the smell in Yui-san's hair, the one that mixed in under her perfume. I'd always thought it smelled nice.
 
-"I don't mind."
+"I don't mind it."
 
-"Good. I'll put it in then."
+"Good. Here we go, then."
 
-The hand, now coated in oil, gently combed through my hair. It felt oddly ticklish, this level of care.
+Her oiled hands worked gently through my hair, combing it through. Being taken care of like this, so thoroughly, left me feeling strangely ticklish, somewhere inside.
 
-Maybe this is what it would be like if I had an older sister, I thought, but quickly dismissed the idea. It still didn't quite fit.
+Maybe this was what it would feel like to have an older sister, I thought, and then immediately reconsidered. No, that didn't sit right either.
 
-Then... what if she were my girlfriend? Thinking that, it suddenly felt perfectly natural.
+Then... a girlfriend, maybe. That thought settled disturbingly well.
 
-"...Yui-san, you might be suited to being a hairdresser."
+"...Yui-san, you might be cut out for hairdressing."
 
-"Hm? Why?"
+"Hm? Why's that?"
 
-Her movements drying my hair were practised, soft and pleasant.
+Her hands worked the dryer with practiced ease, soft and soothing.
 
 "You're really good at drying hair."
 
-"Oh? If you'd like, I could dry it for you every day."
+"You think? I'll dry it for you every day, if you want."
 
-How many women's hair had she dried like this before? It was a skill that showed her experience, but it didn't feel unpleasant.
+How many women's hair had she dried like this before now. The skill gave away just how much practice lay behind it, though somehow that didn't bother me.
 
-"...But you're not home every day, are you?"
+"...You're not even home every day, though."
 
-"I wonder..."
+"Guess not."
 
-The voice from behind sounded somehow more cheerful than usual.
+Her voice, drifting from behind me, sounded somehow more cheerful than usual.
 
-My hair is quite long too, not inferior to Yui-san's, so drying it must be a real chore.
+My hair was about as long as Yui-san's, so it must have taken real effort to dry it properly.
 
-"Right, all done."
+"There, all done."
 
-Those wonderfully soothing fingers withdrew. Suppressing my reluctance to let go, I turned around. Yui-san smiled gently and stroked my head.
+The pleasant fingers pulled away. I turned around, biting back a small pang of reluctance, and found Yui-san smiling gently, reaching out to pat my head.
 
-"...Thank you."
+"...Thank you very much."
 
-"Mhm. How are you feeling?"
+"Mm. How are you feeling?"
 
 "I'm fine now."
 
-"Really? That's good to hear."
+"Yeah? Good, I'm glad."
 
-I grasped Yui-san's hand as she coiled the hairdryer cord. Taking a deep breath, I looked straight into her eyes, as dark and deep as the sea that night.
+I caught her hand as she wound up the dryer's cord. Drawing in a deep breath, I looked straight into eyes as black as a midnight sea.
 
-"Um... I'm sorry for being so selfish. I don't even know why I said those things myself..."
+"Um... I said a lot of selfish things, I'm sorry. I don't even really know why I said any of that..."
 
-She stared back intently, and I couldn't hold her gaze, my eyes darting away. I couldn't meet her serious stare.
+Held under her steady gaze, I couldn't bear it for long and let my eyes drift away. Looked at that seriously, I couldn't hold still.
 
-"Ah... yesterday?"
+"Ah... about yesterday?"
 
-Yui's hand reached for my cheek, tucking my hair behind my ear.
+Her hand reached for my cheek, tucking my hair behind my ear.
 
-"Honestly, I was a bit taken aback."
+"Honestly, I was a little surprised."
 
-Knowing how much she dislikes hassle, I worried that even though she's kind, she probably didn't much care for the troublesome type of selfishness I displayed.
+She hated anything that felt like a hassle — and however kind she was, I couldn't shake the worry that my clingy, high-maintenance kind of selfishness wasn't the sort of thing she'd welcome.
 
 "...I'm sorry."
 
-When I apologised, Yui chuckled softly.
+At my apology, Yui-san let out a small laugh.
 
-"Why are you laughing? I'm genuinely sorry."
+"Why are you laughing, I'm being serious..."
 
-"Because you're adorable, Kanata."
+"You're just cute."
 
-"Adorable? What about me..."
+"Cute, what part of that was..."
 
-As I repeated her words, trying to grasp their meaning, she suddenly closed the distance between us. I instinctively put my hands behind me for support.
+I repeated it back, trying to work out what she meant, and she closed the distance between us in one motion, close enough that I braced a hand behind me without thinking.
 
-Her perfectly formed face drew near. Close enough to kiss. My heart suddenly began pounding wildly.
+Her face, perfectly composed, came in close. Close enough to kiss. My heart lurched into a sudden, racing beat.
 
-Eh? What? What's happening?
+Wait, what, what's happening.
 
-　Her hand reached out, cupping my chin, her thumb brushing my lips. Her eyes, utterly confident, as if she didn't for a moment think I might refuse, nearly overwhelmed me.
+Her hand came up to cup my chin, her thumb brushing my lip. Her eyes held not a shred of doubt that I'd refuse, and the sheer confidence in them was almost overwhelming.
 
-"...I've found one of your weaknesses, Kanata."
+"...Found one of your weak spots."
 
-"Ah, um... Yui-san...?"
+"Um... Yui-san...?"
 
-Her dark eyes fixed on my lips. Her thumb traced my lips gently, my breath becoming shallow and rapid.\
-　So close. What should I do? What should I do?
+Her dark eyes stayed fixed on my mouth. Her thumb traced gently along my lip, and my breath went shallow, quick.
 
-"Hey... you don't have to agree, you know?"
+Too close. What do I do. What am I supposed to do.
 
-Whispered in an unnaturally sweet voice, as if to say she really would kiss me, I snapped back to my senses and pushed Yui-san's shoulder hard. Her body pulled away with surprising ease.
+"Hey... you don't have to refuse, you know?"
 
-"...Fufu."
+*I really will kiss you*, she murmured, voice pointedly sweet, and I snapped back to myself and shoved her shoulder as hard as I could — and she pulled back with almost comical ease.
 
-　Looking up, I saw Yui-san laughing, unable to hold it in, and only then did I realise I'd been teased.
+"...Heh."
 
-"Yu, Yui-san!"
+I looked up to find her failing to hold back laughter, and only then did the truth land: she'd been teasing me.
 
-"Ahaha"
+"Y-Yui-san!"
 
-Her gaze, so intense just moments ago, had returned to normal as if it had never happened, draining all the tension from my body.
+"Ahaha."
 
-I was genuinely startled. Placing a hand over my chest, I could still feel my heart pounding.
+That heated look from a second ago had vanished like it was never there, back to her usual self, and all the tension drained out of my body at once.
 
-"Kanata, you really are far too easily swayed."
+I really had been thrown. I pressed a hand to my chest — my heart was still pounding, hard.
 
-"Is that... my weakness...?"
+"You know, Kanata, you're way too weak to pushing."
 
-"If anyone thinks they can push you around, you're done for. Be careful."
+"That's my weak spot? Seriously?"
 
-I almost snapped back, "Is that your rule of thumb?" but swallowed it down.
+"If a girl gets the idea that pushing works on you, that's it, game over. Be careful."
 
-"Please, stop teasing me..."
+*Is that experience talking?* I wanted to snipe, but swallowed it back down.
 
-"Sorry, sorry. But I genuinely thought it was cute. Is Kanata always like that with her boyfriend?"
+"Just, stop teasing me..."
 
-No. I've never been affectionate with anyone before.
+"Sorry, sorry. But I really did think it was cute. Are you always like that with your boyfriends, Kanata?"
 
-But saying that would be far too embarrassing. Saying it's only because it's you that I'm being affectionate... that would be practically a confession.
+No. I'd never let myself be babied by anyone, not once, before this.
 
-"...It's a secret."
+But saying that out loud felt far too embarrassing. *It's only with you that I let myself be like this* — that would be basically a confession.
 
-"Having such a lovely girlfriend, yet you were with a bloke who cheated on you? Kanata, you absolutely have no eye for men."
+"...That's a secret."
 
-　To be honest, half of Yui-san's analysis is spot on. My previous boyfriend and I got together because he said he liked me, and I just gave in.
+"Cheating on a girlfriend this cute — whoever that guy was, you clearly have zero taste in men, Kanata."
 
-But we broke up for a different reason.
+Honestly, her read wasn't entirely wrong. My ex, too — I'd only ended up with him because he pushed, insisting he liked me, and I'd caved.
 
-"...The truth is, it was my fault he cheated on me."
+But the reason we broke up was something else entirely.
 
-"Your fault?"
+"...Him cheating — honestly, the cause was me."
 
-"He dumped me because I couldn't have sex properly. When a man touched me, my body just froze up. I just couldn't do it."
+"The cause?"
 
-Yui's hand gently takes mine. It's tender and warm.\
-For some reason, I felt I could tell Yui. The real reason I hesitate when it comes to love.\
-To men, I'm surely worthless if I can't respond to sex.
+"He dumped me because I couldn't do sex properly. Whenever a man touched me, my body would just shut down, I couldn't help it, I just couldn't."
 
-"Have you been holding back all this time?"
+Yui-san's hand closed gently around mine. Warm, and kind.\
+Somehow, I felt like I could tell Yui-san. The real reason I'd gone cold on romance.\
+To a man, someone like me, who couldn't respond properly during sex, probably had no value at all.
 
-"Well, isn't that just normal when you're dating?"
+"You just kept enduring it, this whole time?"
 
-"...I don't think it is. You shouldn't do something that causes pain to someone you like."
+"Well, isn't that just normal, when you're dating someone?"
 
-I hadn't expected those words to come from Yui-san's mouth. Startled, I stared at her.
+"...I don't think that's normal. It's not something you do to someone you like, not at the cost of hurting them."
 
-"...Do you even understand the feeling of liking someone? I mean, you go out with so many different people..."
+I hadn't expected a line like that out of Yui-san, and I stared at her, startled.
 
-After saying it, I realised how harsh my words had been.
+"...Do you even understand what liking someone feels like, Yui-san? You sleep around with all kinds of people."
 
-"I understand. I've liked people before."
+The second the words left me, I realized how cutting they'd sounded.
 
-　Despite my confrontational tone, her calm voice left me breathless.\
-My heart clenched as if squeezed tight.
+"I understand. I've had someone I liked, before."
 
-"What's that look for?"
+I'd said it half-spoiling for a fight, and her answer came back so calm and even that it knocked the breath out of me.\
+Something in my chest clenched, tight.
 
-"Didn't you say you wouldn't have a girlfriend?"
+"What's with that face?"
 
-"I never said I never had one."
+"Didn't you say you don't do girlfriends?"
 
-"...Why did you break up? Did you cheat?"
+"I never said I hadn't had one."
 
-"Of course not. I'm the type who cherishes someone once I'm in a relationship. I'd never cheat. I'd be utterly devoted."
+"...Why'd you break up? Did you cheat?"
 
-　I could certainly understand what she meant by devoted. I could picture it. But...
+"No way. If I'm actually with someone, I take care of them properly. I'd never cheat. I go all in, completely."
 
-"...I can't imagine Yui-san being so single-minded. So why did it end up like this?"
+*Going all in, completely* — I could actually believe that. I could picture it. But...
 
-"I was the one who got dumped, and it's true the breakup was my fault, but what I want to talk about now isn't me..."
+"...I can't picture you being devoted to just one person. So then, why'd it end up like this?"
 
-I could feel the tension in Yui-san's hand. Her serious eyes pierced me.
+"I'm the one who got dumped, and yeah, the reason we broke up was on me, but that's not really what I want to talk about right now..."
 
-"I don't think you need to suppress your own feelings just to meet someone else's demands. You're fine just as you are, Kanata."
+I felt her hand tighten around mine. Her eyes, serious, pinned me in place.
 
-"Do you really think so?"
+"You don't have to kill your own feelings just to meet someone else's wants. You're fine exactly as you are, Kanata."
 
-"Of course. If you're dating someone you love, you shouldn't have to endure and conform. And if they resent that, they're not worth being with."
+"Do you really believe that?"
 
-It felt like a thorn that had been lodged deep in my chest for ages had finally been pulled out. I realised now – I'd been wishing someone would say that to me all along.
+"Of course. If two people actually like each other and choose to be together, there shouldn't be any need to force yourself to go along with something you hate — and if someone can't accept that, they're not worth being with."
 
-"...Heh. I never thought Yui-san would say that."
+Something that had been lodged deep in my chest for a long time finally seemed to work itself loose. Only now did I realize — I'd been waiting, this whole time, for someone to say exactly that to me.
 
-"Kanata, you really ought to learn how to say no. Absolutely. Value yourself more."
+"...Heh. I didn't expect to hear that from you, Yui-san."
 
-She pulled my arm and hugged me tightly. It felt so good I closed my eyes and nestled into her chest.
+"You should really learn how to say no, Kanata. Seriously. Take better care of yourself."
 
-That uniquely feminine softness felt wonderful. When our bodies pressed together without a single gap, I relaxed as if all my strength drained away.
+She pulled my arm and drew me into a tight embrace. It felt good, and I closed my eyes, nestling into her chest.
 
-　I felt I finally understood the real reason why this person was so popular.
+The particular softness of a woman's body, warm and pleasant. Pressed flush together with no gap between us, I felt the tension draining out of me, easy and relaxed.
 
-At the same time, a question arose unexpectedly.
+I felt like I finally understood, properly, the real reason this person was so irresistible to women.
 
-The existence of that ex-girlfriend — the one she’d supposedly cherished so deeply and been so devoted to, yet whom she’d ended things with.
+And at the same moment, a question surfaced out of nowhere.
 
-Ritsu-san had mentioned before that Yui-san had been like this since her first year of university. If so, then in high school?\
-Had Yui-san’s decision to "not have a lover" also stemmed from that relationship with her ex?
+Someone who cherished people this much, who'd apparently gone all in for just one person — who was the ex who'd dumped her?
 
-　Some people are spoilt.
+Ritsu-san had mentioned once that Yui-san had already been like this since freshman year. Which meant — high school, maybe?\
+Had Yui-san's decision to never have a girlfriend again started with that relationship, whatever it had been?
 
-If I had gained the right to have this kind person all to myself, I don't think I could bring myself to let them go.
+Some people really don't know how good they have it.
+
+If it were me — if I'd ever won the right to have this kind, wonderful person all to myself — I don't think I could ever let go of that on my own.
