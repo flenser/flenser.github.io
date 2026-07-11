@@ -1,324 +1,333 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 10
 parent: First-year university student, spring
 sequence: 10
-title: 'Episode 10: How Can I Make It Right?'
+title: 'Episode Ten: How Can I Make It Right?'
 ---
-Episode 10: How Can I Make It Right?
+## Episode Ten: How Can I Make It Right?
 
-In this world, there are things one should do and things one shouldn't.
+\
+There are things you're allowed to do in this world, and things you're not.
 
-Generally speaking, kissing someone you're not dating without their permission is wrong.
+Generally speaking, kissing someone without their permission when you're not even dating them falls into the "not" category.
 
-Yesterday, Yui was more drunk than I'd ever seen her before, so I suppose there's some leeway for extenuating circumstances.
+Yui-san had been more thoroughly drunk yesterday than I'd ever seen her, so it's not like there's zero room for leniency, I think.
 
-It was just one kiss, after all. It's not like it was the first time. Pouring water over her head might have been a bit much, I thought with an unusually clear head come morning.
+It was just one kiss, not like it was my first ever. Dumping a glass of water over her head might have been a bit much, I thought, my head strangely clear now that morning had come.
 
-I woke much earlier than usual. The sensation lingering on my lips still wouldn't fade.
+I woke much earlier than usual. Even now, the sensation left on my lips still hasn't faded.
 
-Would Yui greet me with her usual 'Good morning' as if nothing had happened? I didn't know. I couldn't even imagine.
+Will Yui-san call out *good morning* like always, like nothing happened? I don't know. I can't even imagine it.
 
-I crawled slowly out of bed and headed for the shower. Before Yui-san woke, I wanted to escape this house, even for a moment.
+I crawled slowly out of bed and headed for the shower. I wanted to escape this house, even by a single moment, before Yui-san woke up.
 
-The door to the master bedroom opened just as I finished packing my Boston bag and was ready to leave the house.
+*
 
-"...Good morning, Kanata..."
+The landlady's door opened just as I'd finished packing my Boston bag and was ready to leave the house.
 
-Yui-san appeared in the living room, looking hungover and miserable, clutching her forehead. Her eyes widened in surprise. First she looked at me, then her gaze shifted to the Boston bag in my hand.
+"...Morning, Kana... ta..."
 
-Compared to yesterday, she looked unusually fresh, so she must have showered after that. Well, of course – she’d had water poured over her head, so she couldn’t possibly have slept like that.
+Yui-san appeared in the living room looking rough from her hangover, pressing a hand to her forehead, and blinked, startled. She looked at me first, then her eyes dropped to the bag in my hand.
 
-"...What's with that luggage?"
+Compared to yesterday she looked oddly fresh, so she must have showered after all that. Made sense — you can't exactly go back to sleep after getting a glass of water dumped over your head.
 
-"I'll be staying at a friend's place for a while. Don't worry about me, alright? Well then."
+"...What's with the bag?"
 
-"Eh... Wait a minute, Kanata!"
+"I'm staying at a friend's place for a while. Don't worry about it. Bye, then."
 
-　I headed straight for the front door, trying to escape the sound of footsteps chasing after me, but she caught up in the hallway and grabbed my hand abruptly.\
-Turning around, Yui-san looked slightly troubled.
+"Wait, hold on, Kanata!"
 
-Honestly, that face is infuriatingly beautiful. It must be that face. All the women in the world spoiled her, and that's why Yui-san turned out like this.
+I made straight for the entryway, fleeing the sound of footsteps chasing after me, but she caught up in the hallway and grabbed my hand.\
+I turned around to find Yui-san wearing a faintly troubled expression.
+
+Such an infuriatingly beautiful face, honestly. This face is probably the whole problem. All the women in the world spoiling this person is exactly what turned her into this.
 
 "...Yui-san. Do you remember what you did to me yesterday?"
 
-　If she dared say she didn't remember because she was drunk, I'd slap that cheek of hers. That was my intention as I stared at her.
+If she said she'd been too drunk to remember, I was going to slap that face of hers. That was the look I gave her.
 
-Yui-san seemed resigned. After a deep breath, she murmured, "I remember." Her voice was barely audible.
+Yui-san, seeming to resign herself, took a deep breath and murmured that she remembered. Her voice sounded like it might vanish entirely.
 
-"...You're angry, aren't you?"
+"...You're angry, aren't you."
 
-"...Does it look like I'm not?"
+"...Do I look like I'm not angry?"
 
-If she asked why I was angry, I couldn't explain it properly yet. I felt I needed time. Time to properly sort out my thoughts.
+If she asked why I was angry, I couldn't have explained it properly yet. I thought I needed time. Time to actually sort out my own thoughts.
 
-More than that, I feared that if I faced Yui-san before that, I might hurl words I didn't truly mean. For now, I simply wanted distance. For both of us.
+If I faced Yui-san before that, I felt like I'd end up throwing out words I didn't even mean, so for now, I just wanted distance. For both our sakes.
 
-"Sorry, I was terribly drunk yesterday..."
+"Sorry, I was really drunk yesterday..."
 
 "I'm leaving now. I'll be late."
 
-I abruptly brushed her hand away and bolted out the front door as if fleeing. I thought I heard her say "Wait a moment," but I ignored it all.
+I shook her hand off and bolted out the entryway like I was running from something. I thought I heard her say *wait*, but I ignored all of it.
 
-　I didn't want to hear the rest of that sentence.
+I didn't want to hear the rest of that sentence.
 
-Because I was drunk, anyone would have done.
+*I was drunk, so anyone would have done.*
 
-If she'd said that, this time I might actually have slapped her across the face.
+If she'd said that, I really would have slapped her, this time for real.
 
 ＊＊＊
 
-I'm terribly sorry, but there's only one friend I can think of who I could possibly ask to let me stay over tonight.
+There's exactly one friend I could think to ask, sorry as I felt about it, to let me crash at her place for the night.
 
-The friend I pleaded with, hoping for a yes, agreed more readily than I'd imagined.
+The friend I'd nervously asked agreed far more readily than I'd expected.
 
-　Her name is Yuri Asumi, the one with shoulder-length blonde hair tied back in a single ponytail. My first friend made at university.
+Her name is Azumi Yuuri, hair pulled back in a shoulder-length blonde ponytail. My very first friend at university.
 
-Yuri, originally from the countryside, lives alone in a second-floor studio flat in a student-oriented apartment block.
+Yuuri, from out of the prefecture, lives alone on the second floor of a student one-room apartment.
 
-She loves rock music, and the walls of her room – which you couldn't exactly call spacious – are plastered with posters of obscure bands, crammed together as if there wasn't enough room.
+She's apparently a huge rock music fan, and the walls of her not-exactly-spacious room are plastered edge to edge with posters of bands I don't recognize.
 
-After university ended, I barged in unannounced, yet she didn't complain once. She moved the guitar beside the bed out of the way and laid out the futon meant for guests. I sat cross-legged on it.
+Without a single complaint about me showing up unannounced straight from campus, she moved the guitar by her bed aside and laid out a futon she said was for guests. I sat down on it, knees drawn up.
 
-"Yuri, letting me stay over is a huge help. Thank you so much."
+"Thanks for letting me stay, Yuuri. Really, thank you."
 
-"Well, you can stay as long as you like, but did you run away from home? Did you have a row with your senior or something?"
+"You can stay as long as you want, honestly, but running away from home — did you and your senior have a fight or something?"
 
-　She asked with a smirk, poking my Boston bag, making me feel uncomfortable. There was no way I could say it. That I'd run away angry after Yui-san kissed me.
+She poked at my Boston bag, grinning, clearly enjoying this, which made me squirm. There's no way I could say it. That Yui-san kissed me and I got mad and ran away.
 
-"...Well, sort of."
+"...Well, more or less."
 
-"I heard Ichinose-senpai was kind, but maybe not? Not your type?"
+"I'd heard Ichinose-senpai was the nice type — guess not so much, huh? Maybe just not a good match for you?"
 
-No, she's kinder than the rumours. Whether we're compatible... honestly, I can't say myself. I find living with Yui-san comfortable, but I don't know how she feels about it.
+No, she's kinder than the rumors even suggest. Whether we're a "good match"... honestly I couldn't say myself. I think life with Yui-san is comfortable, but I have no idea what she thinks of it.
 
-"She's kind. She is kind... but sometimes I just can't figure out what she's thinking at all."
+"She is kind. She's kind, but... sometimes I have absolutely no idea what she's thinking."
 
-"Hmm. So, who was at fault in this fight?"
+"Hmm. So, this fight — whose fault is it?"
 
-Asked that, I faltered. Yui-san was the one who started it. But me throwing water was over the top too. So, if you ask who was at fault...
+Asked that directly, I got stuck. Yui-san caused it. But dumping water on her was too much on my part too. So if you ask whose fault it is...
 
-"It's complicated..."
+"...It's complicated."
 
-"Ahaha, what's that supposed to mean?"
+"Ahaha, what's that."
 
-Yuri laughs, completely unfazed. I rather like Yuri for listening properly without prying too deeply.
+Yuuri laughed, easygoing about it. She doesn't dig deep or pry, but she still listens properly, and I genuinely like that about her.
 
-"Did you get so fed up with her you don't want to live together anymore?"
+"You get so sick of your senior you don't even want to live with her anymore?"
 
-"It's not like that. It's just... I don't have the mental space to see her right now."
+"It's not like that, I just don't have it in me to face her right now."
 
-"But the longer you wait, the more awkward it gets, seriously."
+"But the longer it goes, the more awkward it gets, seriously."
 
-"I know, but..."
+"I know that but..."
 
-I know. I know, but I'm stuck because I don't know what face to make.
+I know. I know, but I don't know what expression to wear, and it's got me stuck.
 
-After that, Yui-san messaged me saying she wanted to talk and asked me to come back, but I ignored it and turned off my phone.
+After that, a message had come from Yui-san saying she wanted to talk, come home — but I'd ignored it and turned my phone off.
 
-　I'm scared to face her. The longer time passes, the more the waves of anger recede, leaving the real reason I was angry exposed. I was definitely furious. But it wasn't because I was kissed.
+I'm scared to face her. The longer time passes, the more the wave of anger recedes, and the more clearly the real reason I was angry comes into focus. I was angry, that much is certain. But it wasn't because she kissed me.
 
-I was furious at the sheer insensitivity of her touching me while still carrying the scent of another woman.
+I was angry that she'd touched me, careless enough to still be wearing another woman's scent while she did it.
 
-Once I understood that, I couldn't bring myself to blame her for the kiss itself anymore.
+Once I understood that, I couldn't bring myself to blame the kiss itself anymore.
 
-Because... I didn't mind it. It surprises me, but it's true.
+Because it hadn't been unpleasant. Which surprised even me.
 
-"Don't you want to make up with her?"
+"Don't you want to make up with your senior?"
 
 "I do... I want to make up."
 
-I hugged my knees tightly. I was fully aware I was acting like a child throwing a tantrum.
+I hugged my knees tight. I'm fully aware I'm acting like a spoiled child throwing a tantrum right now.
 
-Yuri's phone pinged. A message had come from someone, and she was swiftly swiping her finger across the screen.
+Yuuri's phone chimed. A message from someone, apparently, and her thumb slid across the screen.
 
-"I see. Well, I suppose you have things on your mind. Oh, Kanata, go ahead and take a bath first."
+"I see. Well, there's a lot going on, huh. Oh, Kanata, go take your bath first."
 
-"Eh, is that alright?"
+"Huh, is that okay?"
 
-"Take your time. It's just come up to the right temperature."
+"Take your time. Water just finished heating anyway."
 
-She waved her hand dismissively, so I took her at her word and decided to go ahead and have a bath first.
+She waved a hand, breezy about it, so I took her up on the offer and went to bathe first.
 
-　Yuri's flat was student-sized, so the bath wasn't particularly large.
+*
 
-I'd grown accustomed to it after living in that house for a while, but it struck me anew just how wealthy Yui-san really was.
+Yuuri's apartment is student housing, so the tub isn't very big.
 
-You don't often find jet baths in ordinary homes, and this felt like the standard for student accommodation.
+I'd lived in that house long enough to get used to it, but this reminded me all over again just how genuinely wealthy Yui-san is.
 
-I curled up, sinking down until my mouth was submerged. I was the one who'd run away, so why did this feel so strange?
+An ordinary house doesn't come with a jet bath, and this — this is probably what normal student housing looks like.
 
-　Right now, I desperately want to see Yui-san.
+I hugged my knees and sank down until the water reached my chin. I'm the one who ran away from home, so why is it.
 
-It's strange. I should still be angry.
+Right now, I want, more than anything, to see Yui-san.
 
-"...Cute and not a bother, huh?"
+Weird. I was supposed to be angry.
 
-My own voice echoed in the bathroom. Well, I suppose I'm not her type, I thought.
+"...'Cute, and not a hassle,' huh."
 
-　After drying my hair and stepping out of the changing room, I heard Yuri talking on the phone with someone. I opened the door separating the hallway from the room.
+My own voice echoed in the bathroom. Well, of course I'm not her type, then, I thought.
 
-"Ah, you're up?"
+*
 
-"Sorry, were you on the phone?"
+I dried my hair and came out of the changing room to hear Yuuri on the phone with someone. I opened the door separating the hallway from the room.
 
-"She just arrived, Ichinose-senpai."
+"Oh, you're out?"
 
-"Eh?"
+"Sorry, were you on a call?"
 
-What on earth? I tilted my head in confusion. Then Yūri turned back to the phone, said, "Room 203," and hung up.
+"She just said she got here. Ichinose-senpai."
 
-"I just got a call from Ichinose-senpai."
+"What?"
 
-"How does Yuri know Yui-san's phone number?"
+I tilted my head, not following. Yuuri turned back to the phone, said *room two-oh-three*, and hung up.
 
-Eh? She wouldn't say they'd had a relationship, would she? As if reading my thoughts, Yuri smiled.
+"Ichinose-senpai just called."
 
-"Do you know Nakahara Ritsu?"
+"Why does Yuuri have Yui-san's phone number?"
 
-"I know her. She's Yui-san's friend, but..."
+Wait, don't tell me they've — no, surely not. Yuuri seemed to see straight through my sudden suspicion and laughed.
 
-"Well, I just got a message via a club senior. Apparently, the girl sharing a room with Ichinose-senpai was desperately searching for her closest friend, and that's how it came to me."
+"You know Nakahara Ritsu-san?"
 
-Ritsu-san, isn't your social circle a bit too wide? I reckon Yui-san, at her wits' end, turned to Ritsu-san for help. I don't know how much she told her, but the fact that Ritsu never contacts me directly in situations like this makes me realise that despite all their bickering, they really are best friends.
+"I know her. Yui-san's friend, but..."
 
-As I froze upon hearing Yui was coming, Yuri draped my coat over my shoulders.
+"Got a message through a club senior just now — apparently she'd been asking around for whoever's closest with the girl sharing a room with Ichinose-senpai, and that led to me."
 
-"Don't catch a chill. Seeing how desperately she's searching for you, I figured she must really want to make up, so I gave her my address. If you don't want to go home, you can stay over here tonight. What do you reckon?"
+Ritsu-san's social circle is way too big, isn't it. From the sound of it, Yui-san, at her wit's end, must have turned to Ritsu-san for help. I don't know how much she'd explained, but the fact that Ritsu-san didn't just contact me directly, even in a situation like this, makes me think — for all the insults they throw at each other, those two really are close friends.
 
-My spirit was utterly crushed. I should have been angry, yet I was glad she'd come to fetch me. I know it's contradictory.
+Hearing that Yui-san had come, I froze up, and Yuuri draped a jacket over my shoulders from behind.
 
-"…………I'll go home. Thanks, Yuri."
+"So you don't catch a chill after your bath. She's searching for you this frantically — figured she must really want to make up, so I gave her the address. You can still stay here if you don't want to go back, though — what do you want to do?"
 
-"Make sure you patch things up properly, alright?"
+My resolve completely crumbled. I was supposed to be angry, and yet I'm happy she came to get me — even I can see the contradiction in that.
 
-"……Yeah."
+"...........I'll go back. Thanks, Yuuri."
 
-This is my weak spot. No wonder people say I'm a pain.
+"Make sure you actually make up, okay?"
 
-　The intercom chimed, and Yuri opened the door. Yui-san was standing there.
+"...Yeah."
 
-Even though she must have a hangover, she always looks sharp when she's out and about. She didn't show any sign of tiredness or agitation, just smiled brightly.
+This is exactly the part of me that's no good. No wonder people call me high-maintenance.
 
-"Sorry for the late hour. Pleased to meet you, I'm Ichinose Yui."
+The intercom chimed, and Yuuri opened the door. Yui-san stood outside it.
 
-"And this is Asumi Yuri, Kanata's friend. Pleased to meet you."
+She should have been hungover, and yet, dressed for going out, she was as composed as ever. Not a trace of exhaustion or unease showing, she smiled, bright.
 
-After brief introductions, Yui-san glanced at me, still standing there in my coat. As I hesitated, unable to take a step forward, Yuri gave my back a firm shove towards the entrance.
+"Sorry for the late hour, nice to meet you, I'm Ichinose Yui."
+
+"I'm Kanata's friend, Azumi Yuuri, nice to meet you."
+
+Barely finishing the introductions, Yui-san's eyes landed on me, standing frozen with the jacket draped over my shoulders. Unable to take the first step, I hesitated, and Yuuri gave my back a firm push toward the door.
 
 "...Kanata, let's go home."
 
-She said it gently. I nodded reluctantly, and Yui-san smiled with relief.
+Said so gently that I nodded, reluctant as I made it look, and Yui-san smiled, relieved.
 
-"Yuri, sorry for keeping you so late."
+"Sorry for keeping you up so late, Yuuri."
 
-"It's fine. See you at uni."
+"It's fine~. See you at school."
 
-"Right."
+"Yeah."
 
-Waving goodbye to Yuri, I spotted Yui-san's car parked beside the apartment block. It was instantly recognisable – a shiny black luxury model.
+I waved goodbye to Yuuri, and once we'd parted, I spotted Yui-san's car parked beside the apartment building. Black, gleaming, unmistakably luxury.
 
-"Kanata, give me your bag."
+"Kanata, let me take your bag."
 
-Saying this, Yui-san took my Boston bag and I followed behind her. She opened the passenger door and urged me in, so I obediently climbed into the car.
+She took my Boston bag from me, and I followed a step behind her. She opened the passenger door and gestured me in, and I climbed obediently into the car.
 
-Alone with Yui in the car. Surprised, I accepted the warm milk tea she handed me.
+Alone with Yui-san in the car. She handed me a warm milk tea, and I startled.
 
-"I bought it at the convenience store earlier."
+"Bought it at the convenience store just now."
 
 "Thank you..."
 
-This is both Yui's good point and her bad point. This is just how she is, I thought. Why didn't anyone tell her she shouldn't be this kind to anyone but the person she likes?
+This is Yui-san's good side and her bad side, all at once. This exact thing, right here. Why did nobody ever teach this person that you're not supposed to be this kind to people who aren't the one you love.
 
-　Unbeknownst to my thoughts, the car began driving towards my house.
+Oblivious to all of that turning over in my head, the car pulled out toward home.
 
-After that, Yui-san didn't speak a single word in the car. I didn't know how to start a conversation either, so I remained silent.
+After that, Yui-san didn't say a single word the whole ride. I didn't know how to bring anything up either, so I stayed quiet too.
 
-I stole a glance at her profile. She seemed so composed. Even though we were only two years apart, she felt far, far more mature than me.
+I stole a glance at her profile. Composed, and though we're only two years apart, she felt so much more grown-up than me.
 
-The journey home felt incredibly long.
+The drive home felt impossibly long.
 
-"Welcome home."
+*
 
-Entering the living room, I heard those words and, unsure how to respond, lowered my gaze.
+"Welcome back."
 
-I suppose it's no wonder I'm told I look like a borrowed cat now, after dashing out of the house so energetically this morning.
+She said it the moment we stepped into the living room, and I had no idea how to respond, so I just looked down.
 
-"Sit down," she urged, gesturing towards the sofa. I obediently settled myself, and Yui-san knelt on the floor, taking my hands in hers.
+Storming out of the house that morning with so much bravado, and now acting like a cat brought in from outside — I guess I couldn't really complain if someone called me on it.
 
-She doesn't run away, yet her earnest eyes stare straight at me, unwavering.
+*Sit down*, she said, gesturing to the sofa, and once I'd settled obediently onto it, Yui-san knelt on the floor and took my hand in both of hers, resting on my knee.
 
-"Kanata. Let me properly apologise for yesterday."
+Not running from it at all, her eyes held mine, steady and serious, straight on.
 
-I clasp her warm hand back. I knew I had to apologise to Yui-san too, yet I find myself looking down — it must be because I'm being spoiled by her.
+"Kanata. Let me properly apologize for yesterday."
 
-"I'm sorry about the kiss. It must have been disgusting for you to be kissed like that by someone of the same sex."
+I squeezed her warm hand back. I'd thought I needed to apologize to Yui-san too, but the fact that I keep looking down is probably because I'm letting myself be spoiled by her.
 
-Eh? Why would you think that? I looked up abruptly, and Yui-san smiled, looking just a little lonely. No, that's not it.
+"I'm sorry for kissing you. Having another woman do that to you — that must have felt awful."
 
-"If you can forgive me, I'd like to keep living together from now on."
+Wait, why does it come out like that. I looked up sharply, and Yui-san gave a faintly lonely smile. No, that's not it, that's not it at all.
+
+"If you can forgive me, I'd like for us to go on living together, if that's alright with you."
 
 "...Yui-san."
 
-I called her name, cutting her off. Don't misunderstand. I squeezed her hand tightly.
+I said her name, cutting her off. Don't misunderstand. I gripped her hand tight.
 
-"It wasn't that I disliked the kiss. I didn't think it was disgusting."
+"It's not that I hated the kiss. I never thought it was disgusting."
 
-Yui-san's eyes widened slightly, looking a little surprised.
+Yui-san's eyes widened slightly, surprised.
 
-"...Then what did you dislike?"
+"...Then, what was it you hated?"
 
-Her soft, gentle voice. Just hearing my name spoken in that voice felt like it dragged out the softest part of my heart.
+Her voice, soft and gentle. Just having that voice say my name feels like it's dragging out the softest, most defenseless part of my heart.
 
-What I disliked? That sort of thing.
+What did I hate about it. As if I could just say that.
 
 "...I don't want to say."
 
-"Eh? I can't understand unless you tell me. I can't apologise either."
+"Eh? But I won't understand if you don't tell me. I can't even apologize properly."
 
-Yui-san said, looking troubled.
+Yui-san said it, looking troubled.
 
-"It's fine, you don't need to apologise. Yui-san, aren't you angry about me splashing water?"
+"It's fine, don't apologize. What about you, Yui-san — aren't you mad about the water?"
 
-"Water? I'm not angry. It was my fault."
+"The water? I'm not mad. I was the one in the wrong."
 
-"...You think it's a bother, don't you?"
+"...You think I'm a hassle, don't you."
 
-"I don't, I don't."
+"I don't, I really don't."
 
-Her gentle smile melted the frozen part of my heart. I should have talked to her from the start instead of running away.
+Her gentle smile melted away something that had been frozen solid in my chest. I should have just talked to her from the start instead of running.
 
-"Hey, Kanata. What would make you forgive me?"
+"Hey, Kanata. What do I have to do for you to forgive me?"
 
-Truthfully, I'd forgiven her ages ago. But since Yui-san was asking like this, I might as well just be honest and let this person spoil me.
+Honestly, I'd already forgiven her ages ago. But since Yui-san was offering, so kindly, I figured I might as well let myself be spoiled by someone willing to spoil me.
 
-"...I felt lonely. Even though we were only apart for a little while. It was all your fault I ran away from home."
+"...I was lonely. We'd barely even been apart, and because of you, I ran away from home."
 
-When I said that, Yui-san laughed and stood up. She sat down beside me and hugged me tightly.
+The moment I said it, Yui-san laughed and stood up. She sat down right beside me and pulled me into a tight hug.
 
-As I nestled into her chest, I could smell that pure, unadulterated scent that was uniquely hers. I adore this smell so much.
+Nestled against her chest, I caught the scent that belonged to Yui-san and no one else, unmixed with anything. I love this smell more than I can stand.
 
-Even though I know I can't have her all to myself, I still wish this embrace could be a place just for me.
+Even knowing I could never have her all to myself, I still find myself wishing that inside these arms, at least, could be a place that belongs only to me.
 
-"I'm truly sorry. I'll do anything to make it up to you."
+"I really am sorry. I'll do anything to make it up to you."
 
 "...Anything? Really?"
 
 "Really. Anything."
 
-"...Then, when summer comes, take me to the aquarium. I want to see the killer whales."
+"...Then take me to the aquarium once summer comes. I want to see the orcas."
 
-As I murmured this, Yui-san hugged me tightly and laughed.
+The moment I murmured it, Yui-san laughed, hugging me tighter.
 
-"The aquarium? Don't you want to go with Hayakawa-kun?"
+"The aquarium? Don't you need to go with Hayakawa-kun for that?"
 
-　Why bring Hayakawa-kun into this now? She's so mean.
+Why does she have to bring up Hayakawa-kun right now. What a mean person.
 
-"It's fine. Yui-san promised to take me."
+"It's fine. Just promise me you'll take me, Yui-san."
 
-"Alright, fine. I promise."
+"Got it, okay. I promise."
 
-She gently took my hand and intertwined our little fingers. I could only laugh for now. The Bōsō Peninsula is quite a distance, after all.
+She took my hand gently and linked our pinkies together. Laughing like this while I still can — the Boso Peninsula is quite far, after all.
 
-A proper summer was about to arrive. I had a feeling our relationship might change just a little bit too.
+Real summer is coming, from here on out. I had a feeling our relationship was about to shift, just a little, too.

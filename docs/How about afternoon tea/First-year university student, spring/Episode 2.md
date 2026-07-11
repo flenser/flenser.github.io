@@ -1,326 +1,323 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 2
 parent: First-year university student, spring
 sequence: 2
-title: "Episode 2: Yui-san's Naughty Side"
+title: "Episode Two: Yui-san's Naughty Streak"
 ---
-Episode 2: Yui-san's Naughty Side
+## Episode Two: Yui-san's Naughty Streak
 
-"Hey Kanata, which one do you think is better?"
+\
+"Hey, Kanata, which one do you think?"
 
-A spring morning, sunlight streaming through lace curtains. I turn my gaze towards the voice while tucking into my toast.
+Morning light filtered through the lace curtains. I glanced up from my toast at the sound of her voice.
 
-She holds up two differently designed earrings before me, and I look back and forth between them.
+Two different earrings dangled in front of my eyes, and I looked between them.
 
-"Hmm... the right one, I suppose. The blue one's cute."
+"Mm, the right one, I think — the blue's cute."
 
-"Right then, I'll take this one."
+"Then I'll go with this."
 
-Seems she has somewhere to be today. While eating the breakfast Yui-san prepared, I follow her with my eyes alone.
-
-Usually we eat breakfast together, but today she seems almost ready already.
+She seemed to have something on today. I ate the breakfast she'd made, tracking her with my eyes as she moved around, already mostly ready to go, though usually we ate together.
 
 "You're early today."
 
-"Dad called me in. Said to come before work starts."
+"My father wants me in before work starts."
 
-"Going to the office?"
+"You're going to the office?"
 
-"Yeah. I'll pop in there, then head to uni... There's a dinner meeting tonight, so I'll be late."
+"Yeah. Stopping by there, then heading to campus after, and then there's a dinner tonight, so I'll be late."
 
-She slips a watch onto her wrist, lets out a small sigh, and tilts her head. She looks a bit reluctant, which is unusual.
+She said it with a small sigh while fastening her watch, and I tilted my head — it wasn't like her to look put out about something.
 
-I spear a halved cherry tomato in the salad with my fork.
+I speared a halved cherry tomato from my salad. If it were me, I'd have been too lazy to bother cutting them and just tossed them in whole, but Yui-san, for someone who never cooked, was oddly precise about things like this.
 
-If it were me, I'd be too bothered to bother and just toss the whole cherry tomatoes in. But Yui-san, even though she doesn't usually cook, is somehow meticulous about things like this.
+"A dinner..."
 
-"A dinner party..."
+I trailed off, realizing halfway through that I might be prying. Sure enough, I caught her dark eyes locking onto mine.
 
-I started to ask, then thought, oh, maybe I'm prying too much. Proof of that was that I locked eyes with Yui-san's dark pupils.
+"My father, and people from the company."
 
-"My father and people from his company."
+"...I didn't ask anything yet."
 
-"...I didn't hear anything about that."
+It felt like she'd read my mind before I even got there, which left me strangely unsettled.\
+Yui-san would obviously join the company her father ran once she graduated.\
+Maybe that was why these dinners with company people happened so often, even while she was still a student.
 
-It felt like she'd read my mind, making me feel uncomfortable. Awkward.\
-Yui-san will probably join her father's company after graduating university, naturally.\
-That's likely why she has frequent dinners with company people even while still a student.
+"It's a man, so don't worry."
 
-"They're men, so relax."
+She leaned in, resting a hand on the back of my chair, teasing, and I scowled and shoved her shoulder back.
 
-Yui-san placed her hands on the back of my chair, peered at my face, and smiled teasingly. I scowled and pushed her shoulders away.
+"That's not what I was asking about..."
 
-"Well, that wasn't exactly what I wanted to hear..."
+"Aw, and here I thought that was jealousy."
 
-"Oh? I thought you might be jealous."
+Too bad, she said, clearly not meaning it, and I marveled at how smoothly she could toss off a line like that.
 
-I'm impressed she can spout such smooth banter so effortlessly, even though she clearly doesn't mean it.
+"I've got a shift today too, so I'll be late as well."
 
-"I'm working late at my part-time job today too."
+"Oh yeah? Till when?"
 
-"Oh? Until what time?"
+"Till closing, so nine."
 
-"I'm on until closing today, so nine o'clock."
+"Guess we'll be back around the same time, then. I'll swing by and pick you up if I finish early."
 
-"Well, that's about the same time then. If I finish early, I'll come and pick you up."
+She shrugged her jacket on, perfect as ever, not a single thing to complain about.
 
-Yui-san, now wearing her coat, looked flawless as ever today – nothing to complain about.
+"Thanks for breakfast. Be careful out there."
 
-"Thanks for breakfast. Take care."
+"Mm, see you."
 
-"Mm, right then, I'm off."
+Once I'd seen her off, I popped the last bite of toast in my mouth and stood, dishes in hand.
 
-After seeing Yui-san off, I popped the last piece of toast into my mouth, then picked up the dishes and stood up.
+I'd meant to wash them together, but the dishes she'd used were already sitting in the drying rack.
 
-I'd intended to wash them together, but the dishes Yui-san had used were already in the drainer.
+I worked dish soap into the sponge and worked up a lather.
 
-I soaked the sponge in washing-up liquid and worked up a lather.
+"...You could at least let me wash the dishes."
 
-"...She could at least let me wash the dishes."
+I muttered it to the empty living room. She really could handle almost anything on her own — there wasn't a gap in her anywhere.
 
-I muttered in the empty living room. She manages most things entirely on her own; she really is flawless.
+Sure, she had plenty of issues on the romantic front, but letting me stay here had, in the end, worked out really well for me.
 
-True, she has her issues when it comes to romance, but having her let me stay has turned out to be really good for me.
+There was something reassuring about having someone around to say *see you later* and *welcome back* to.
 
-Having someone nearby to say 'off you go' and 'have a good day' to gives me a sense of security.
+Living with someone gay didn't change anything about that. Because, to begin with, I wasn't "eligible" — I wasn't within her range at all.
 
-Nothing changes just because my housemate is gay. After all, I'm 'out of the question' for her anyway.
+The suds swirled and vanished down the drain. It felt like she'd seen straight through me — how incomplete I was, as a woman.
 
-The rinsed-off foam was sucked down the drain. I felt as if she could see right through me, this incomplete version of myself as a woman.
+*
 
-＊＊＊
-
-There was something I wanted to do when I became a university student.
+There was something I'd wanted to do once I started college.
 
 A part-time job.
 
-Somehow, I thought a café would be the best place to work part-time.
+For some reason, I'd decided a café would suit me.
 
-I love afternoon tea. I adore sweet milk tea with two sugar cubes dropped in, and the biscuits that complement it perfectly.
+I love afternoon tea. Sweet milk tea with two sugar cubes dropped in, and the little sweets that go with it, set it off just right.
 
-It's a habit ingrained during my mere four years living in Britain, but even after returning home, the familiar routine refuses to fade.
+It was a habit that had settled into me during the four years I lived in England, and even after coming back to Japan, it had never worn off.
 
-It all started when I casually ordered a milk tea at a retro, cosy little café near the university and found it delicious. Pointing to a part-time job flyer over the counter, I asked the owner about it, and he hired me on the spot.
+There was a small, retro café near campus, and the milk tea I'd ordered on a whim there had been so good that I'd pointed at a help-wanted flyer on the counter and asked the owner about it, and he'd hired me on the spot — that was how I ended up working there.
 
-The shop is decorated throughout with aquariums, the owner's hobby, and at night, the lights are dimmed to spotlight the aquariums.\
-I really like this place; it has such a nice atmosphere.
+The place was scattered everywhere with the owner's hobby aquariums, and at night he dimmed the lights and spotlit the tanks instead.\
+I really loved the atmosphere of that place.
 
-True to her word, Yui-san appeared about thirty minutes before my shift ended, having apparently finished her dinner gathering. I guided her to a counter seat and handed her the black booklet menu across the table.
+Right on schedule, once the dinner had apparently wrapped up, Yui-san showed up thirty minutes before my shift ended. I showed her to a counter seat and handed her the black leather menu across the table.
 
-"What would you like to drink?"
+"What'll you have?"
 
-"Any recommendations?"
+"What do you recommend?"
 
-"The blend, perhaps? It's the master's original, and it's quite popular. Yui-san, you like coffee, so I'm sure you'll enjoy it."
+"The house blend, maybe. It's the owner's own recipe, gets a lot of praise. You like coffee, Yui-san, so I think you'd like it."
 
-"Then I'll have that."
+"I'll take that, then."
 
-"Certainly."
+"Coming right up."
 
-Even close to closing time, a few customers lingered, the steady, gentle background music drowning out conversation.
+Even this close to closing there were still a few customers scattered around, and the shop's ever-mellow background music swallowed up our conversation nicely.
 
-Yui-san sat down, smiling and looking at me, making me feel a little nervous.
+Sitting there, Yui-san watched me with a small smile, and it made me just a little nervous.
 
-My hand-drip coffee, which the master had drilled me on repeatedly until it was becoming a speciality. It took two weeks before I was allowed to serve it to customers.
+Hand-drip coffee was fast becoming a specialty of mine, after the owner drilled me on it over and over. It had taken two weeks before he trusted me to serve it to customers.
 
-"Here you are."
+"Here you go."
 
 "Thanks."
 
-Would it be alright to ask how today's dinner gathering went? The blue earrings I chose peeked out from between her silky black hair, swaying. When I stared straight at her, she gently asked, "What is it?"
+*How was the dinner today?* — was I even allowed to ask that? The blue earring I'd picked peeked through her sleek black hair, swaying, and when I stared at her straight on, she asked, gently, *what's up?*
 
-"...Um, how did you find the flavour?"
+"...So, um, how's it taste?"
 
-Words completely different from what I wanted to ask slipped from my lips. It wasn't that I was worried about such things, but somehow, asking that here felt like admitting defeat.
+Completely different words than the ones I'd meant to say slipped off my tongue. It wasn't even what I was worried about, but somehow it felt like asking the real question here would mean losing at something.
 
-"Yes, it's delicious."
+"Mm, it's good."
 
-She'd probably say that with a smile even if it didn't suit her taste, I suppose.
+Knowing her, she'd probably say that with a bright smile even if it didn't suit her taste at all.
 
-The next thirty minutes flew by in an instant.
+The next thirty minutes went by in a blink.
 
-I finished closing duties quickly and hurried into the changing room. Even if it was early spring, the evenings were chilly, and I had to hurry because I'd left Yui-san waiting on the bench outside the shop.
+I rushed through closing and dashed into the staff room. Even this early in spring, the nights still had a chill to them, and Yui-san was waiting on the bench outside, so I needed to hurry.
 
-As I hurriedly removed my apron, a voice called out from behind me, "Hey," and I turned around.
+As I fumbled my apron off, someone said *hey* from behind me, and I turned around.
 
-The figure in the identical black apron came into view, and I immediately recognised it as Amasaki-san, who was on the same shift today. She was untying her tied-back brown hair with an annoyed expression, her cat-like round eyes fixing on me.
+The same black apron came into view, and I immediately recognized Amasaki-san, who'd been on shift with me today. She was working her light-brown hair loose, looking mildly annoyed by it, and her round, cat-like eyes fixed on me.
 
-"That person you were talking about earlier, Aosawa-san? Is she a friend?"
+"That person you were talking to earlier — a friend?"
 
-"Well, not exactly a friend... she's a senior from university, but..."
+"More like a senior from my university..."
 
-"Oh! So she goes to the same university as you, Aosawa-san? That means she's clever, then."
+"Oh! So she goes to the same school as Aozawa-san — guess that makes her smart, huh."
 
-Amasaki-san opened the locker two spaces away from mine.
+Amasaki-san opened the locker two down from mine.
 
-She went to a different university to me, but she was a first-year student, the same age.
+She went to a different university than me, but she was a fellow first-year, same age as me.
 
-Truthfully, I'd noticed. Earlier, while wiping the table, Amasaki-san had been watching Yui-san.
+Honestly, I'd already noticed. Even earlier, while wiping down tables, I'd caught her watching Yui-san.
 
-Bad premonitions usually come true. I'd caught something in her gaze beyond mere admiration, and it left me feeling rather complicated.
+A bad feeling is usually right. Whatever I'd picked up in the look on her face aimed at Yui-san, it wasn't only admiration, and that left me a little conflicted.
 
-Guessing that pursuing the topic further wouldn't end well, I pretended to check my watch, grabbed my bag, and slammed the locker shut.
+Figuring nothing good would come of drawing this out further, I checked my watch as a pretext, grabbed my bag, and shut my locker.
 
-Closing it too roughly made the keyring jangle loudly against the lock.
+I'd closed it too hard, and the keychain clipped to it gave an ugly clatter.
 
-"Hey, that senior from earlier? Introduce me to her sometime."
+"Hey, that senior from before — introduce me sometime?"
 
-Here we go. I exhaled softly, trying not to let her notice.
+There it was. I let out a small breath, careful not to let her see.
 
-When people found out I lived with Yui at university, several had asked me to be the go-between like this before.
+Back when people at school found out I lived with Yui-san, a few of them had asked me the same thing, wanting me to be their go-between.
 
-Even when I stupidly told Yui-san, the answer was always no. She hates anything troublesome.
+Even when I'd honestly relayed it to Yui-san, the answer was always no. She hated anything that felt like a hassle.
 
 "Do you like women, Amasaki-san?"
 
-"Eh?"
+"Huh?"
 
-Her round eyes widened. Judging by her surprise, it was an unexpected question.
+Her round eyes went wide. Judging by how startled she looked, that clearly wasn't the question she'd expected.
 
 "No, it's not like that, but..."
 
-If it's not like that, you'd better stop. If you get involved with that person, you'll definitely get more than just a burn.
+*If it's not like that, you should probably let this go.* Get involved with that person, and you won't walk away with just a scorch mark.
 
-I wish I could give you that advice, but even if Yui-san isn't hiding it, blabbing about someone's sexuality to others without permission is against the rules.
+I wished I could warn her like that, but no matter how openly Yui-san lived, it wasn't my place to go outing someone's sexuality to a third party without permission.
 
-Truly, you're a sinful person.
+Truly, a sinful woman.
 
-"I see. Well, I reckon you'll probably have another chance next time she come by, so if you want to get to know her, you'd be better off talking to her directly. She's not the type who likes being introduced to people. Right then, thanks for your hard work today."
+"I see. Well, she'll probably come by again sometime, so if you want to get close to her, I'd talk to her directly — she's not really the type who likes being introduced. Anyway, good work today."
 
-I'd hate to be the one who clumsily introduced you, only for you to get played and dumped, then come crying to me.
+I really didn't want to play matchmaker only to have the girl come crying to me later about being played and dumped.
 
-I blurted it all out in one breath and fled through the back door.
+I said it all in one breath and slipped out the back door like I was running from something.
 
-When I rounded the front, I spotted Yui sitting cross-legged on the bench by the entrance.
+Rounding to the front, I found Yui-san sitting on the bench by the entrance, legs crossed.
 
 "Sorry to keep you waiting."
 
-"It's alright. Shall we head back then?"
+"Nah, it's fine. Let's head home."
 
-It was a bit nippy after all. I felt bad for making her wait, but as she stood up, Yui fixed me with a steady gaze.
+It really was chilly. I was feeling bad about making her wait when she stood and looked at me steadily.
 
-Her gaze was higher than mine due to the height difference. When I looked back at her, she gave me a gentle smile that left me utterly flustered.
+With the height difference between us, I had to look up to meet her eyes, and when she smiled gently at me like that, I never knew what to do with myself.
 
-"I've been thinking this the whole time, but your ponytail is really cute."
+"I kept thinking it earlier too — the ponytail's cute."
 
-I'd rushed over and forgotten to undo the hair I'd tied up for work. She gently stroked my hair, tied a little higher than usual, and a tingling sensation spread through my chest.
+I'd rushed over so fast I'd forgotten to take my hair down from work. She brushed a hand gently over the hair tied up high, and something stirred, restless, deep in my chest.
 
 "...Are you drunk?"
 
-"I haven't had any alcohol."
+"Haven't had a drop."
 
-This person understands exactly what words make girls happy. Even without meaning to, she'd say things like that to anyone, grinning.
+This woman understood exactly what girls liked to hear. She'd say things like that to just about anyone, no real intention behind it at all.
 
-We walked side by side along the night road, a path I usually walked alone. The spring night breeze still felt cold, and I pulled my coat collar up.
+We walked the night road together, side by side, where usually I walked it alone. The spring night air still carried a chill, and I pulled my jacket collar closer.
 
-"Sorry I couldn't pick you up by car."
+"Sorry I couldn't come pick you up by car."
 
-"...It's fine. You didn't need to go to that trouble."
+"...It's fine, you didn't have to go that far."
 
-Just coming was enough. I forced myself to swallow the words that had risen to my throat.
+*Just having you here is enough.* I swallowed the words back before they could climb out of my throat.
 
-Saying something like that would only invite his usual teasing. Lately, I felt I was finally beginning to understand what kind of person Yui-san was.
+If I said something like that, she'd only tease me for it, no question. Lately I felt like I was finally starting to understand what kind of person Yui-san was.
 
-"Dinner gatherings... do they happen every month?"
+"Do these dinners happen every month?"
 
-"Hmm, yes. About once a month, I suppose. Without occasions like this, I wouldn't get to see my father face to face."
+"Mm, yeah, about once a month, I guess. Without something like that, I probably wouldn't even see my father's face."
 
-He is the president of a major corporation, after all. And since they don't live together, these dinners must be important.
+Made sense, given he ran a huge company. And since they didn't even live together, these dinners were probably an important occasion.
 
-Even as I thought this, I recalled how reluctant Yui-san had seemed this morning.
+Even as I thought that, I kept circling back to how put out she'd looked about it this morning.
 
-"Yui-san, you have an older brother, right? You mentioned he gave you his car, didn't you?"
+"You have an older brother, right, Yui-san? The one who gave you the car?"
 
-"Yeah, I do. But Yuki-nii doesn't get on with Dad. We don't have meals together. He's gone independent."
+"Yeah, I do. But Yuki-nii doesn't get along with my father, so they don't eat together. He struck out on his own."
 
-Calling him Yuki-nii suggests Yui-san isn't actually on bad terms with her brother. After all, her current car is his hand-me-down.
+Calling him *Yuki-nii* like that, she probably didn't have a bad relationship with her brother. Her current car was a hand-me-down from him, after all.
 
-I was surprised at first, though. I mean, a university student driving a shiny black luxury car?
+I'd been shocked at first — a college student driving around in a glossy black luxury car.
 
-"Do you have a younger brother, Kanata?"
+"You've got a younger brother, right, Kanata?"
 
-"Yes. He's in his third year of junior high."
+"Yes. He's in ninth grade."
 
-"Somehow, Kanata doesn't really feel like an older sister, does she?"
+"Somehow you don't really give off 'big sister' energy, Kanata."
 
-"Yui-san, you don't feel like a younger sister either. You can do anything, you're so dependable, you feel like the older sister."
+"You're one to talk, Yui-san — you don't give off 'younger sister' energy either. You can do everything, you've got it all together, you're totally the older-sister type."
 
-"Do I?"
+"You think?"
 
-The distance to the station grew shorter. Yui-san's house was two stops away.
+We were getting close to the station. Two stops from there to her house.
 
-I think it's only natural for people to have two sides. It's not strange at all to show different faces depending on the relationship.
+I figured it was normal for people to have two sides. It wasn't strange at all that someone showed a different face depending on the relationship.
 
-Even though I think that, the more I learn, the more it bothers me.
+I knew that. And yet, the more I learned about her, the more it nagged at me.
 
-The question arises: why doesn't someone so kind have a girlfriend?
+Why wouldn't someone this kind ever settle down with anyone?
 
-There must be some reason.
+There had to be some reason.
 
-Rocked by the train, we chatted about trivial things while I gazed at her perfectly formed profile.
+Swaying with the train, making idle conversation, I studied her elegant profile.
 
-Flawless white skin. Distinctive features. Long lashes. Tall with slender limbs. Stylish too – her appearance is beyond reproach.
+Skin without a single blemish. Sharp, well-defined features. Long lashes. Tall, with long, slender limbs. Stylish on top of it all — nothing about her looked out of place.
 
-Her background is impeccable, and her personality, aside from her poor taste in women, is kind and considerate. I think she's wonderful.
+Her family background was flawless too, and her personality — setting aside how loose she was with women — was kind and considerate. A wonderful person, honestly.
 
-"What is it? Staring like that makes me feel rather embarrassed."
+"What? Staring at me like that makes me shy."
 
-"...I was just thinking how beautiful your face is."
+"...Just thinking you have a pretty face."
 
-Ah, my true feelings slipped out before I could stop myself. Yui-san's eyes widened slightly, looking startled.
+Ah. The honest thought had slipped out before I could stop it. Yui-san's eyes widened slightly, surprised.
 
-Strange. She's used to hearing such words, isn't she?
+Weird. She had to be used to hearing that.
 
-"Really? Thank you."
+"You think so? Thanks."
 
-"...There was another staff member besides me, remember? She asked me to introduce you to her earlier, in the changing room."
+"...There was another staff girl there besides me, right? She asked me to introduce you, back in the staff room just now."
 
-The train announcement sounded. We were almost at the nearest station.
+The train announcement chimed. We were almost at our stop.
 
-"Hmm... And what did you say?"
+"Hm... And what'd you say?"
 
-"I said if you want to be friends, you should talk to her yourself. Because I'd be in trouble if I got complaints later about her being played with..."
+"That if she wanted to get close to you, she should talk to you herself. I don't need people coming back to complain that they got played with later..."
 
-Yui-san chuckled oddly. When the train doors opened, she took my hand and pulled me, saying, "Let's get off."
+Yui-san laughed, amused. When the train doors opened, she caught my hand and pulled. *Let's get off.*
 
-"I wouldn't go near one of Kanata's friends, you know."
+"I wouldn't go after your friends, don't worry."
 
-Her grip was warm, and I had no reason to pull away, so I let her lead me as we started walking.
+Her hand was warm, and I had no reason to shake it off, so I let her pull me along as we started walking.
 
-"Even if she's cute and charming?"
+"Even if they're cute and charming?"
 
-"Do you want me to hit on her?"
+"You want me to go seduce her?"
 
 "That's not what I meant."
 
-"Well, then, it's fine, isn't it?"
+"Then what's the problem?"
 
-"...I don't really get your criteria for hitting on women, Yui-san."
+"...I don't get what your standard even is, for going after a woman."
 
-"Hmm, wanna know?"
+"Hm, want to know?"
 
-Yui-san turned back, grinning mischievously. I nodded, and she tugged my hand firmly, closing the distance between us.
+She glanced back, grinning mischievously. I nodded, and she tugged our joined hands, pulling me closer.
 
-Her lips drew near my ear.
+Her lips came in close to my ear.
 
-"...When I start wondering what kind of face this girl makes during sex, I suppose."
+"...Probably when I start wondering what kind of face she'd make, during sex."
 
-Her breath brushed my skin as she whispered so softly, so close, that no one else could hear. Startled, I jerked my hand free and pushed her shoulder away forcefully.
+Whispered close enough that I felt her breath, quiet enough no one else could hear, and I yanked my hand free in a panic and shoved her shoulder back hard.
 
-My cheeks flushed instantly. What on earth is she saying?
+My cheeks went hot instantly. *What is wrong with this woman.*
 
-"...Yui-san, you're such a lecher."
+"...You're such a pervert, Yui-san."
 
-"It's a bit late to be saying that now, isn't it? You were the one who asked me in the first place."
+"A little late for that, isn't it? You're the one who asked."
 
-Seeing Yui-san laughing as if amused, I realised she was teasing me again. Feeling annoyed, I left her behind and started walking.
+She laughed, delighted, and I realized I'd been played again, and stalked off ahead of her, annoyed.
 
-"Wait, Kanata!"
+"Wait up, Kanata."
 
-"Forget it."
+"I don't even know you anymore."
 
-I'd wasted my time thinking seriously about this. Probably, she wasn't thinking much at all.
+Serves me right for taking it seriously. This woman clearly didn't think half of what she said through.
 
-Next time she asks me to introduce her to someone, I swear I'll leak everything from her chat app accounts to her phone number, I vowed firmly to myself, slamming my pass against the ticket gate.
+*Next time someone asks to be introduced to Yui-san,* I swore to myself, slamming my train pass against the gate, *I'm leaking her chat handle, her phone number, everything.*

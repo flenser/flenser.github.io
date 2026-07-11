@@ -1,192 +1,194 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 5
 parent: First-year university student, spring
 sequence: 5
-title: 'Episode 5: The Price of Rain'
+title: 'Episode Five: The Price of the Rain'
 ---
-Episode 5: The Price of Rain
+## Episode Five: The Price of the Rain
 
-Getting soaked to the bone in that downpour probably wasn't a good idea.
+\
+Getting soaked in that downpour, letting my body chill through — that was probably the mistake.
 
-I'd had a bad feeling about it. That spine-tingling chill hadn't gone away even after my bath.\
-I wanted to believe it was just my imagination, but the discomfort in my body only grew as night fell.
+I'd had a bad feeling about it. A shivery kind of chill had lingered even after my bath, running down my spine.
+I'd wanted to believe it was nothing, but as the night wore on, the wrongness in my body only got worse.
 
-Finally, I couldn't move from the bed.
+In the end, I couldn't move from the bed at all.
 
-"38.5 degrees..."
+"...38.5 degrees."
 
-Yui-san, taking the thermometer, furrowed her well-shaped brows. I pulled the duvet up over my mouth, almost as if to escape the look she gave me from where she stood by the bedside, a look that seemed to want to say something.
+Yui-san took the thermometer back, her well-shaped brows drawing together. Her gaze, standing there at the bedside, looked like it wanted to say something, and I ducked from it, pulling the duvet up over my mouth.
 
-"...Kanata, you haven't had dinner, have you? What do you fancy? I'll go and get something."
+"...Kanata, you haven't eaten dinner, have you. What do you feel like? I'll go buy something."
 
-"It's alright, I've no appetite..."
+"It's fine, I don't have an appetite..."
 
-"You really must eat something. Your temperature might rise more tonight, and if it does, you'll need to take some fever reducers."
+"You need to eat at least a little. Your fever might climb higher once night sets in properly, and if it does, you'll need to take something for it."
 
-The voice coming down from above was unexpectedly gentle. Yui-san sat down softly on the bed and peered up at my face.
+The voice falling from above was gentler than I expected. Yui-san lowered herself onto the edge of the bed and leaned in to check my face.
 
-Her worried gaze made me feel relieved. Thank goodness. I'd braced myself, thinking she might be angry.
+That worried look was a relief. I'd braced myself, half-expecting to get scolded instead.
 
-"...What could you manage? Rice porridge?"
+"...What can you manage? Rice porridge?"
 
-"I hate rice porridge. It's tasteless..."
+"I hate rice porridge, it doesn't taste like anything..."
 
-"What about rice gruel?"
+"Then how about zōsui?"
 
-"Hmm, I suppose I could manage that..."
+"Mm, that I could..."
 
-"Right then."
+"Okay."
 
-With just that, Yui-san stood up. The bed springs creaked.
+That was all she said before she was already on her feet, the bedsprings creaking under the shift of weight.
 
 "...Yui-san..."
 
-The voice that called her name was weaker than I'd expected, surprising even me. She turned around, her hand already on the doorknob.
+My voice came out so weak calling her name that it startled even me, and she turned back, hand already on the doorknob.
 
-　It's not as if loneliness could be conveyed by a glance alone.
+*Lonely* — there was no way a look alone could say that.
 
-Yet somehow, I found myself hoping.
+And yet, somehow, I found myself hoping it would.
 
-Hoping she'd notice my feigned strength, my inability to admit how uneasy I felt.
+Some part of me believed she'd notice anyway, the way she always seemed to, even when I couldn't admit to feeling helpless.
 
-"...I'll be back soon, it's alright."
+"...I'll be right back, don't worry."
 
-After confirming I nodded, the door closed softly with a pat. Only the ticking of the wall clock echoed through the room. Even though it was my usual room, where I'd been living for two months now, it felt strangely desolate.
+She waited to see me give a small nod before pulling the door shut, quiet, with a soft click. After that, only the tick of the wall clock filled the room. It was supposed to be my own room, the one I'd lived in for two months now, and yet somehow, tonight, it felt achingly empty.
 
-My fever-addled, foggy brain churned through thoughts.
+Fever-fogged, my thoughts drifted in scattered directions.
 
-This was the first time I'd caught a cold since moving in with Yui-san. We have separate rooms, so I suppose there's no real worry about passing it on if we're careful. But, for better or worse, today is Saturday, and the hospital is closed tomorrow too.
+This was the first time I'd caught a cold since moving in with Yui-san. We kept to separate rooms, so there shouldn't have been much risk of passing it to her, but as luck would have it — good or bad, I couldn't say — today was Saturday, and the clinic would be closed tomorrow too.
 
-　It was the usual time for dinner, yet I couldn't tell if my stomach was empty or not.
+It was around the time I'd normally be eating dinner, and yet I couldn't even tell whether I was hungry or not.
 
-The few minutes until Yui-san returned felt truly long.
+The stretch of minutes until Yui-san came back felt genuinely endless.
 
-"Kanata, I'm coming in, alright?"
+"Kanata, coming in, okay?"
 
-I turned towards the sound as the door opened. It's strange how Japanese people are – the moment I caught the pleasant aroma of bonito broth, my stomach, which shouldn't have been empty, growled sharply.
+At the sound of the door opening, I turned toward it. Strange thing, the human nose — the instant the good smell of bonito dashi reached me, my stomach, which shouldn't have had any appetite left, gave a small, hungry growl.
 
-　Such a delicious, inviting smell.
+It smelled wonderful.
 
-Leaning against the headboard, I sat up as Yui-san placed a tray on the side table and sat down on the bed.
+I pushed myself up against the headboard, and Yui-san set the tray down on the side table before sitting on the edge of the bed.
 
-Delicious-looking egg rice porridge. I could tell at a glance it wasn't some instant packet.
+A beautifully made egg zōsui. One glance told me it wasn't from a packet.
 
-"...So, Yui-san, you can cook, huh..."
+"...Yui-san, you can actually cook..."
 
-Honestly, I was surprised. Since we often ate out or ordered takeaway for dinner, I'd hardly ever imagined her cooking for herself.
+Honestly, I was floored. We ate out or ordered in most nights, so I'd never once pictured her cooking for herself.
 
-"I never said I couldn't do it, just that I don't usually."
+"Not doing it isn't the same as not being able to," she said, easy as anything, and without missing a beat, scooped up a spoonful of zōsui and brought it to my mouth.
 
-Yui-san stated it matter-of-factly, seemingly unconcerned, then scooped up some rice porridge with a spoon and brought it to my mouth.
+"Here, open up."
 
-"Here, open wide."
+"...Thank you for the food."
 
-"I'll have some..."
+The flavor of the broth spread through my mouth, and I thought, genuinely, that it was delicious. Being fed like this was a little embarrassing, but between the fever and the haze, it felt like being in a dream, and I let myself be led, chewing obediently at her urging.
 
-The flavour of the broth spreading in my mouth made me genuinely think, this is delicious. Having her feed me felt a little embarrassing, but perhaps because my fever had me feeling dazed, it felt like being in a dream. I obediently moved my mouth, chewing quietly as prompted.
+"It's good..."
 
-"It's delicious..."
+"Yeah? Good. You can leave the rest if you want."
 
-"Really? I'm glad. You can leave some if you want."
+Now that I thought about it, this kitchen, for someone who apparently never cooked, always had struck me as a little too well-equipped.
 
-I had indeed thought Yui-san's house seemed a bit too well-equipped with cooking utensils for someone who didn't cook.
+"Yui-san, you never cook, so... how come you're actually good at it...?"
 
-"Yui-san, you don't usually cook... so why... can you cook...?"
+I wondered if maybe she cooked for the women she brought home. I could almost picture that, too.
 
-When visiting girls' homes, I imagine she makes things for them. Somehow, I could picture that too.
+But the words she said next, her expression not shifting a bit, weren't anything like what I'd imagined.
 
-But the words Yui-san uttered, without changing her expression, were entirely different from what I'd imagined.
+"Grew up in a single-father household, so I learned to handle stuff around the house on my own, more or less. My dad was busy — barely home at all, even when I was a kid."
 
-"I grew up in a single-father household, so I can manage household chores to a certain extent. My dad was always busy and hardly ever home when I was a kid."
+Now that she mentioned it — I'd heard her talk about her father before, and her brother, but never once about her mother.
 
-Come to think of it, I realised. I'd heard about her father and her brother, but I'd never heard Yui mention her mother.
+"When I was a kid and caught a cold, my dad tried making me rice porridge once. It was shockingly bad. Ever since then I decided I'd just handle things myself."
 
-"When I was little and caught a cold, my dad made me some rice porridge once... but it was shockingly awful. That's when I decided I'd take care of myself from then on."
+Yui-san laughed, amused at the memory, and I found myself laughing too, caught up in it.
 
-Yui chuckled oddly, and I found myself laughing along.
+I pictured the president of one of Japan's leading conglomerates, standing in a kitchen, earnestly trying to nurse a sick kid, and the image alone was enough to pull a smile out of me.
 
-　The image of the president of a major Japanese corporation desperately trying to nurse his child brought a smile to my face.
+Her father was probably busy, rarely home. But one thing was clear all the same: Yui-san had been raised loved.
 
-Perhaps her father really was too busy to be home much. But one thing was clear: Yui had been raised in a loving home.
+Because otherwise, she never would have grown into someone this kind.
 
-Otherwise, she wouldn't have grown into such a kind person.
+For all my claiming I had no appetite, I ended up cleaning the zōsui bowl completely.
 
-Despite saying I had no appetite, I ended up polishing off the rice porridge she'd made for me.
+She tucked the duvet up to my shoulders, and once she'd flicked on the bedside lamp and reached to switch off the ceiling light, I found myself reaching out for her without thinking.
 
-　As Yui tucked the futon up to my shoulders, switched on the bedside lamp, and turned off the ceiling light, I reached out in a fluster.
-
-My lifted arm felt heavier than usual, but my fingertips barely caught hold of the hem of her T-shirt as she tried to stand.
+My arm felt heavier than usual as I lifted it, but my fingers just barely managed to catch the hem of the T-shirt she wore around the house before she could stand.
 
 "...Are you leaving already?"
 
-Yui blinked several times. She must have been surprised, but I couldn't care less.
+Yui-san blinked a few times. She was probably surprised, but I couldn't spare the energy to care.
 
-"I'm just taking the dishes away."
+"I'm just taking the dishes back."
 
-"No, that can wait. Stay here."
+"No, leave that for later. Stay here."
 
-I squeezed the words out. I just wanted her to stay. I didn't know why.\
-I felt like an abandoned kitten. Being alone in this room was far too lonely.
+I forced the words out. I just wanted her to stay. I couldn't even say why.
 
-Yui chuckled faintly, looking exasperated, and sat back down on the bed.
+It felt like being an abandoned kitten. Being alone in this room, right now, was unbearably lonely.
 
-　See? Just as I thought. If I ask like this, she usually laughs off most of my whims.
+Yui-san let out a small, exasperated laugh and settled back down onto the bed.
 
-I held out my hand, wanting her to take it. Understanding my wish, Yui-san's fingertips gently entwined mine.
+See — just like I thought. Ask like this, and she'd go along with almost any selfish little request, laughing it off every time.
 
-"Yui-san, hold my hand... the whole time... until I fall asleep."
+I held my hand out, wanting hers, and she seemed to understand exactly what I meant, her fingers slipping gently between mine.
 
-"...All right."
+"Yui-san, hold my hand. The whole time, until I fall asleep."
 
-This person is surely kind to everyone. Not just me. I know that.
+"...Okay."
 
-　Even knowing that, once I tasted this kindness, I realised I'd already gone too far to turn back.
+　
 
-Like my true nature was being dragged out bit by bit, only clingy words slipped from my lips.
+This person is kind to everyone. Not just to me. I already know that.
 
-"When I get a fever, I always have scary dreams..."
+I know it, and yet, once you've known this kind of kindness even once, by the time you notice, you're already somewhere you can't come back from.
 
-"...You catch colds because you come home soaking wet. If you'd called me, I would've come to fetch you."
+Like something dragging my true self out of me, whatever spilled from my lips now was nothing but spoiled, needy little pleas.
 
-"But... Hayakawa-kun said he'd walk me home."
+"When I run a fever, I always... have scary dreams..."
 
-"You're easily persuaded, aren't you, Kanata? Being this gullible makes me a bit worried."
+"...You caught a cold because you came home soaked to the bone. If you'd called, I'd have come to get you."
 
-"I'm not gullible..."
+"But... Hayakawa-kun said he'd walk me home..."
 
-"Then why did you go on a date with Hayakawa-kun?"
+"You really can't say no to people, can you, Kanata. Being that easy to push around actually worries me a little."
 
-She pressed further, saying that if I lived alone, it wouldn't have been strange for him to come up to my flat then. And I realised she was probably right.
+"I'm not easy..."
 
-　She couldn't deny she'd let her guard down a bit, knowing he saw her work attitude at the part-time job too.
+"Then why'd you go on a date with Hayakawa-kun?"
 
-"It wasn't a date... really..."
+*If you lived alone, he could've talked his way right up into your apartment, you know* — the follow-up jab landed, and I had to admit, grudgingly, that she had a point.
 
-"Hmm..."
+I couldn't deny I'd let my guard down some, knowing him from work, knowing how he carried himself on shift.
 
-It wasn't a date. That was true. Because we hadn't even held hands.
+"It wasn't a date... it really wasn't..."
 
-We'd just gone to the zoo together and looked at the pandas. That was all. Nothing special happened, and she'd have been troubled if it had.
+"Mm-hm..."
 
-The only miscalculation was lending him Yui-san's umbrella because of the rain.\
-I didn't like the thought that it had created some sort of opening for something to happen next.
+It wasn't a date. That much was true. We hadn't even held hands.
 
-But I must get it back. Yui-san's Burberry umbrella.
+We went to the zoo together and looked at a panda. That was all it was. Nothing special had happened, and honestly, it would've been a problem if something had.
 
-My gaze falls on our intertwined fingers. Matte, solid black nail polish. Neatly trimmed, short nails.
+The one miscalculation was lending Yui-san's umbrella to him because of the rain.\
+I hadn't been at all pleased that it had left behind some kind of thread, however small, that might lead to something next.
 
-　Not a single hangnail, meticulously cared-for fingertips. Why did my heart pound so hard, thump-thump, when the hand holding mine was unmistakably female?
+But still, I needed to get it back. Yui-san's Burberry umbrella.
 
-I must have been more tired than I realised. Combined with feeling unwell, closing my eyes brought sleepiness creeping in.
+I looked down at our laced-together fingers. Matte black nail polish, a single solid color. Short nails, neatly trimmed.
 
-I pulled the joined hands close to my chest, as if hugging them. I'd just fall asleep like this.
+Not a single rough edge, every fingertip perfectly cared for. The hand holding mine was undeniably a woman's, and still, I couldn't understand why my heart kept beating this hard, this fast.
 
-　With this hand, surely I won't have any frightening dreams.
+I really must have been more tired than I realized. Between that and feeling unwell, the moment I closed my eyes, drowsiness came creeping in, slow and heavy.
 
-"...Goodnight, Kanata."
+I drew our joined hands in close, hugging them to my chest. I'd just fall asleep like this.
 
-I hear the soft voice calling my name.
+With this hand here, surely, I wouldn't have any scary dreams.
 
-Before I can reply with "Goodnight," I find myself sinking into the bed, already fallen asleep.
+"...Good night, Kanata."
+
+I heard her voice, soft, saying my name.
+
+Before I could even answer *good night* back, I was already sinking into the bed, and before I knew it, I'd fallen asleep.

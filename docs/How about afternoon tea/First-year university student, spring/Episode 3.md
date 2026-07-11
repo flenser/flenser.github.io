@@ -1,315 +1,316 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 3
 parent: First-year university student, spring
 sequence: 3
-title: 'Episode 3: Yui-san is to Blame'
+title: "Episode Three: Yui-san's the Bad One"
 ---
-Episode 3: Yui-san is to Blame
+## Episode Three: Yui-san's the Bad One
 
-Thick grey clouds dripped raindrops onto the concrete, leaving patches of wetness.
+\
+Rain fell in thin, scattered drops from a thick blanket of grey cloud, staining the concrete underfoot.
 
-The weather forecast had said it would rain today, yet foolishly I'd left my umbrella at home.
+The forecast had said it would rain today, and yet, idiot that I was, I'd left my umbrella at home.
 
-I only had to get back home, but I hesitated over buying an umbrella at the campus convenience store and ended up killing time in the library instead.
+All I had left to do was get home, but I couldn't decide whether to buy an umbrella at the convenience store on campus, and ended up killing time in the library instead.
 
-　I could buy one, but I wasn't keen on leaving several umbrellas at Yui-san's place, which was sparse and simple. Besides, the forecast said the rain would stop in an hour.
+I could've bought one, sure, but it didn't sit right with me, cluttering up Yui-san's spare, minimalist house with a pile of umbrellas. And the forecast said it'd clear up within the hour anyway.
 
-Well, what to do? As I wandered through the vast building, I spotted a familiar figure at a desk.
+Wondering what to do with myself, I wandered the wide library floor and spotted a familiar face bent over a desk.
 
-Long, loosely curled hair in pink ash.
+Long, loosely curled hair in pink-ash.
 
-I've met that person before. The moment she looked up, our eyes met perfectly – hers slightly drooping.
+I'd met that person before. The moment she glanced up, her eyes, gently downturned at the corners, met mine dead on.
 
-"Ah."
+"Oh."
 
-I recall her name is Nakahara Ritsu.\
-Yui-san's friend. I remember being introduced to her as such before.
+Right, her name was Nakahara Ritsu-san.\
+A friend of Yui-san's. I remembered being introduced to her once before.
 
-"Kanata-chan, it's been a while. What are you doing?"
+"Kanata-chan, long time no see. What are you up to?"
 
 "Hello."
 
-Ritsu-san smiled, removing her earphones. She seemed to have been studying; several thick books were lined up on her desk.
+Ritsu-san pulled her earphones out and smiled; she'd apparently been studying, several thick books stacked on the desk in front of her.
 
-　The contrast with her flashy appearance was striking. I'd never even seen Yui studying, for that matter.
+The gap between that and her flashy looks was almost startling. I'd never once seen Yui-san studying, and here was her friend, buried in textbooks.
 
-"I forgot my umbrella, so I thought I'd kill time until it stops."
+"I forgot my umbrella, so I figured I'd kill time until it lets up."
 
-"Oh, I see. Why not ask Yui to come and fetch you? She hasn't come to uni today, so she must be at home, right?"
+"Ah, gotcha. You could've just had Yui come pick you up, though. She's not on campus today — isn't she home?"
 
-She swiftly pulled out the chair beside her, inviting me to sit. I accepted the offer and settled down next to her.
+She pulled out the chair beside her, inviting me to sit, and I took her up on it, settling in next to her.
 
-"Yui didn't come home yesterday, so I don't know if she's at home."
+"Yui-san didn't come home last night, so I don't know if she's there."
 
-Last night, she said she was going out for drinks and didn't come back until morning. We're not the sort of friends where I can ask where she is or what she's doing, so I always just send her off silently and wait for her return.
+Last night she'd said she was going out drinking, and that was the last I'd heard — she hadn't come back even by morning. Ours wasn't the kind of relationship where I could ask who she was with or what she was doing, so as always, I'd sent her off in silence and waited for her to come back.
 
-"She's got a way with them, doesn't she? Probably crashing at some other woman's place again, as usual."
+"That woman, I swear. Crashed at some other girl's place again, probably."
 
-"...Has Yui-san always been like that with women?"
+"...Has Yui-san always been like that with women? Even before college?"
 
-"I don't know about before uni, but she's been like that since at least first year. She's got a uselessly good face, so she gets all the attention. What she gets up to is pretty scummy though. Kanata-chan, are you alright living with that sex-crazed savage? Has she done anything to you?"
+"No idea about before college, but at least since our first year, yeah, she's been like this. Pointlessly good-looking, so she gets plenty of attention. What she actually does with it is pretty trashy, though. Kanata-chan, you sure you're okay living with that libido-driven savage? She hasn't tried anything?"
 
-I couldn't help but laugh. I was slightly envious of the kind of relationship that allowed her to speak so maliciously about Yui-san. I still didn't have the courage to delve that deep.
+I couldn't help laughing. Part of me envied a relationship close enough to talk about Yui-san with that much affectionate venom. I still didn't have the nerve to go anywhere near that territory myself.
 
-Asking who, where, what she was doing... it was terrifying.
+Who, where, doing what — even asking scared me.
 
-"I'm fine. Apparently I'm not Yui-san's type."
+"I'm fine. Apparently I'm not her type."
 
-"Huh... Did Yui say that?"
+"Hm... Yui said that?"
 
-Her gentle, drooping eyes peered at me with interest. A mischievous glint flickered in her dark brown irises.
+She leaned in, curious, her gentle downturned eyes, a hint of mischief flickering in their dark brown depths.
 
-　When I nodded honestly, Ritsu smiled, showing her white teeth with an amused grin.
+I nodded, honestly, and Ritsu-san grinned, baring white teeth, clearly entertained.
 
-"Hmm. Well, let's just leave it at that then."
+"Huh. Well, let's just go with that, then."
 
-"Do you know, Ritsu? Yui-san's type?"
+"Do you know, Ritsu-san? What Yui-san's actual type is?"
 
-"A 'cute girl who isn't a hassle', right?"
+"'Cute, and not a hassle.' That's the type."
 
-Apparently, whenever Yui-san is asked about her type at drinking parties, that's always her answer.
+Apparently that was the answer Yui-san always gave whenever someone asked her preference over drinks.
 
-　I see. If you play your cards right, perhaps the "troublesome types" really wouldn't bother her. It's like saying she only accepts casual relationships.
+Made sense — say that up front, and it probably scared off anyone who might turn out to be "a hassle." Basically announcing that she'd only take casual, no-strings arrangements.
 
-"Kanata-chan, you don't have a boyfriend at the moment?"
+"What about you, Kanata-chan? No boyfriend right now?"
 
-"No, I don't..."
+"No, not right now..."
 
-"Doesn't seem like you're looking either?"
+"Not even looking?"
 
-"People often say that. Do I give that impression?"
+"People tell me that a lot — do I really give off that impression?"
 
-Do I seem uninterested in romance? If so, that's half right and half wrong.
+Did I really look uninterested in romance? If so, that was half right and half wrong.
 
-It's not that I'm hung up on past relationships, but I am definitely passive about it.
+It wasn't that I was still hung up on my last relationship. But it was true that I'd gone passive about it.
 
-"But you look like you could get a boyfriend easily, you're so cute."
+"I mean, you're cute, so it seems like you could get a boyfriend easy."
 
-"I do think it'd be nice to meet someone nice... but I don't really meet anyone."
+"I do think it'd be nice if someone came along... but there's just no opportunity, really."
 
-"Oh? Well then, give me your contact details. I'll invite you to drinks and all sorts of gatherings. You can bring friends along too."
+"Yeah? Then give me your contact info. I'll invite you to drinking parties and stuff, all kinds of get-togethers. Bring friends too, if you want."
 
-"But I'm not even twenty yet..."
+"I'm not even twenty yet, though..."
 
-"Orange juice is fine. I'll make sure to get permission from your guardian, alright?"
+"Orange juice is fine. I'll get proper permission from your guardian too, don't worry."
 
-By guardian, did she mean Yui-san? While I wasn't actively seeking encounters right now, it was true that having various experiences would probably make university life more enjoyable.\
-　And since Ritsu-san is Yui-san's friend, I feel I can trust her.
+*Guardian* — did she mean Yui-san? I wasn't actively looking to meet new people right now, but it did seem like college life would be more fun with a wider circle.\
+And Ritsu-san was Yui-san's friend, so I felt safe with her.
 
-I exchanged contact details as requested. A cute new icon appeared in my chat app.\
-Having no high school friends in Japan, I need to build relationships from scratch, so I want to cherish any opportunities that come my way.
+At her prompting, we exchanged contact info. One more cute little icon added to my chat app.\
+None of my high school friends were in Japan, so I had to build my whole social world here from scratch, and I wanted to hold onto any chance that came along.
 
-　While chatting idly with Ritsu-san, the rain had stopped completely, just as forecast.\
-She said she needed to study a bit more – contrary to appearances, Ritsu-san seemed to be leading a rather serious university life.
+Chatting idly with Ritsu-san about nothing in particular, I looked up to find the rain had, just as forecast, already stopped.\
+She said she'd stay a bit longer to keep studying — for all her flashy looks, Ritsu-san apparently led a genuinely diligent college life.
 
-Ritsu-san felt more like the ideal university student than Yui-san did...
+Honestly, between the two of them, Ritsu-san felt a lot more like the "proper college student" I should be aspiring to be...
 
-　Stopping at a cake shop near the station, I bought two tarts perfect for afternoon tea and headed home. Yui-san still seemed to be out; the quiet room was exactly as I'd left it that morning.
+I stopped by a cake shop near the station and picked up two tarts, perfect for afternoon tea, and headed home to find Yui-san still hadn't come back — the quiet house was exactly as I'd left it that morning.
 
-As I boiled water in the kettle and prepared the teapot, I heard rustling sounds from the entrance. Yui-san returned at just the right moment.
+I was setting the kettle to boil and getting the teapot ready when I heard fumbling at the front door. Good timing — Yui-san was home.
 
-It looked like the two tarts I'd bought wouldn't go to waste after all.
+Now the two tarts I'd splurged on wouldn't go to waste.
 
 "I'm home."
 
-"Welcome back," I said, turning around. She was wearing the same hoodie as yesterday, yet her long black hair, which should have been loosely curled, was straight again.
+*Welcome back*, I said, turning around, and found her still in the same hoodie from yesterday, though the long black hair that had been loosely curled was now dead straight.
 
-Unaware of my gaze, Yui-san flicked the black cap she'd been wearing onto the rack.
+Not noticing my gaze, Yui-san tossed the black cap she'd been wearing onto the rack.
 
-She was wearing makeup, but it was different from yesterday. She must have bathed somewhere.
+Her makeup was on, but different from yesterday's. She must have bathed somewhere.
 
-As I warmed the pot, I heard the patter of slippers.
+While I was warming the pot, I heard the pat-pat of slippers approaching.
 
-　As Yui-san drew nearer, a strong, unfamiliar perfume scent hit me. Startled, I whipped around abruptly.
+As she got close, an unfamiliar, heavy perfume hit me, and startled, I spun around fast.
 
-"Eh? What?"
+"Huh, what?"
 
-"Yui-san, have you changed your perfume?"
+"Yui-san, did you change your perfume?"
 
-"No, I haven't put any on today... Hmm?"
+"No, I'm not wearing any today... huh?"
 
-I moved closer to pinpoint the source of the scent. Bringing my face near her chest area, a sickly sweet, overpowering fragrance assaulted my nose.
+I leaned in, trying to trace the source of the scent. When I brought my face close to her chest, a cloying, heavy fragrance filled my nose.
 
-　It was the scent of a woman, marked with desire, as if she were claiming it as her own.
+Like a woman marking her territory, thick with want.
 
-"...Yui-san, has perfume been sprayed on your clothes?"
+"...Yui-san, did someone spray perfume on your clothes?"
 
-"Eh? No way, I hadn't noticed at all. Maybe my nose is numb?"
+"What, seriously? I didn't notice at all. Guess my nose is shot."
 
-I thought, if you spent a night with a woman wearing this scent, you'd probably lose your sense of smell.
+If you spend a whole night with a woman wearing a scent like this, I suppose you really would go numb to it.
 
-　Seeing Yui slump her shoulders, muttering about how expensive this hoodie was, made me want to sigh.
+*This hoodie was expensive, too*, she said, shoulders slumping, and I nearly sighed out loud.
 
-"...Yui, how many fuck buddies do you actually have?"
+"...Yui-san, exactly how many fuck buddies do you even have?"
 
-"Eh?"
+"Huh?"
 
-Looking up at her resentfully, Yui just stared back, her eyes wide in utter bewilderment.
+I looked up at her, resentful, and she blinked back at me, eyes rounding in a way that was almost comically startled.
 
-"I don't think I'm actively making fuck buddies..."
+"I don't think of it as making fuck buddies, though..."
 
-"Blimey, you really don't realise, do you..."
+"Wow, so you genuinely don't realize..."
 
-"Well, I don't like all this hassle, you see."
+"I mean, I don't really like that kind of hassle."
 
-Pulling at the collar of her shirt, which had clearly been sprayed with perfume, she looked utterly disgusted. Seeing that, I began to understand Yui-san's thought process.
+Tugging at the perfume-doused front of her chest, wearing an expression of pure distaste, I finally started to piece together how her mind worked.
 
-She preferred one-night stands; she disliked committing to anyone specific. Even if it was a fuck buddy, did that fall under the "hassle" category for Yui-san?
+A relationship contained to just that one day was fine, but anything involving a specific, recurring person was not — apparently even a fuck buddy fell under her "too much hassle" category.
 
-　Well, no wonder she'd never get a girlfriend...
+Which meant, obviously, there was no way she'd ever have a girlfriend...
 
-Yeah, best stop thinking about it. There's no way I could understand.
+Yeah. I decided to stop thinking about it. There was no way I'd ever understand.
 
-"...Afternoon tea, Yui-san? How about it? I bought some tarts near the station."
+"...Yui-san, would you like some afternoon tea? I picked up tarts near the station."
 
-Looking up to ask, Yui-san's previously sullen face brightened instantly.
+I looked up and asked, and her sulky expression brightened instantly.
 
-She busily set the tarts on the coffee table and placed two teacups side by side.
+I busily set the tarts out on the coffee table and lined up two teacups.
 
-I know Yui-san prefers coffee, but I absolutely believe milk tea is the perfect match for afternoon tea.
+I knew Yui-san preferred coffee, but I firmly believed milk tea was the only proper match for afternoon tea.
 
-  While tucking into a tart, I glance over at Yui-san beside me.
+Biting into my tart, I glanced sideways at her.
 
-"Um, you don't have to answer if you don't want to, but Yui-san, are you the type who has sexual desire but no romantic feelings?"
+"Um, you don't have to answer if you don't want to, but... Yui-san, are you the type who has sexual desire but no romantic feelings?"
 
-The day I found out Yui-san was homosexual, I frantically looked up the sexuality of someone I'd never even considered before.
+The day I'd learned Yui-san was gay, I'd rushed to look up the sexuality of someone I'd never once thought to consider before.
 
-Heterosexual, homosexual, bisexual, apparently there are various others too.
+Heterosexual, homosexual, bisexual, and apparently plenty of others besides.
 
-There's even a sexuality where you don't feel romantic attraction towards others...
+There was even a category for people who didn't experience romantic attraction to others at all...
 
-"No? I fall for girls normally, but..."
+"No? I fall for girls just like anyone..."
 
-"Eh... you do fall in love?"
+"Wait... you fall for people?"
 
-I was surprised by her straightforward denial. Even if I were being generous, Yui-san's behaviour didn't exactly scream 'in a relationship'.
+I was startled by how flatly she denied it. Her conduct, to put it kindly, didn't exactly look like someone who fell in love.
 
-As she lifted a fruit tart to her mouth, Yui-san narrowed her eyes in displeasure.
+Bringing a bite of fruit tart to her mouth, Yui-san narrowed her eyes, faintly displeased.
 
-"What on earth do you think I am, Kanata?"
+"What exactly do you think I am, Kanata?"
 
-A sex-crazed savage.
+*A libido-driven savage.* Ritsu-san's words flashed through my mind, and I swallowed them back down. I wasn't trying to pick a fight. I just wanted to understand her.
 
-　Ritsu-san's words flashed through my mind, but I swallowed them back. I didn't want to argue; I just wanted to understand Yui-san.
+"Right now I'm just not looking to fall for anyone, so I make a point of not getting involved with girls who like me that way. There's no point, since I can't return the feeling anyway."
 
-"I'm not interested in romance right now, so I avoid getting involved with girls who like me. I couldn't reciprocate their feelings anyway."
+"You don't want a relationship, but you still want sex?"
 
-"You're not interested in romance, but you want sex?"
+"What about you, Kanata? Never wanted to do that kind of thing with some nice guy?"
 
-"Kanata, if you met someone wonderful, wouldn't you ever want to do that sort of thing?"
+The question bounced right back at me, and I caught myself, stumbling for an answer. Some nice guy, wanting to do that kind of thing with him...
 
-　The question bounced back at me, and I stammered for an answer. A wonderful person of the opposite sex, wanting to do that sort of thing...
+"...No. Never. I mean, if he were my boyfriend, I'd feel like I ought to go along with it if he wanted to. But wanting it myself, on my own... no, never."
 
-"...No, I haven't felt that. If it were a lover, I suppose I'd feel I had to respond if they asked. But I've never wanted it myself."
+I thought back over my past relationship. Honestly, when it came to sex, I didn't have any good memories.
 
-I tried to recall past relationships. Honestly, I didn't have any good memories regarding sex.
+"...You don't actually want a boyfriend either, do you, Kanata? Not really."
 
-"...You're the one who doesn't really want a lover, are you?"
+That was the second time today someone had said that to me. I must really come across as completely indifferent to romance.
 
-　This was the second time today I'd been told that. Apparently, I must seem utterly indifferent to romance.
+"That's not true. There are times I feel lonely. Times I wish someone would just hold me..."
 
-"That's not true. I do feel lonely sometimes. I do think about wanting someone to hold me..."
+"What do you do, when you feel like that?"
 
-"What do you do when that happens?"
+What was I supposed to do about it. There was no one there to do anything with. And I wasn't the type who could just take up with random people the way Yui-san did. Too much risk, not enough upside.
 
-What do you mean, what do I do? I can't do anything when there's no one there. I don't fancy having relationships with multiple people like Yui-san does either. The downsides are far too great.
+"Nothing. I just feel lonely, that's all."
 
-"Nothing. I just feel lonely."
+"Hm... Then I'll hold you, when you're like that."
 
-"Hmm... Well then, I'll hug you when you feel like that."
+Before I knew it, she'd pulled my arm and I was folded neatly into her embrace.
 
-I felt her arm pull me sharply, and before I knew it, I was snugly tucked into her embrace.
+...Wrapped in another woman's perfume, holding someone else without a second's hesitation. What a sinful person.
 
-...To embrace another woman without hesitation, while still wearing the scent of a different woman's perfume... what a sinful person.
+The arm around me, the soft body pressed close, unmistakably a woman's, and yet — why did it feel so good?
 
-　The arms pulling me close, the soft body — undeniably female. Yet why? It felt comforting.
-
-Except for this cloying scent.
+If not for that cloying scent still clinging to her.
 
 "Yui-san, I... I don't like this smell."
 
-I pushed her shoulders away. Looking up from her loosening embrace, Yui-san smiled, grabbed the hem of my hoodie, and pulled it up in one swift motion.
+I said it, pushing back at her shoulder. Looking up from the loosened embrace, I found Yui-san smiling, gripping the hem of her hoodie, and in one motion pulling it up and off.
 
-"Right then."
+"There we go."
 
-Before I could react, she flung the hoodie onto the floor beneath the sofa. Now in just a T-shirt, Yui's arms wrapped around my neck and pulled me close. The distance closed as if in slow motion.
+While I sat there stunned, she flung the hoodie onto the floor by the sofa, and in just her T-shirt now, looped her arm back around my neck and pulled me in close. The distance closed like slow motion.
 
-A single diamond necklace swayed against her white chest.
+A single-diamond necklace swayed against her pale collarbone.
 
-Simply being held so tightly, our bodies pressed together, made breathing difficult, as if I were underwater.
+Pulled in close, our bodies pressed flush together, and just from that, my breath went tight, like I was underwater.
 
-"Is this alright?"
+"Better now?"
 
-"...Wasn't that hoodie rather expensive?"
+"...Wasn't that hoodie expensive?"
 
-My gaze fell on the hoodie she'd tossed to my feet without a second thought. Poor thing. Doused in perfume, thrown about – it might well be today's most victimised item.
+I glanced at it, tossed to the floor without a second thought. Poor thing — doused in perfume, then flung aside. Might be the biggest casualty of the day.
 
-"But you didn't like it, did you?"
+"Well, you didn't like it, right?"
 
-"...Do you do this sort of thing to everyone, Yui?"
+"...Do you do this with everyone, Yui-san?"
 
-"No, I don't."
+"No."
 
 "Liar."
 
-"It's true. You're the only one. You're special."
+"I'm serious. You're the only one, Kanata. You're special."
 
-The devil's whisper echoing from my ear to my brain. If I knew nothing, I'd be completely fooled.
+A devil's whisper, murmured close to my ear, sinking straight into my brain. If I didn't know any better, I'd fall for it completely.
 
-This person, who apparently doesn't like my type, what on earth is she playing at?
+Someone who's apparently decided I'm not her type — what does she even think she's doing, doing this?
 
-I don't understand anymore. I close my eyes and try to relax my body.
+I gave up trying to understand. Closed my eyes, let my body go slack.
 
-　Since living with Yui-san, I've discovered a side of myself I never knew. Being pampered like this... I don't dislike it.
+Something I'd never known about myself until I started living with Yui-san. Being spoiled like this — I didn't hate it.
 
-I give the sleeve of her T-shirt a little squeeze. Feeling her hands pat my back, I think, ah, that feels nice.
+I curled my fingers into her T-shirt sleeve. She stroked my back, gentle, patting, and I thought, *this feels nice.*
 
-When Yui-san touches me, I feel surprisingly little desire. Only kindness flows from her touch; it's clear there's no ulterior motive.
+When Yui-san touched me, there was startlingly little desire in it. Just kindness, coming through wherever she touched, no ulterior motive in sight.
 
-　I still don't know whether I should be glad about that, or sad.
+Whether to be glad of that or sad about it, I still didn't know.
 
-Maybe I'm just not attractive. After all, even the guy who used to tell me I was cute, ended up leaving me.
+Maybe I just wasn't appealing enough. Even he, the one who used to call me cute, cute, over and over, had left me in the end.
 
-Because I'm incomplete as a woman. Because I can't do sex properly, well.
+Because I was incomplete, as a woman. Because I couldn't do sex properly, the right way.
 
 "...Yui-san."
 
-"Hmm?"
+"Mm?"
 
-"I saw Ritsu-san today. She said she'd invite me to the next gathering, so I should come."
+"I ran into Ritsu-san today. She said she'd invite me to a get-together sometime."
 
-"Eh?"
+"Huh?"
 
-Perhaps because her ear was pressed right against my chest, Yui-san's soft voice, which usually carried just a little, sounded tense.
+Maybe because my ear was pressed right against her chest, Yui-san's voice, soft as it reached me, seemed to catch, just slightly.
 
 "...Should I not go?"
 
-"Hmm, I'm a bit worried..."
+"Hmm, I'm a little worried, honestly..."
 
 "Worried?"
 
-"You can go, but you absolutely mustn't drink any alcohol. There are bad people out there. Can you promise me that?"
+"Go if you want, but promise me you won't drink. There are bad people out there. Can you promise me that?"
 
-"Bad people, like Yui-san?"
+"Bad people, like you, Yui-san?"
 
-"Yes, exactly. It'd be awful if you got taken home, wouldn't it?"
+"Exactly like me. It'd be a disaster if someone took you home."
 
-"Hehe... You're quite aware you're a bad person, aren't you?"
+"Heh... you sure seem self-aware for a bad person."
 
-She gently stroked my head. It tickled a little, and I closed my eyes.
+She stroked my hair gently, and it tickled just enough that I closed my eyes.
 
-I felt like I might melt away in this sugar-sweet tenderness.
+I felt like I might melt into this sugar-sweet kindness.
 
-Because Yui-san gives me everything I want, every word I long to hear, as if she'd known it all along.
+Because Yui-san gave me exactly what I wanted, exactly the words I needed to hear, like she'd known all along, from the very start.
 
-　If I'm treated this kindly. If I'm spoiled this much. I might just go to ruin.
+If she kept being this kind to me. If she kept spoiling me like this.
 
-I didn't want to know. It's about me, yet I never realised it until now.
+I was going to end up ruined.
 
-I've always lived thinking I had to be strong, because I have a little brother and I'm the big sister.
+I hadn't wanted to know this. About myself, of all things, something I'd never once noticed, all this time.
 
-For the first time in my life, I've become aware of my own desire to be spoiled.
+I had a little brother. I was the older sister. I'd always, always told myself I had to be the reliable one, the steady one.
 
-And it's all Yui's fault.
+And here I was, for the first time in my life, waking up to a desire I'd never admitted to: *wanting to be spoiled.*
+
+And it was all, every bit of it, Yui-san's fault.
