@@ -4,7 +4,7 @@ layout: episode
 nav_order: 10
 parent: First-year university student, summer
 sequence: 20
-title: 'Episode Twenty: Not Today... Please Don't Go'
+title: "Episode Twenty: Not Today... Please Don't Go"
 ---
 ## Episode Twenty: Not Today... Please Don't Go
 
