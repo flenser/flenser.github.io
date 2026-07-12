@@ -1,6 +1,7 @@
 ---
 grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 5
 parent: First-year university student, summer
 sequence: 15
 title: 'Episode Fifteen: Do You Really Need to Sleep With Girls Less Cute Than Me?'

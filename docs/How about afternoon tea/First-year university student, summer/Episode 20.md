@@ -1,6 +1,7 @@
 ---
 grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 10
 parent: First-year university student, summer
 sequence: 20
 title: 'Episode Twenty: Not Today... Please Don't Go'

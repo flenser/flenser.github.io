@@ -1,6 +1,7 @@
 ---
 grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 4
 parent: First-year university student, summer
 sequence: 14
 title: "Episode Fourteen: Don't Say Such Cute Things"
