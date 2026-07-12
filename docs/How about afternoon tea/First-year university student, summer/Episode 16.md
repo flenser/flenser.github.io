@@ -1,183 +1,184 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: First-year university student, summer
 sequence: 16
-title: 'Episode 16: How Many People Did You Kiss While I Was Away?'
+title: 'Episode Sixteen: How Many People Did You Kiss While I Was Gone?'
 ---
-Episode 16: How Many People Did You Kiss While I Was Away?
+## Episode Sixteen: How Many People Did You Kiss While I Was Gone?
 
-My next return would likely be at year's end. Having concluded my lengthy three-week homecoming, I now sat aboard the flight bound for Haneda.
+\
+My next trip home would probably be at year's end. My long three-week visit finally over, I was now on a plane bound for Haneda.
 
-Arrival in Japan would be tomorrow evening. Though I still hadn't grown accustomed to long flights, my mood was brighter than it had been five months prior.
+I wouldn't land in Japan until tomorrow evening. Long flights still weren't something I'd gotten used to, but unlike five months ago, my heart felt light.
 
-　Gazing down at the city lights floating in the dark night, I recalled the words my mother had whispered softly to me at the airport.
+Watching the city lights glowing below in the dark, I thought back to what my mother had murmured to me at the airport.
 
-——You're in such a hurry to get back, you've got a new boyfriend, haven't you?
+*You're this eager to get back — did you make a new boyfriend or something?*
 
-I hastily shook my head from side to side, denying it, but Mum just smiled cheerfully and said, "I won't tell your father," refusing to take me seriously.
+I'd shaken my head fast, insisting that wasn't it, but she'd just smiled and said, "I won't tell your father," refusing to take me seriously.
 
-It really wasn't that, but did I really look that giddy?
+It really wasn't that. Had I actually looked that giddy?
 
-　Even though it's about me, I don't quite understand myself.
+Even to myself, about my own feelings, I honestly couldn't say.
 
-Yui-san is a woman. Why do I miss her so much? Why do I want to see her so badly?
+Yui-san is a woman. So why do I miss her this much? Why do I want to see her this badly?
 
 Because she's kind? Because she's beautiful? Because she spoils me?
 
-It feels like all of those reasons apply, and yet none of them quite fit. Just as she treated me as special, Yui-san had certainly become a 'special' person to me too.
+It feels like all of it applies, and at the same time, like none of it quite captures it. Just as she calls me special, Yui-san had genuinely become "special" to me too.
 
-　But is the 'special' I feel the same as the 'special' she feels?
+But is the "special" I mean the same as the "special" she means?
 
-No matter how much I pondered, I couldn't find an answer alone. I simply closed my eyes, leaving myself to the aeroplane gliding above the clouds.
+No amount of thinking was going to produce an answer on my own, so I just let myself be carried along by the plane cutting through the clouds and closed my eyes.
 
-It would have been nice to talk to someone, but I felt that putting it into words might actually change something.
+If only I had someone to talk this through with. But it felt like putting it into words would actually change something, for real.
 
-By the time we landed on the runway bathed in sunset light, I was utterly exhausted. Over twelve hours sitting still was, frankly, too long.\
-When the restrictions on communication devices were lifted and I switched off airplane mode, a message arrived.
+By the time we landed on the runway lit gold by the setting sun, I was thoroughly worn out. Sitting still for over twelve hours takes its toll.
+Once device restrictions lifted, I switched off airplane mode, and a message came through.
 
-The simple message, 'Waiting in front of the clock tower,' made the corners of my mouth turn up naturally.
+*Waiting by the clock tower* — such a simple message, and it pulled a smile out of me without my even meaning it to.
 
-I collected my suitcase and hurried towards Yui-san.
+I collected my suitcase and hurried toward Yui-san.
 
-The meeting place was the same as five months ago. But my feelings, everything, felt different.
+The meeting spot, same as five months ago. But everything about how I felt was different now.
 
-　The clock tower came into view, and I spotted Yui-san waving. My eager heart pushed me forward, and I naturally broke into a light jog.
+The clock tower came into view, and I spotted Yui-san waving. Impatience pushed at my back, and I broke into a small run without meaning to.
 
 "Welcome back, Kanata."
 
-I let go of my suitcase and threw my arms around Yui-san, who had opened hers wide, practically running into her embrace.
+Letting go of my suitcase, I rushed straight into the arms she'd already spread open.
 
-As I nuzzled her neck, the soft, sweet scent of Yui-san filled me, making my chest tighten.
+Nuzzling against her neck, that soft, sweet scent that's only Yui-san's filled me, and something in my chest clenched, tight.
 
-Ah, such a lovely smell.
+Ah. What a good smell.
 
-　It's Terminal 3 for international flights. No one's going to bat an eyelid at a hug.
+Terminal 3 is international arrivals anyway. Nobody so much as glances at a hug here.
 
-Without hesitation, she hugged me back so tightly it hurt, filling every empty space. I felt my hollow heart rapidly filling up.
+Held tight, tight enough it almost hurt, without a second's hesitation, the emptiness in me filled up fast, all at once.
 
 "I missed you."
 
-Her delighted voice whispered in my ear.
+Her voice, right at my ear, sounded happy.
 
-I probably missed her far, far more. But I'd never admit it, not for the life of me.
+I probably missed her more, so much more. But I'd never say that, out of pure stubbornness.
 
-When her arms gently loosened, I pulled away and looked up at Yui-san. Her kind eyes were fixed on me.
+Her arms loosened, gently, and when I pulled back to look up at her, those kind eyes were watching me.
 
-"You must be hungry. Shall we grab something to eat before heading home?"
+"You must be hungry, let's grab something to eat on the way home."
 
-I nodded. Yui-san grabbed the handle of the suitcase I'd tossed aside, then with her free hand, she intertwined her fingers with mine. I squeezed back just as tightly.
+I nodded, and Yui-san picked up the handle of the suitcase I'd abandoned, then caught my free hand with hers, and I squeezed back, hard.
+I'd thought, flying out, that Narita would've been better. Coming home, though, I was glad it had been Haneda after all — that was the kind of night it turned into.
 
-　On the way there, I’d wished we’d gone via Narita, but on the way back, I was glad we’d chosen Haneda. That was the kind of night it was.
+The moment we got back to Yui-san's house, three weeks apart finally over, I didn't even make it to the living room before my arm was pulled and I was pulled into an embrace.
 
-Back at Yui-san’s place for the first time in three weeks, I hadn’t even made it to the living room before she pulled me into her arms.
+My back pressed against the hallway wall, a small ache from the impact.
 
-My back pressed against the hallway wall, stinging a little.
+Maybe I hadn't been the only one who'd felt lonely. I wrapped my arms around her too, gently, and stroked her back.
 
-　Perhaps I wasn't the only one feeling lonely. I gently wrapped my arms around her and stroked her back.
+"Heh... Yui-san, you're the spoiled one today."
 
-"Hehe... Miss Yui seems to be the clingier one today."
+Usually I'm the one burrowing into her arms, asking to be held. The arms wrapped around me now weren't as gentle as usual, not the soft, enveloping warmth I knew — this was stronger.
 
-Usually, it's me who slips into her arms and seeks a hug. Miss Yui's arms around me weren't always this tight; they used to be gentler, with a more enveloping warmth.
+"...I really missed you."
 
-"...I've missed you terribly."
+Whispered right against my ear, and a small shiver ran down my spine. Pinned against the wall, held so tight it felt like being trapped, her arms held me fast, refusing to let go.
 
-Hearing those words whispered into my ear sent a shiver down my spine. I was pinned against the wall, held in a tight embrace as if trapped, her arms gripping me firmly, refusing to let go.
+"Yui-sa—, ah!"
 
-"Yui-sa...!"
+My voice shook trying to say her name, because I'd felt her lips press against the edge of my ear.
 
-My voice trembled involuntarily as I tried to call her name, realising her lips were pressed against the edge of my ear.
+My body reacted before my mind could catch up, and the arm I'd raised to push her shoulder back was caught, effortlessly, and pinned to the wall.
+The instant she nipped gently at my earlobe, an indescribable shiver raced through me.
 
-　Before my mind could process it, my body reacted. My attempt to push her shoulders back was easily caught, and I was pressed back against the wall.\
-The moment she gently bit my earlobe, an indescribable tingling sensation ran through me.
-
-I tried to say stop, but a whimpering, pleading voice threatened to escape instead. I bit my lower lip hard and closed my eyes.
+I meant to say *stop*, but a helpless, needy sound nearly slipped out instead, and I bit down on my lower lip and squeezed my eyes shut.
 
 "...Hey, Kanata."
 
-　My body, which had overreacted, twitched. Don't whisper so close to my ear. Yui-san knows I'm weak to that, and she's doing it on purpose. She's being mean.
+My overreacting body flinched at the sound. Don't whisper that close to my ear. Yui-san knows exactly how weak I am to that, and doing it anyway is just mean.
 
-"Face this way."
+"Look at me."
 
-That sweet, soft voice resonated from my eardrum, dulling my thoughts. If I turned towards her at this close range, our eyes would meet.\
-If that happened, I felt I'd end up accepting everything without resistance. I was terrified she might easily name all the things troubling me.
+Her voice, sweet and soft, rang through my ear and dulled my thinking. If I turned to face her at this distance, our eyes would meet.
+And if that happened, I felt like I'd end up accepting everything, no resistance left at all. I was scared that whatever I'd been agonizing over would suddenly get a name, too easily.
 
-I took a deep breath to steady my voice.
+I took a deep breath, trying to keep my voice from shaking.
 
-"Yui, what are you trying to do?"
+"Yui-san, what exactly are you planning to do?"
 
-Her left hand gently stroked my cheek. Though it freed my restrained arm, her lips pressed softly against my neck, and an unfamiliar heat took hold of my body.
+Her left hand came up, gently, to stroke my cheek. My restrained arm was freed, but her lips pressed softly against my neck instead, and some indefinable heat took over my whole body.
 
-　It felt like a flame had been lit deep within my stomach.
+Something like fire seemed to kindle low in my stomach.
 
-The closeness made me react, and the thought of her noticing filled me with such shame that I bit my lip and weakly pushed her shoulders away. This time, a little distance opened up between us, and I found myself locked in direct eye contact with Yui-san's dark eyes.
+Pressed together this close, there was no hiding how my body was reacting, and mortified, I bit my lip and pushed weakly at her shoulder. This time a small gap opened between us, and I found myself looking straight into Yui-san's black eyes.
 
-"...I want to kiss you. Is that alright?"
+"...I want to kiss you. Not allowed?"
 
-Hearing it stated so directly hit me like a punch to the gut. Questions swirled around in my head.
+Said so directly, it hit like a blow. Questions spun, dizzying, through my head.
 
-　You're not my type, are you?
+I'm not your type, aren't I?
 
-So, you couldn't possibly want to hold me, could you?
+Which means you can't actually sleep with me, isn't that right?
 
-I didn't know. What did a kiss mean to Yui? How much of an 'expression of affection' was it?
+I don't know. What a kiss even means to Yui-san. What level of "expression of affection" it counts as, in her book.
 
-At the very least, I only did such things with a lover, and had never done them otherwise.
+For me, at least, that kind of thing only happens with someone I'm actually dating — I never have, otherwise.
 
-But Yui was different. There was a clear difference in our awareness. I thought if I let myself be swept along by the momentum and accepted it too readily, I'd be in for hell.
+But Yui-san is different. There's a clear gap in how we each think about it. If I let myself get swept along and simply gave in, I felt certain I'd end up in something like hell.
 
-　If I touched this person with half-hearted feelings, it wouldn't end with just a burn.
+Touching this person with anything less than full seriousness — I wouldn't come away with just a burn. It would be so much worse.
 
 "Even if you say that..."
 
-"Come on, it's fine. We've done it once already, and you don't mind, do you?"
+"C'mon, it's fine, isn't it. We've already done it once, and you don't actually hate it, right?"
 
-She leaned in before I could answer, so I hurriedly pressed my palm against her lips to stop her.\
-　A glare of sullen dissatisfaction pierced me, but unlike Yui-san, I wasn't experienced enough to kiss on impulse, carried away by the moment's momentum.
+Without waiting for an answer, she leaned in, and I scrambled to press my palm flat against her lips to stop her.
+
+A resentful, faintly annoyed look pierced me, but unlike Yui-san, I wasn't practiced enough at playing around to kiss someone on pure momentum and mood.
 
 "...Kanata."
 
-"'If she thinks she can push me, it's over'... right?"
+"'If she thinks pushing works on this girl, that's it, game over'... right?"
 
-I recalled the words Yui-san had warned me with sometime ago. This person already knew I was weak to pressure. That's why they were pushing so hard, absolutely.
+I remembered the warning Yui-san herself had given me once. She already knows I'm weak to being pushed. That's exactly why she's coming at me this hard right now — it had to be.
 
-　Yui-san furrowed her perfectly shaped brows, looking annoyed. Even with that displeased expression, she was still beautiful, I thought – a thought entirely out of place in this moment.
+Her well-shaped brows drew together, faintly annoyed. Even irritated, she was still beautiful, an oddly out-of-place thought for the moment.
 
-"...You said you didn't dislike being kissed, but that was a lie..."
+"...You said you didn't hate being kissed. Was that a lie?"
 
-"It wasn't a lie. That part was true."
+"It's not a lie, that part's true."
 
-I knew she'd ask why, so before she could, I wrapped my arms around Yui-san's neck, leaning into her slightly taller frame like I was seeking comfort.\
-　Yui-san might know I'm weak to pressure, but I know her weakness too.
+Before she could ask *then why*, I looped my arms up around her neck instead, the way you'd cling to someone taller than you, needy.
+Yui-san might know I'm weak to being pushed. But I know her weak spot too.
 
-This person is weak to being treated affectionately.
+This person is weak to being spoiled, to being needed.
 
-"...You do this with everyone, don't you, Yui-san? That's what pisses me off."
+"...Yui-san, do you do this with everyone? That's what bothers me."
 
-"No, it's not like I do it with everyone..."
+"No, it's not like it's everyone..."
 
-"So, how many people did you kiss while I was away? Tell me."
+"Then, how many people did you kiss while I was gone? Tell me."
 
-When I asked, Yui's eyes darted around for a moment. Ah, just as I thought. To keep this person's bad habits in check, you might actually need handcuffs.
+The moment I asked, her eyes flickered away, just for an instant. Ah, there it is. Reigning in this woman's bad habit really might require actual handcuffs.
 
-"See, I knew it. Doesn't it matter who it was, you lecher?"
+"See, I knew it. Anyone would do, wouldn't they. Pervert."
 
-Hit where I didn't want to be hit, I slipped away from Yui's trembling arms. Honestly, my heart was pounding like crazy, and I thought if she'd pressed a bit harder, it might have been dangerous.
+Struck exactly where she didn't want to be, Yui-san flinched, and I slipped free of her arms. My heart had genuinely been pounding, and honestly, if she'd pushed even a little further, it might have gone badly.
 
-Glancing sideways at Yui, who was leaning against the wall, shoulders slumped, sighing, I headed towards the living room.
+Glancing back at Yui-san, hand braced against the wall, shoulders slumped, letting out a sigh, I headed for the living room.
 
-At this point, whether it's a woman or a man, whether I like her or not, that's beside the point.
+Setting aside, for now, whether it's a woman or a man, setting aside whether I actually like her —
 
-It's not enough for me that she thinks of me as her 'number one'.
+being her "favorite" isn't enough for me.
 
-　I don't want second or third best.
+I don't want there to be second, or third.
 
-Unless someone thinks only of me, I won't just hand myself over so easily.
+Unless it's someone who thinks only of me, I won't hand myself over that easily.
 
-For now... that's how I feel.
+At least, that's the plan. For now.
 
-I think Yui-san knows this too, but I'm quite selfish.
+Yui-san probably already knows this about me — I'm fairly selfish.
 
-If you want to touch someone like me, then you too...
+If she wants to touch someone like that, someone like me —
 
-Should show some proper sincerity.
+then she needs to show me some real sincerity of her own first.

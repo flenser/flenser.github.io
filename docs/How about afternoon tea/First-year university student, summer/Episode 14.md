@@ -1,181 +1,190 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: First-year university student, summer
 sequence: 14
-title: "Episode 14: Don't Say Such Cute Things"
+title: "Episode Fourteen: Don't Say Such Cute Things"
 ---
-Episode 14: Don't Say Such Cute Things
+## Episode Fourteen: Don't Say Such Cute Things
 
-"Lucky there was a direct flight from Haneda. If it'd been Narita, we might've had to stay overnight beforehand."
+\
+"Good thing there's a direct flight out of Haneda. If it'd been Narita, you might've needed a night there beforehand."
 
-Early morning. Yui chuckled as she stuffed my suitcase into the car boot.
+Early morning. Yui-san packed my suitcase into the trunk of the car, laughing.
 
-　My luggage consisted of a few changes of clothes and an orca plush toy. "You're taking that? Won't it take up space?" Yui-san asked, but I ignored her and crammed it into the suitcase.
+My luggage was a few changes of clothes and the orca plushie. *You're bringing that? Doesn't it take up too much room?* Yui-san had said, but I'd ignored her and crammed it in anyway.
 
-The orca had to come. I'd feel lonely without something to hug when I missed her.
+The orca is coming. I'll need something to hold onto if I get homesick for her.
 
-August arrived in the blink of an eye, and before I knew it, it was departure day.
+August had arrived in the blink of an eye, and now, before I knew it, departure day was here.
 
-　This Japanese summer, I shall bid farewell for a while to the sound of cicadas.
+A brief goodbye to Japanese summer, and to the sound of the cicadas.
 
-After loading the luggage, Yui opened the passenger door for me, so I climbed into her beloved car.\
-I never know when she washes it, but Yui's car is always gleaming. Perhaps it's thanks to having a garage.
+Once the bags were loaded, Yui-san opened the passenger door for me, and I climbed into her beloved car.
+I never know when she washes it, but Yui-san's car is always spotless. Maybe having a garage helps.
 
-That car, apparently a hand-me-down from her brother, is a bit of a stretch for a university student to drive, but it suits Yui perfectly.
+Apparently a hand-me-down from her brother, it's a bit much for a college student to be driving around in, but somehow Yui-san makes it work.
 
-　Apparently, "Yuki-nii loves cars, so he replaces his every three years."
+According to her, "Yuki-nii loves cars, so he trades his in every three years."
 
-The car began its gentle journey towards the airport. Travelling by train with such heavy luggage would be a nightmare.\
-I silently thanked Yui-san's brother, whom I'd never even met.
+The car eased smoothly toward the airport. Moving this much luggage by train would have been a nightmare.
+I sent a small, silent thanks to Yui-san's brother, someone I'd still never met.
 
-When I first returned to Japan, I was so homesick and lonely I couldn't bear it. Now, I find myself wanting to stay here just a little longer.
+*
 
-　This shift in feeling was undoubtedly down to the person sitting to my right.
+When I'd first come back to Japan, I'd been so homesick, so unbearably lonely. Now I wanted to stay here as long as I possibly could.
 
-I gazed at Yui-san's profile, illuminated by the morning sun.\
-It was when she took me to the aquarium recently that I realised how much I liked the sight of her profile while driving, and the way her hands gripped the steering wheel.
+There's no question whose fault that is. The person sitting right beside me.
 
-Had I been in Japan, she surely would have taken me to so many more places.\
-Time pressed on relentlessly. I adore my father, mother, and brother, but right now...
+I studied Yui-san's profile, lit by the morning sun.
+I'd realized, back at the aquarium the other day, that I loved her profile while driving, and the hands resting on the wheel.
+
+If I could've stayed in Japan, she would have taken me so many more places.
+Time kept pressing closer, minute by minute. I love my father, my mother, my little brother, but right now...
 
 "...I don't want to go back."
 
-I muttered that quietly, and Yui-san smiled.
+I murmured it, and Yui-san laughed.
 
-"Why? London's cooler than Japan, isn't it? Summers should be more bearable over here."
+"Why not? Isn't London cooler than Japan? Summer should be easier over there than here."
 
-"That's not the point. It's my first Japanese summer in ages, and I didn't even get to see any fireworks."
+"That's not the point. My first Japanese summer in years, and I didn't even get to see fireworks."
 
-"There are fireworks displays in late August too. Want to go together when you get back?"
+"There's a festival running late August. Want to go together once you're back?"
 
-"...Is that alright?"
+"...Is that okay?"
 
-"Yes, promise."
+"Yeah. Promise."
 
-University summer holidays are long. Using the excuse that I couldn't take that much time off work, I told my parents I'd only be back for three weeks.
+University summer break runs long. I'd told my parents I could only come back for three weeks, using my part-time job as the excuse.
 
-Air tickets aren't cheap either. I know that, but I want to enjoy my university summer holiday too.
+Plane tickets aren't cheap either. I know that. But I want to enjoy my college summer too.
 
-I want to go all sorts of places. With Yui-san, just the two of us. Like that aquarium the other day.
+I want to go all kinds of places. With Yui-san. Like the aquarium the other day.
 
-　I'll miss her when we're apart, but I wonder how Yui-san feels. Maybe she's happy to have some quiet time alone again after so long.
+I feel lonely about leaving her — but what about Yui-san? Maybe she's relieved, glad for some quiet time living alone again for once.
 
-I kept staring at that beautiful profile, completely unable to tell what she was thinking.
+I kept staring at that lovely profile, giving nothing away about what she was actually thinking.
 
-If only she were a bit easier to read. This clever person is also incredibly skilled at hiding her feelings; you have to concentrate like you're playing spot the difference to figure out what she really means.
+I wish she were a little easier to read. She's sharp enough, and so good at hiding what she feels, that figuring out her real meaning takes the kind of focus you'd need for a spot-the-difference puzzle.
 
-　When Yui noticed me lost in thought and silent, she asked gently, "What's the matter?" I hastily shook off my thoughts.
+Noticing I'd gone quiet, lost in thought, Yui-san asked gently, *what's wrong?* and I scrambled to shake the thoughts loose.
 
-"...What would you like as a souvenir?"
+"...What should I bring back as a souvenir?"
 
-"Hmm... What's London famous for?"
+"Hm, what's London famous for?"
 
-"Tea... but I've loads at home..."
+"Tea... but there's already plenty of that at home..."
 
-"True, you do have plenty. Anything's fine, really?"
+"True, we've got plenty. Anything's fine, really."
 
-　The teas I collect for afternoon tea are always stocked in the kitchen. Besides, Yui-san is a coffee person, so she probably wouldn't be thrilled with tea anyway.
+The tea I collect for afternoon tea is already a fixture in the kitchen. Yui-san's a coffee person anyway, so more tea probably wouldn't even make her happy.
 
-There's plenty of time, I decided. I'd take my time looking for something she might like after we got back.
+I figured I'd have plenty of time, and decided I'd take it slow once I got back, hunting for something she'd actually like.
 
-Haneda Airport was closer than I'd thought, and we arrived before I'd had a chance to gather my thoughts. It felt so bittersweet that I briefly wished we'd gone to Narita instead.
+*
 
-When we arrived at the car park, Yui-san took my suitcase out of the boot. The time to part was drawing ever nearer.
+Haneda came up faster than expected, and we arrived before I'd managed to sort my feelings out at all. It was such a wrench to say goodbye that I found myself thinking, just a little, that Narita would have been better.
 
-"How long does it take to get to London?"
+At the parking garage, Yui-san pulled my suitcase from the trunk. The moment of parting drew steadily closer.
 
-"About half a day, I suppose..."
+"How many hours to London?"
 
-Back in March this year, when I first met Yui-san, it was also at Haneda Airport.
+"About half a day, I think..."
 
-Back then, I was filled with anxiety, agonising right up until boarding the plane about whether leaving my family behind had been the right choice, whether choosing a Japanese university had been the right choice.
+This past March, the first time I met Yui-san, it had been at this same Haneda Airport.
 
-　Even if I regretted it, there was no going back on a decision already made.
+Back then I'd been a wreck of nerves, second-guessing myself right up until boarding — had it really been right to leave my family, to choose a Japanese university?
 
-I was terribly anxious at first about whether I could get along with Yui-san.\
-My father had said confidently, "She's my best friend's daughter, so you'll definitely hit it off," but living with someone outside my family was a first for me.
+Not that regretting it now could undo a decision already made.
 
-Looking back now, it was a needless worry.
+I'd been so anxious, at first, about whether things with Yui-san would even work out.
+My father had said, brimming with confidence, "She's my best friend's daughter, you two are bound to get along" — but I'd never once lived with anyone outside my family before.
 
-　At first, having heard she was the daughter of the president of the renowned Ichinose Holdings, I'd imagined some stereotypical young lady.
+Looking back now, that worry had been completely unfounded.
 
-But when she appeared at the airport, she defied my expectations in every way.
+At first, hearing she was the daughter of the famous Ichinose Holdings president, I'd pictured some stereotypical rich young lady.
 
-I'd thought, being a wealthy young lady, she'd be wearing a dress and perhaps have someone accompanying her? But no matter how much I scanned the airport, there was no one like that anywhere.
+But the person who showed up at the airport shattered that image in about every way possible.
 
-　When I called out, a woman in a black cap waved at me, and I remember being utterly taken aback.\
-Yes, I recall she wore the same trainers when we visited the aquarium recently. The white and black Nike ones.
+I'd assumed, being a wealthy heiress, she'd show up in a dress, maybe with an attendant trailing behind — but no matter how hard I scanned the airport, no one like that was anywhere in sight.
 
-Despite her casual attire, her glossy long black hair and sharply defined features were so perfectly proportioned that I thought, I've never seen such a beauty.
+When I called her, a woman in a black cap waved at me, and I remember being genuinely stunned.
+Right, she'd been wearing those same sneakers at the aquarium too, come to think of it. The black-and-white Nikes.
 
-　She arrived in a black luxury car, which she said was hand-me-down from her brother, without even a driver. She looked nothing like I'd imagined; frankly, she seemed rather wild.
+Dressed down as she was, her glossy long black hair and sharply defined features were so striking that I remember thinking I'd never seen anyone that beautiful.
 
-Her nails were jet black too, at the time.
+No driver, just her, showing up in a black luxury car she called her brother's hand-me-down — completely unlike the image I'd built up beforehand, and honestly, she'd looked more like trouble than anything.
 
-Looking back now, I realise first impressions can be quite accurate.
+Her nails had been jet black that day too.
 
-But honestly, I couldn't tell at all that she liked women.
+First impressions really do land more often than not, I think, looking back on it now.
 
-　Once we'd checked in and were finally free of baggage, I suddenly felt restless.\
-Time seemed to fly by incredibly fast when I was with Yui-san.
+But that she liked women — honestly, I hadn't seen that coming at all, not at first.
 
-I really must go now. But I don't want to leave her.
+*
 
-I stopped in front of the security checkpoint and turned back to look at Yui-san.\
-This is as far as you can come to see me off. You can't go beyond this point, Yui-san.
+Once check-in was done and I finally had my hands free, restlessness crept in all at once.
+Time always seems to move impossibly fast when I'm with Yui-san.
 
-　I gently took her hand and looked up at her. Those intensely gentle black eyes were fixed on me.
+I have to go now. But I don't want to be apart from her.
 
-Why, I wonder? Right now, I desperately want to hold her.\
-Even though I know I can't do that in public.
+I stopped in front of security and turned back toward Yui-san.
+This is as far as she can walk with me. She can't come any further than this.
+
+I took her hand gently and looked up at her. Those endlessly kind black eyes were watching me.
+
+Why, right now, did I so desperately want her to hold me?
+Even knowing I couldn't do something like that in public.
 
 "...I'll call you."
 
-"Mm."
+"Okay."
 
-"Please answer. Don't ignore it."
+"You have to actually pick up, don't ignore me."
 
 "I wouldn't do that."
 
-"Even if you're with a girl? Will you prioritise my call?"
+"Even if you're with some girl. Would you pick my call over hers?"
+
+"Obviously."
+
+"...You call me sometimes too, okay?"
 
 "Of course I will."
 
-"...Please contact me occasionally too, Yui-san."
+"........................I really don't want to go."
 
-"Of course I will."
+I know I'm saying things meant to fluster her. Yui-san laughed and stroked my cheek gently with the hand not holding mine.
 
-"………………I really don't want to go back."
+"...Kanata, don't say such cute things. I'm going to genuinely not want to let you go."
 
-I knew I was saying something troublesome. Yui-san smiled and gently stroked my cheek with her free hand.
+Unable to let go of her hand myself, unwilling to be apart, she gave it a firm squeeze, as if trying to reason with me.
 
-"...Kanata, don't say such adorable things. It makes me not want to let you go at all."
+"...I'll come pick you up again once you're back in Japan. Travel safe."
 
-As if admonishing me for not wanting to let go, she squeezed my hand tightly.
+I nodded, small, and her hand slipped away at the same moment.
 
-"...When you come back to Japan, I'll come and pick you up again. Take care, alright?"
+"Have a safe trip."
 
-My nod came at the same moment her hand released mine.
+"I'm off, then."
 
-"Off you go."
+Too reluctant to just walk away, I turned back and waved, again and again.
 
-"Right then."
+With the time difference, when it's night in Japan, it'll be daytime there. I'll still call. No matter what.
 
-Reluctant to part, I waved repeatedly, looking back over my shoulder.
+While I'm gone, please don't spend that time with someone else. I have no right to ask for that, and still, I couldn't stop myself from wishing it.
 
-There's a time difference, so if it's night in Japan, it's daytime over there. Still, I'll call. Absolutely.
+*
 
-Please don't play with other girls while I'm away. I know I have no right to say such a thing, but I couldn't help wishing it.
+The plane lifted off, leaving Japan behind. Once we'd climbed high enough to break through the clouds, missing Yui-san hit me with an intensity I couldn't do anything about.
 
-The aeroplane takes off, leaving Japan behind. As it climbed higher and pierced through the clouds, I felt an overwhelming longing for Yui-san.
+How strange. We'd only just parted, and already I wanted to see her again.
 
-It's strange. We've only just parted, yet I already want to see her again.
+I knocked my head lightly against the plane window.
 
-I bump my head against the aeroplane window.
+Something about me lately is definitely off. Maybe something's actually wrong with me.
 
-I've definitely been acting odd lately. Perhaps I've lost my mind.
+I don't know the reason. I can't figure it out.
 
-I don't know the reason. I can't understand it.
-
-Because no one tells me what to call this feeling.
+Because nobody's ever told me what to call a feeling like this.

@@ -1,280 +1,285 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: First-year university student, summer
 sequence: 11
-title: 'Episode 11: Someday, it might come in handy'
+title: 'Episode Eleven: Someday, It Might Come In Handy'
 ---
-Episode 11: Someday, it might come in handy
+## Episode Eleven: Someday, It Might Come In Handy
 
-"...Hey, Yui-san, shall we watch something else after all?"
+\
+"...Hey, Yui-san, can we watch something else instead?"
 
-"Eh? It's only been on for twenty minutes."
+"Ehh? It's only been twenty minutes since it started."
 
-The sound emanating from the enormous projector and surround speakers was just like a cinema, heightening the terror.
+The oversized projector and the sound rolling out of the surround speakers made it feel exactly like a movie theater, which only sharpened the fear.
 
-　A July night, with exams looming.
+A July night, exams looming close.
 
-In the dimly lit living room, the air conditioning blasting, wrapped in a blanket, I’d somehow ended up watching a horror film with Yui-san, who insisted summer meant horror, no matter what.
+In the dim living room with the AC blasting, wrapped in a blanket, I'd lost the argument to Yui-san, who insisted summer meant horror movies, and for some reason the two of us were now watching one together.
 
-Having made my spot firmly between Yui-san’s legs, I squeezed the hand loosely around my waist tightly.
+Settled into what had become my usual spot, between Yui-san's legs, I gripped the hand loosely wrapped around my stomach, hard.
 
-"Squeeze me properly."
+"Hold me tighter, properly."
 
-"You're such a little clingy thing, aren't you? Cute."
+"Such a spoiled baby. Cute."
 
-"I'm not being clingy, I'm scared. I might remember it when I try to sleep."
+"I'm not being spoiled, I'm scared. I'll probably remember this when I try to sleep."
 
-"Well then, shall we sleep together?"
+"Then, want to sleep together?"
 
-"...Only if you'll sleep on the futon on the floor."
+"...Only if Yui-san sleeps on a futon on the floor."
 
-"Why? Let's sleep in the same bed."
+"Why? Let's just share the bed."
 
-"...No. You'll do something naughty."
+"...No. You'll do something dirty."
 
-"I won't. I don't want to get splashed with water again."
+"I won't. I don't want another glass of water thrown at me."
 
-　When I pinched her hand hard, Yui-san laughed and tightened her embrace just a little.
+I pinched her hand, and Yui-san laughed, tightening her arms around me just slightly.
 
-Watching films together in the weekend is becoming a habit. Or rather, I'm just piggybacking on Yui-san's hobby. Dragged along by her, who seems utterly unmotivated to study despite exams being imminent, I've ended up curled up between her legs again today. Still, I reckon just two hours should be permissible.
+*
 
-"Yui, when do you actually study?"
+Watching movies together on weekends had become something of a habit between us. Or rather, I was just tagging along on Yui-san's hobby. Even with exams coming up, she showed zero interest in studying, and I'd let myself get dragged into curling up between her legs again today anyway, figuring a mere two hours couldn't hurt too badly.
 
-"Huh? I go to uni properly, don't I?"
+"When do you even study, Yui-san?"
 
-"Not that. I mean exam revision."
+"Hm? I go to class properly, you know."
+
+"That's not what I meant, I mean studying for exams."
 
 "Ah, I read the textbook before bed. About thirty minutes."
 
-"Just read it?"
+"Just reading?"
 
-"Yeah."
+"Yep."
 
-I see. Yui's the efficient type. Hanging around with her would be hell. That explains why Ritsu was studying alone in the library.
+I see, so Yui-san's the efficient type. Hanging around with her would be a disaster. That's probably why Ritsu-san studies alone at the library, I realized, with a small click of understanding.
 
-　Perhaps I shouldn't be watching films with her either. After this film, I firmly resolved to study properly.
+Maybe I shouldn't be watching movies right along with her either. I made a firm vow to myself that after this movie, I really needed to study properly.
 
-"Once exams are over and summer holidays start, let's go to the aquarium as promised, alright?"
+"Once exams are over and summer break starts, let's go to the aquarium like I promised."
 
-"Please take me early. My parents have told me I have to return to England during the summer holidays."
+"Please take me early. My parents want me back in England during summer break."
 
-　Even though it's my first long holiday since starting uni, my parents are such worriers. It meant I couldn't work part-time during that time either, and it was a shame I couldn't enjoy Japan's events after so long, but as long as they're sending me money, I have to listen to them.
+Even though it's my first long break as a university student, my parents worry too much. I won't be able to work my part-time job that whole time, and it's a shame to miss out on the first Japanese summer events I've had in years, but as long as they're sending me an allowance, I have to do what they say.
 
-When I told the boss, he readily agreed, but I felt bad about leaving a gap in the shifts. I'd have to apologise to Hayakawa-kun and Amasaki-san beforehand too.
+The owner had readily agreed when I told him, but leaving a hole in the shift schedule still weighed on me. I'll need to apologize to Hayakawa-kun and Amasaki-san in advance too, while there's still time.
 
-"When are you planning to go back?"
+"When are you heading back?"
 
-"As soon as August starts. ...So take me there soon."
+"As soon as August starts. ...So take me soon."
 
-When I said it almost pleadingly, she took my hand and gently held it. Her long fingers intertwined with mine. Her smooth, rounded nails were painted a deep burgundy, making me wonder just how many nail polish colours she owned.
+I said it like I was wheedling, and she took my hand, gently lacing our fingers together. The long fingers of her left hand curled around mine. Her smoothly rounded nails were done in a burgundy polish, and I found myself wondering just how many colors of nail polish this woman owns.
 
-I'd assumed she was watching the film while talking, but when I turned my head back slightly, our eyes met with a click.
+I'd assumed she was still watching the movie even while we talked, but when I glanced back over my shoulder, our eyes met with an almost audible click.
 
-　Closer than I'd thought, within easy kissing distance, I gasped.
+Closer than I expected, close enough to kiss easily, and I caught my breath.
 
-"...Are you actually watching the film?"
+"...Are you actually watching the movie?"
 
-"I am."
+"I'm watching."
 
-"...Then why are you looking at me..."
+"...Then why are you looking over here..."
 
-"I thought I'd be lonely being apart from you for a whole month."
+"Just thinking it'll be lonely, being apart from you for a whole month."
 
-Hearing it stated so directly, the film's content completely slipped my mind. I was thinking the same thing.
+Said so directly that the movie completely stopped registering. I think the same thing too, though.
 
-　Worried my face might be red, I looked down. Then, soft against my ear came a soft, wet kiss.
+Worried my face might be turning red, I ducked my head down, and felt a soft press against my ear, with a small kissing sound.
 
 "Hyah!"
 
-Realising I'd been kissed, my body stiffened in shock and reflex. Hastily covering my ear, I turned around. Yui-san gave me a wry smile, the look saying she'd done it.
+Realizing I'd been kissed, my body jolted, startled and reflexive all at once. I clapped a hand over my ear in a panic and turned around, and Yui-san wore the exact expression of someone who knew she'd overstepped, laughing it off sheepishly.
 
-"Sorry, did you mind? You were blushing, it was cute, so I just..."
+"Sorry, did you hate that? You went red, it was cute, I couldn't help it."
 
-Seeing Yui-san looking troubled, I realised she was still bothered about that kiss the other day.
+Seeing Yui-san look troubled like that, I realized she was probably still thinking about that other kiss, the one from before.
 
-In the end, I didn't tell Yui-san why I'd been angry. There was no way I could say it. That I was angry because she kissed me while her body still carried the lingering scent of another woman.
+In the end, I never did tell Yui-san what I'd actually been angry about. There was no way I could say it. That I'd gotten angry because she kissed me while still carrying the lingering scent of some other woman on her skin.
 
-　If I did, she'd be too clever for her own good. She'd definitely tease me about it.
+If I said something like that, someone as sharp as her would definitely turn it into teasing.
 
-Like, "So, if it didn't smell like another woman, you wouldn't have minded the kiss?"
+*So if I didn't smell like another woman, kissing you would be fine?* — something like that.
 
-"It's not that I... dislike it."
+*
 
-"...Oh, I see. That's good."
+"It's not that I hated it, or anything."
 
-Suddenly feeling embarrassed, I looked down. As I shifted my weight sharply backwards, Yui-san's arm wrapped around my waist again, as if relieved.
+"...I see, good."
 
-"...Kanata, your ears are sensitive, aren't they? I'll remember that."
+Suddenly embarrassed, I faced forward again. Leaning my weight back, Yui-san's arm circled my stomach again, relieved.
 
-I could feel my body growing hot with embarrassment. No one had ever pointed that out before, and I hadn't even realised it myself.
+"...Your ears are sensitive, huh, Kanata. I'll remember that."
 
-"You don't need to remember such trivial things..."
+I could feel my whole body heating up with embarrassment. Nobody's ever pointed something like that out to me before, and I didn't even know it myself.
 
-"Eh? It's not trivial."
+"You don't need to remember something that pointless..."
 
-　Her lips pressed softly against my ear. My spine tingled again. Having just said I didn't mind, I couldn't refuse and simply closed my eyes tightly.
+"Ehh, it's not pointless at all."
 
-She held me tight, pinning my body that tried to pull away, and whispered in a teasing tone.
+Her lips pressed gently against my ear again. A shiver ran down my spine, sure enough. Having already said I didn't hate it, I couldn't very well refuse now, so I squeezed my eyes shut instead.
 
-"...It might come in handy someday."
+She held my body tight, fixing it in place as it started to flinch away, and murmured, teasing.
 
-"Useful for what…?"
+"...Someday, it might come in handy."
 
-By then, I'd grasped what Yui-san meant, and scrambled to escape her grasp.
+"Handy for what...?"
 
-Her arms released me easily, so I stood up and put some distance between us. Then came Yui-san's laugh, ahaha. I realised I'd been teased again.
+I understood exactly what she meant partway through saying it, and scrambled out of her grip in a panic.
 
-"Honestly, Yui-san, is your mind only ever on dirty things!?"
+Her arms let go without resistance, and once I'd stood up and put some distance between us, I heard Yui-san laughing, *ahaha*. I realized I'd been teased again.
 
-"Your face is bright red, you're adorable."
+"Seriously, is there anything in your head besides dirty thoughts, Yui-san?!"
 
-"I haven't even watched the film properly!"
+"Your face is bright red, it's cute."
 
-"I wanted to see you scared. I'm satisfied now, so it's fine."
+"And you weren't even watching the movie at all!"
 
-Despite me pleading for her to stop the film, Yui-san had refused. Now, she turned it off without a second thought.
+"I wanted to watch you get scared. I'm satisfied now, so that's fine."
 
-"Come on, come here. We'll be apart in a month, so let me enjoy you a little longer."
+Even though I'd asked her, over and over, to stop the movie, and she hadn't listened once, Yui-san turned it off without any resistance at all.
 
-　Yui said, spreading her arms wide on the sofa and smiling. I gave in, drawn into her embrace as if sucked in.
+"C'mon, come here. We'll be apart in another month, so let me enjoy you a little more."
 
-Her arms wrapped around my waist, our bodies pressed together. It felt good, as expected.
+She spread her arms wide on the sofa, smiling, and I gave in and let myself get pulled right back into them.
 
-Kindness is sweetness. This sweetness is addictive. Once you know it, you can't easily let go. She really is a sly one.
+Her arm wound around my waist, and the moment our bodies pressed close, it felt good again, of course it did.
 
-When it's just the two of us, she probably acts like this with any woman. I'm not special.
+Kindness is a kind of sweetness. And this sweetness is addictive. Once you've had a taste, you can't easily let it go. Truly, an unfair person.
 
-　I imagine it. If Yui-san were serious, she’d surely just collapse on top of a woman like an avalanche.
+If it were just the two of us alone, she'd probably act like this with any woman. I'm not special.
 
-Knowing someone this beautiful could feel desire for a woman, it wouldn’t be strange if people who aren’t homosexual wanted to be held by her.
+I try to imagine it. If Yui-san were serious, she'd probably just as easily pin some woman down and not stop there.
 
-Because I’m “not her type”. I know the kisses, the hugs – it’s all her playfulness, not a genuine attempt to seduce me.
+Knowing someone this beautiful feels desire for women, I don't think it's strange at all that people who aren't even gay might still want to be held by her.
 
-　And that should be fine. Because I'm not gay. I like kind Yui-san, but it's not romantic feelings.
+Because I'm "not her type." The kiss, the hug — all of it is just her playing around, not a real attempt to seduce me. I understand that.
 
-Me liking a woman? That... couldn't possibly happen.
+That should be fine, honestly. Because I'm not gay. I like Yui-san because she's kind, but that's not romantic feeling.
 
-"What's wrong? You look troubled."
+Me, falling for a woman — there's no way something like that could happen.
 
-Had my brow been furrowed? She gently pressed her finger against it and shook her head.
+"What's wrong, you're making a difficult face."
 
-"I was thinking about the exam. Hey, Yui, would you teach me? Since we're in the same faculty, after all."
+Apparently my brows had furrowed, because she pressed a gentle finger between them, and I shook my head.
 
-"...Can't you just read the textbook?"
+"Just thinking about exams. Hey, Yui-san, would you teach me? We're in the same faculty after all."
 
-"Usually, that alone isn't enough to understand it, which is why we sit at our desks and study. Please? Teach me every day until the exam."
+"...Isn't reading the textbook enough?"
 
-"Eh? Study every day?"
+"Normal people can't just understand from that alone, that's why you sit down and study properly. Please. Teach me every day until the exam."
 
-"Just answering the parts I don't understand is fine."
+"Huh? You're studying every day?"
 
-Yui-san is weak when it comes to begging. I felt relieved that she reluctantly agreed, sighing, "Oh well, I suppose I have no choice."
+"You just have to answer whatever I don't understand."
 
-This means Yui-san will be at home until the exam period. No more coming home in the morning, no more my heart being unsettled by the lingering scent of other women.
+Yui-san is weak to being asked nicely. I relaxed, relieved, when she reluctantly gave in with a *guess I have no choice*.
 
-"Ah, but I might be late tomorrow because of a dinner meeting."
+This means Yui-san will be home through exam period. No more coming home at dawn, no more my heart getting stirred up by some other woman's lingering scent.
 
-"Is it with your father?"
+"Ah, but tomorrow there's a dinner, so I might be late."
 
-"Hmm, yeah, that's right. My dad and some people from work."
+"With your father?"
 
-I'd thought it before, but she seemed a bit reluctant. She didn't seem to dislike her dad from her usual tone, so then...
+"Mm, yeah, that. Dad, and people from the company."
 
-"Do you dislike the people from work?"
+I'd noticed it before too. She always seems a little reluctant about this. From how she usually talks, it doesn't sound like she dislikes her father, so then—
 
-I meant it casually, but Yui's eyes widened.
+"Do you dislike the people from the company?"
+
+I'd meant it as an offhand question, but Yui-san's eyes went round.
 
 "...Does it show?"
 
-"Does it not?"
+"Am I wrong?"
 
-"No, it's not that I dislike them... I just don't feel like it. If it was just Dad, it'd be fine. It's just... I have to be so careful around them, and it's exhausting."
+"No, it's not that I dislike them, exactly... I just don't feel like going. If it were just Dad, it'd be fine. There's a lot to be careful about, and it's tiring."
 
-There must be all sorts of reasons. Yui-san is still a student, but she's joining the company soon, and having her father as the president must be tough.
+There's probably a lot going on I don't fully understand. Yui-san is still a student, but it's the company she'll be joining, and with her father as president, that sounds like a lot to navigate.
 
-"That must be difficult."
+"That sounds tough."
 
-"...Kanata, you really do observe me, don't you?"
+"...You really do watch me closely, don't you, Kanata."
 
-"Eh?"
+"Huh?"
 
-My spine stiffened. What did she mean? I felt a twinge of anxiety, wondering if I'd overstepped.
+My spine went rigid. What did she mean by that? I felt a small flicker of anxiety — had I pried too deep?
 
-"I didn't think I was showing it, but I guess I gave away that I was annoyed."
+"I thought I wasn't showing it on my face, but you caught that I don't want to go."
 
-"...Well, Yui-san, you're hard to read. It's often difficult to tell what you're thinking."
+"...You're just hard to read, Yui-san. I never know what you're actually thinking."
 
-"You're easy to read, Kanata. Though sometimes you're a bit complicated."
+"You're easy to read, Kanata. Though sometimes it gets a little complicated."
 
-I frowned. Complicated... what exactly did that mean?
+That irritated me. Complicated — meaning what, exactly.
 
-"...Anyway, I'm just a troublesome woman you dislike, aren't I?"
+"...I'm just some annoying woman you dislike anyway, aren't I."
 
-"I didn't say I disliked you, did I?　Honestly, if I were to have a girlfriend, I'd find someone as easy to read as Kanata rather cute."
+"I never said I dislike you. If anything, if I were going to date someone, someone whose feelings are as easy to read as yours would be cute, I think."
 
-Staring straight into my eyes and saying it so bluntly, I'm taken aback.
+Said so directly, looking straight into my eyes, that it caught me completely off guard.
 
-"...You're not even planning on getting a girlfriend."
+"...You have no intention of dating anyone, though."
 
-"True. That's why, if I'm going to hang out with someone, I want someone 'not troublesome'. That's all."
+"That's true. That's exactly why, if I'm just having fun with someone, I'd want someone who's 'not a hassle.' That's all there is to it."
 
-Why say something like that? My heart pounds wildly. I want to ask.
+Why would she say something like that. My heart pounded, hard. I wanted to ask.
 
-"So, Yui-san..."
+"Then, Yui-san..."
 
-"Hmm?"
+"Hm?"
 
-"Seriously, could you... take me?"
+"Not as a joke — could you actually sleep with me?"
 
-I’d braced myself to say it, but instead of answering, her arms tightened around my waist, pulling me close. Her face drew near, and when Yui-san lowered her eyes, I realised she was about to kiss me. Panicking, I pushed her away with my palm.
+I'd said it with real resolve behind it, but instead of answering, her arm around my waist pulled me in close. Her face drew nearer, her eyes lowering, and realizing she was about to kiss me, I panicked and pressed my palm flat against her mouth to stop her.
 
-"...What's this hand doing?"
+"...What is this hand."
 
-She glared at me resentfully through my palm, making me feel like my face was going to burst into flames.
+She looked up at me over my palm with a faintly reproachful expression, and I felt like my face might catch fire.
 
-I had admitted I didn't dislike it, and right now, all I could smell was Yui-san. There was absolutely no reason to refuse, yet alarm bells were ringing in my head. If I gave in now, it would be bad.
+I had said I didn't hate it, true, and right now there's nothing but Yui-san's scent around me. There's no reason at all to refuse, and yet some alarm bell kept ringing in my head. *If you let this carry you along right now, it's dangerous.*
 
-When I removed the hand pressing against her mouth, Yui-san looked somewhat displeased.
+I pulled my hand away from her mouth, and Yui-san looked somehow dissatisfied.
 
-"B-but you suddenly tried to kiss me..."
+"I-It's just, you tried to kiss me all of a sudden..."
 
-"I thought you were inviting me. Wasn't that it?"
+"I thought I was being invited. Was I wrong?"
 
 "I wasn't inviting you! I was just checking!"
 
-"Eh? That's awful. To toy with me like that."
+"Eh? That's cruel, toying with me like that."
 
-"...So, what do you think?"
+"...So, well? What's the answer?"
 
-I wanted an answer, so I stared intently into her eyes. I wanted to know if I truly held any appeal for her.
+I wanted to hear it, so I stared straight into her eyes. I wanted to know if I actually had any appeal.
 
-　Yui already knew I’d split with my ex over sex, and I’d told her I couldn’t feel pleasure.
+Yui-san already knows my last relationship ended because of sex, and I've told her I can't feel good during it.
 
-Even so, could she still take me? Even a dull woman with no sensation?
+Even so, could she still want me — even someone frigid, someone boring like that?
 
-As if reading my anxiety, Yui suddenly gave a soft smile.
+As if seeing straight through my anxiety, Yui-san smiled, soft.
 
-"Well, I wonder. You won't know until you try, will you? May I try?"
+"Who knows. Guess we won't know unless we try. Want to try it?"
 
-Deep within those dark eyes—she was smiling. Ah, I understood I was being mocked again.
+Deep in those dark eyes — she was laughing. Ah, I understood then, she was teasing me again.
 
-"...Yui, you're always mocking me."
+"...Yui-san, you're always just teasing me."
 
-"So, if I said I could take you, would you let me? You don't strike me as the type to sleep casually with someone you're not dating."
+"So if I said I could, you'd let me? You don't seem like the type to sleep casually with someone you're not dating."
 
-That's about right, I suppose. To begin with, I've never once thought to myself that I wanted sex when dating someone of the opposite sex, so I don't feel any particular need to deliberately form a purely physical relationship.\
-If we were actually dating, that might be one thing, but enduring pain for someone I'm not even seeing? Impossible.
+That's true, I think. To begin with, I've never once wanted sex with someone myself, even while dating men, so I don't feel any need to build a body-only relationship on purpose.
+If we were actually dating, maybe, but enduring something painful for someone I'm not even with — I can't do that.
 
-Seeing me fall silent, Yui-san smiled and said,
+Watching me fall silent, Yui-san laughed and said it.
 
-"See? Who's the one being sarcastic?"
+"See? Who's the one teasing who, really."
 
-I think I wanted Yui-san to say she could embrace me. But it was just something I wanted to hear; I'm not prepared to do that sort of thing with Yui-san right now.\
-It still scares me. Regardless of gender, I think I'd just end up disappointing them. I lack confidence. The feeling of not wanting to be let down is far stronger.
+I think what I actually wanted was for Yui-san to say she could sleep with me. But wanting to hear it was all it was — I'm not ready, not right now, to actually do that with her.
+I'm still scared, honestly. Regardless of gender, I think I'd only end up disappointing her. I don't have any confidence. The fear of disappointing her is far stronger than anything else.
 
-　I suppose Yui-san understood all that. Her answer must have been — that she couldn't embrace me.
+Probably, understanding all of that, Yui-san's answer was — that she couldn't sleep with me, is what I ended up thinking.
 
-Those mischievous eyes fixed on me. It must be the summer, I thought. The summer heat must be making me stupid.
+Her mischievous eyes held mine. It must be the summer's fault, I told myself. The summer heat, turning my head foolish.
 
-And summer has only just begun.
+Even though summer has only just begun.
