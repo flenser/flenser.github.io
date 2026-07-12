@@ -1,6 +1,7 @@
 ---
 grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 9
 parent: First-year university student, summer
 sequence: 19
 title: 'Episode Nineteen: What Exactly Do You Want From Me?'

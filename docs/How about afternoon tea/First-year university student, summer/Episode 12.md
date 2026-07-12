@@ -1,6 +1,7 @@
 ---
 grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 2
 parent: First-year university student, summer
 sequence: 12
 title: 'Episode Twelve: Are They Dating? The Two of Them'

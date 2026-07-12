@@ -1,6 +1,7 @@
 ---
 grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 8
 parent: First-year university student, summer
 sequence: 18
 title: 'Episode Eighteen: Then, After the Fireworks, Want To?'

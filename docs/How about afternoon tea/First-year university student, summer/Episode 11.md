@@ -1,6 +1,7 @@
 ---
 grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 1
 parent: First-year university student, summer
 sequence: 11
 title: 'Episode Eleven: Someday, It Might Come In Handy'

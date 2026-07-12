@@ -1,6 +1,7 @@
 ---
 grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 7
 parent: First-year university student, summer
 sequence: 17
 title: 'Episode Seventeen: Women Should Take Their Relationships With Each Other Seriously Too'

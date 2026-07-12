@@ -1,6 +1,7 @@
 ---
 grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 3
 parent: First-year university student, summer
 sequence: 13
 title: "Episode Thirteen: I'll Let This Be Enough for Today"
