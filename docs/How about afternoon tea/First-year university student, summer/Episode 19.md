@@ -1,196 +1,204 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: First-year university student, summer
 sequence: 19
-title: 'Episode 19: What on Earth Do You Want from Me?'
+title: 'Episode Nineteen: What Exactly Do You Want From Me?'
 ---
-Chapter 19: What on Earth Do You Want from Me?
+## Episode Nineteen: What Exactly Do You Want From Me?
 
-In the darkness, dark eyes stared down at me intently. As she pressed herself against me, the springs of the expensive bed creaked.
+\
+In the dark, black eyes stared steadily down at me. She leaned over me, and the springs of the expensive bed creaked.
 
-Even pinned down and trapped within her arms, I couldn't tear my gaze away from her.
+Pinned down, held inside the cage of her arms — even like this, I couldn't look away from her.
 
-　A single diamond pendant swayed before my eyes. Ah, her white collarbone was beautiful, I thought.
+The single-diamond necklace swayed in front of my eyes, and I found myself thinking, distantly, how pretty her pale collarbone looked.
 
 "...Kanata."
 
-I heard Yui-san's voice calling my name.
+Yui-san's voice, saying my name.
 
-It would be easier if I could just surrender myself, but my tendency to overthink everything got in the way.
+It would be so much easier if I could just give in completely, but the part of me that overthinks everything got in the way.
 
-I was scared, after all. I'd said I was bad at having sex with men, so with someone of the same sex? Even scarier.
+I really am scared. If I can't even manage sex with men, this — with a woman — is even more frightening.
 
-　You idiot, Yui. Why are you doing this? You said we wouldn't go beyond kissing. You liar.
+*Yui-san, you idiot. Why are you doing this? You said you wouldn't go past kissing. Liar.*
 
-I wanted to say it, but somehow the words wouldn't come out. When she stared at me with those deep-coloured eyes, I froze like a frog caught in a snake's gaze.
+I wanted to say it, but somehow the words wouldn't come. Held under those deep-colored eyes, I go still, like a frog caught in a snake's gaze.
 
-Her face drew closer. Resigned, I closed my eyes. Then her lips touched mine.
+Her face drew close, and giving up, I closed my eyes. And then her lips touched mine—
+
+*
 
 "Waaah!!!"
 
-　I bolted upright in a panic, morning.
+I bolted upright, gasping, that morning.
 
-I'd had a bloody nightmare. Unnervingly real, vividly raw. Pressing my palm to my chest, I could still feel my heart pounding.
+I'd had an outrageous dream. Unsettlingly real, vivid, and pressing a hand to my chest, my heart was still hammering hard.
 
-A thin sheen of sweat had broken out on my back. Shaking my head frantically from side to side, I tried to wake myself.
+A faint sweat had broken out across my back, and I shook my head hard, side to side, trying to wake myself properly.
 
-My gaze drifted involuntarily to the bed beside me. The very person responsible for this nightmare lay sleeping peacefully, breathing softly.
+I glanced, without meaning to, at the person beside me. The one directly responsible for that dream was sleeping soundly, breathing evenly.
 
-　Pale skin, long lashes. Even asleep, she was beautiful. It was infuriating.\
-I stared at her lips, not a hint of dryness, just a glossy sheen.
+Pale skin, long lashes. Even asleep, her face was beautiful, and that was infuriating.
 
-There was no doubt why I'd had this dream. It was because of what Yui-san had done to me yesterday.
+I stared at her lips, glossy, not a hint of dryness anywhere.
 
-Why had I let her? After the kiss, her smile had been so gentle and happy it made my heart ache.
+There's no question this dream was entirely Yui-san's fault, for what she'd done to me yesterday.
 
-　At the time, I wondered what would happen, but surprisingly, Yui-san kept her promise: "Nothing more than a kiss."
+Why had I let myself go along with it? The way she'd smiled after the kiss, so unbearably gentle and happy, had squeezed something tight in my chest.
 
-She didn't make any further advances, but I was cleverly talked into sharing the bed with her.
+I'd braced myself for what might happen next, but Yui-san had, surprisingly, kept her promise of "nothing past kissing" properly.
 
-It was a large king-size bed, so I reluctantly agreed, but that was probably the mistake. I think that's why I had the dream.
+She hadn't tried anything further after that — though I had been smoothly talked into sharing a bed with her.
 
-　No matter how spacious the bed, sharing it still made me nervous, and I couldn't fall asleep right away.
+It was a huge king-size bed, so I'd reluctantly agreed, but that was probably the mistake. I'm sure that's exactly why I had that dream.
 
-"...Yui, you idiot."
+No matter how big the bed, sharing it with someone still left me too tense to fall asleep easily.
 
-I muttered that towards her beautiful sleeping face. Just as I was thinking about pulling the duvet off her completely, she must have sensed my gaze because her long lashes fluttered, and her dark eyes blinked repeatedly.
+"...You idiot, Yui-san."
+
+I muttered it at her peaceful, sleeping face. Just as I was considering yanking the covers off her out of spite, her long lashes fluttered, as if she'd sensed my staring, and her dark eyes blinked open, slow.
 
 "Good morning."
 
-"... Good morning... Kanata, you're up early."
+"...Mornin'... Kanata, you're up early."
 
-Still sleepy, she buried her face in the fluffy feather pillow with a deep groan.
+Still half-asleep, she buried her face into the fluffy down pillow with a small groan.
 
-I'm not usually an early riser myself.
+I'm not usually an early riser either, honestly.
 
-The fact I'm greeting the morning with such complicated feelings is entirely, entirely Yui's fault.
+The reason I'd woken up with such a complicated tangle of feelings was entirely, completely Yui-san's fault.
 
-Compared to me, this girl whose hobby is womanising seems to greet mornings with women as commonplace as eating breakfast, her attitude not changing one bit.
+Meanwhile, this woman, whose hobby is apparently sleeping around, seemed utterly unbothered — waking up beside a woman was clearly nothing new for her, no change in attitude whatsoever.
 
-　It's frustrating that I seem to be the only one conscious of it, but complaining about it would be even more humiliating.
+It stung a little, feeling like I was the only one affected by any of this, but complaining about it would sting even more.
 
-Glancing at the clock, it was six in the morning. Outside must already be bright. Yui-san would still be sleepy, but since we were here, I wanted to enjoy the morning view from the high floor. I sat up to look for the remote for the electric curtains.
+*
 
-Suddenly, my vision swayed violently.
+I checked the clock — six in the morning. It'd already be bright outside. Yui-san probably still wanted to sleep, but I wanted to enjoy the morning view from this high up, so I sat up, searching for the remote to the electric curtains.
 
-　Before I could even comprehend that she’d pulled my arm, my body was being dragged back into the bedsheets.
+Just then, my vision suddenly tilted, sharp.
 
-My back slammed into the mattress, the springs of the expensive bed creaking loudly.
+Before I even registered that she'd pulled my arm, my whole body had already been dragged back down into the sheets.
 
-"You scared me...!"
+My back hit the mattress, and the expensive bed's springs groaned loudly.
 
-"You don’t have to get up yet. It’s Sunday, so let’s relax a bit longer."
+"Th-that startled me...!"
 
-Lying on my back, I turned towards Yui and stared intently at her.
+"You don't have to get up yet. It's Sunday, let's take it slow a little longer."
 
-Peeking out from beneath her loungewear, her neckline revealed no sign of that necklace from my dream — thank goodness, it really was just a dream, I thought with relief.
+Lying back down, I turned to face her, studying her.
 
-"...I wasn't trying to wake you up. I just wanted to open the curtains."
+The neckline of her loungewear showed no sign of the necklace from my dream — good, I thought, relieved, it really had just been a dream.
 
-"There's a switch here, so you don't need to sit up."
+"...I wasn't trying to get up, I just wanted to open the curtains."
 
-Saying that, Yui sat up slightly and reached her hand over my head.
+"There's a switch right here, you don't need to sit up."
 
-Her straight black hair, untouched by bedhead, swayed softly before my eyes. Beautiful hair. I envied it.
+She said it and pushed herself up slightly, reaching over my head.
 
-After a click, light streamed in through the gap opened by the electric curtains.
+Her straight black hair, not a single strand out of place even after sleep, brushed softly in front of my eyes. Such beautiful hair — I envied it.
 
-　Not wanting her to notice my fluttered heart at the closeness, I turned my back to Yui.
+A small click, and light poured in through the gap as the electric curtains slid open.
 
-The view through the glass window drew an involuntary sigh from me. It was a refreshingly clear day.
+Not wanting her to notice how the sudden closeness had startled me, I turned my back to her.
 
-"Blimey... it's dazzling."
+The view through the floor-to-ceiling glass pulled a small sigh of wonder out of me. A gorgeously clear sky.
 
-I ignored Yui's grumbling. Though the sunlight stung the depths of my eyes, the view from this high floor felt wonderfully serene, as if floating in the sky.
+"Whoa... bright."
 
-　Slipping smoothly, a mischievous white arm crept into the space between me and the pillow, wrapping tightly around me from behind.
+I ignored Yui-san's grumbling behind me. The sunlight stung faintly at the back of my eyes, but the view from this high up felt like floating in the sky itself — wonderful.
 
-Feeling the warmth against my back, I closed my eyes, savouring the comfort.
+A mischievous pale arm slid into the gap between me and the pillow, wrapping around me tightly from behind.
 
-Waking up to find someone beside me... it might have been the first time. I never knew mornings spent with someone could feel so pleasant.
+Warmth spread across my back, and I closed my eyes at how good it felt.
 
-"...What time is check-out?"
+Waking up with someone beside me — maybe this was the first time that had ever happened. I hadn't known waking up next to someone could feel this comfortable.
 
-"Any time's fine, but let's have breakfast before we go."
+"...What time's checkout?"
 
-"In the restaurant?"
+"Whenever, but let's eat breakfast before we head back."
 
-"No. We can order room service. But right now, I want to sleep a little longer..."
+"At the restaurant?"
 
-They'll even bring breakfast to us. What a wonderfully attentive hotel.
+"No, we can order room service. Though right now, I still want to sleep a little more..."
 
-Yui-san hugged me tightly, like a body pillow. Even though we must be using the same shampoo and body soap, Yui-san always smells lovely.
+They'll even bring breakfast up to the room. A hotel with this much service is really something.
 
-　Unlike her, who seemed utterly exhausted, I was wide awake. Feeling restless, I took her left hand, which was wrapped around my back, and played with her fingers.
+Yui-san hugged me tight, like a body pillow. We should be using the same shampoo and body wash, and yet Yui-san always smells wonderful, somehow.
 
-I traced her left middle and ring fingers in turn, gently stroking the tips of her nails. Those perfectly manicured nails were proof she hadn't given up her womanising ways.
+Unlike her, clearly desperate for more sleep, I was already wide awake, and with nothing else to do, I took the left hand wrapped around me from behind and idly laced my fingers through hers, playing.
 
-Not that I think she ever intended to stop.
+I traced along her middle finger, then her ring finger, brushing over her nails. Perfectly smooth, well-kept nails — proof she still hasn't given up on her usual playing around with women.
 
-　She looks like she has absolutely no sex drive whatsoever. I find it genuinely infuriating how she can keep such a cool face while thinking about girls all the time.
+Not that I think she ever intends to stop, really.
+
+For someone with a face that looks like she has zero interest in that sort of thing, she spends an awful lot of time, behind that composed expression, thinking only about girls. It genuinely irritated me.
 
 "Kanata."
 
-"What is it?"
+"What?"
 
-"...Are you teasing me, playing games?"
+"...Are you teasing me on purpose?"
 
-A sleepy voice came from behind me, and the fingers I'd been playing with suddenly clamped down on my hand.
+Her voice, sleepy, came from behind me, and the fingers I'd been playing with caught my hand, gentle but firm.
 
-"...Honestly, it feels like you're actually inviting me..."
+"...That's really hard to read as anything but an invitation..."
 
-I knew these fingers were the ones she used to love women, but I hadn't consciously touched her with the intent to invite her.
+I knew this was the finger she used to love women with, but I hadn't been touching it with any intention of inviting her.
 
-But the fact that Yui-san interpreted this action that way...
+But if that's how Yui-san reads it—
 
-"Hmm... So Yui-san has been invited like this by other girls before, then?"
+"Hmm... so other girls have invited you like this before, then."
 
-Her fingertips twitched. Ah, I'd hit the nail on the head. The thought that women who could be romantic partners, like Yui-san, might feel desire for her long fingers made me feel rather conflicted inside.
+Her fingertip twitched, just slightly. Ah — direct hit. Knowing that other people, people like Yui-san who can fall for women, apparently feel real desire over this long finger of hers left something complicated churning inside me.
 
-"...Well, I don't know. I've forgotten."
+"...Who knows. Forgot already."
 
-That's just how she is, always deflecting immediately.
+Deflecting again, so easily, the second things got close.
 
-Despite her flippant remarks, Yui-san has never seriously pushed me down.
+For all her loose talk, Yui-san's never once actually pushed me down seriously.
 
-Even knowing I'm weak to pressure, she's never cornered me completely. In the end, she always leaves me an escape route.
+Even knowing I'm weak to being pushed, she's never once driven it all the way through — always, in the end, leaving me an escape route.
 
-Somehow, despite backing off so easily, I just couldn't believe she wanted me that much.
+Backing off that easily, every single time, made it hard to believe she actually wanted me that much at all.
 
-　Is it because I'm frigid? Or do I simply lack sexual appeal?
+Is that because I'm frigid? Or is it simply that I hold no sexual appeal at all?
 
-Unlike with men, touching my body doesn't give Yui any pleasure. So it stands to reason she wouldn't want to hold someone like me who can't enjoy sex.
+Unlike with a man, touching my body wouldn't do anything for Yui-san's own pleasure — so of course she wouldn't want to sleep with someone who couldn't feel good doing it either, I suppose.
 
-What would Yui-san do if I seriously begged her, like the other girls, to 'hold me'?
+If I ever seriously begged her the way other girls apparently do — *sleep with me* — what would Yui-san actually do?
 
-Would she, being so kind, grant my wish? Or would she just laugh it off and smoothly dodge it, like she always does?
+Would she, gentle as she is, actually respond? Or would she just laugh it off smoothly, the way she always does?
 
-I don't even have the courage to try, yet lately, this is all I can think about.
+Lately, without the courage to actually test it, this is all I seem to think about.
 
-　The room service breakfast was absolutely delicious, and the eyes she gazed at me with, sitting right in front of me, were gentle as ever today.
+*
 
-"...What exactly do you want from me, Yui?"
+Room service breakfast was fantastic, and across the table, her eyes watching me were just as gentle as always.
 
-I said it accusingly while sipping my after-breakfast coffee, and Yui laughed.
+"...What exactly do you want from me, Yui-san?"
 
-"Nothing really. I just like you, Kanata."
+I said it, half-accusing, over coffee after breakfast, and Yui-san laughed.
 
-Hearing it said so casually, I sighed.
+"Nothing in particular. I just like you."
 
-"Honestly, Yui..."
+Said so easily, so lightly, that I sighed.
 
-"What is it?"
+"Honestly, Yui-san, you're just..."
+
+"What?"
 
 "...Nothing."
 
-She seems like a gentle, considerate goddess, yet the more I know her, the more she feels like a devil.
+Kind, considerate, almost goddess-like on the surface — and yet the more I learn about her, the more she starts to look like a devil.
 
-The problem is she has no intention of doing anything about it. Why can't she understand that?
+The problem is exactly that she doesn't want anything from me at all — why can't she see that?
 
-Yui probably expects nothing from me.\
-She surely doesn't expect even a millimetre of reciprocation for anything she does for me.
+Yui-san surely expects nothing from me.
+Not one single thing in return, for anything she does for me.
 
-　She probably still doesn't know.
+She probably still doesn't realize —
 
-That I'm already stuck here, unable to move a single step, as if my feet have been caught in a bottomless swamp.
+that I'm already stuck here, feet tangled in some bottomless swamp, unable to take even a single step away.

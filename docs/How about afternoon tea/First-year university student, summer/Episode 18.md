@@ -1,295 +1,300 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: First-year university student, summer
 sequence: 18
-title: 'Episode 18: So, shall we do it after the fireworks?'
+title: 'Episode Eighteen: Then, After the Fireworks, Want To?'
 ---
-Episode 18: So, shall we do it after the fireworks?
+## Episode Eighteen: Then, After the Fireworks, Want To?
 
-If my memory serves me correctly, I had promised Yui-san we'd "go see the fireworks" this weekend.
+\
+If my memory serves, the promise had been to "go see the fireworks" with Yui-san this weekend.
 
-And yet, here we are now, standing in the rotary of a luxury hotel.
+And yet, here we were, standing in the circular drive of a luxury hotel.
 
-The name "Ichinose" at the entrance made me realise immediately this was one of the hotels run by Yui-san's father.
+The word "Ichinose" over the entrance told me immediately this had to be one of the hotels Yui-san's father runs.
 
-　Handing the car keys to the hotel attendant who greeted us, Yui beckoned me over with a quick wave. I’d thought we were just using the car park, but she urged me to hurry.
+She handed the car key to the waiting valet and waved me over with a little beckoning motion. I'd assumed we were just using the parking, but she urged me forward — *come on, let's go.*
 
-"We’re going to see the fireworks, right? Why the hotel…?"
+"Aren't we watching fireworks? Why a hotel...?"
 
-"You’re hungry, aren’t you? Let’s eat first, then watch the fireworks."
+"You must be hungry. Let's eat first, then watch."
 
 "From here?"
 
-"Yes, you can see them perfectly."
+"Yeah, you'll get a great view."
 
-I let myself be led along by the arm around my waist. The sleek floor reflected the lavish orange lighting, and looking up at the ceiling, it seemed to stretch endlessly high.
+Guided by the arm around my waist, I let myself be led forward. The polished floor threw back the reflection of grand orange lighting, and the ceiling stretched so high I had to tilt my head back to see it.
 
-With every step, the click-clack of my heels echoed, making it feel just like a castle.
+Our heels clicked with every step, and I thought, this genuinely feels like a castle.
 
-"Wait here a moment," she said, and I obediently sat down on a luxurious-looking sofa.
+*Wait here a moment*, she said, and I sat obediently on what looked like an expensive sofa.
 
-　After Yui-san spoke at the front desk with a rather imposing man with slicked-back hair who emerged from the back, she returned.
+Yui-san went to speak with a man at the front desk — slicked hair, an air of importance — who'd emerged from somewhere in the back, then came back to me.
 
-"Right, let's go."
+"Okay, let's go."
 
-"I only came in a regular dress... Is the dress code alright?"
+"I just came in a regular dress, though... is that okay, dress-code-wise?"
 
 "It's a private room, so don't worry about it."
 
 "A private room...?"
 
-Pulled by the hand, we stepped into the large central lift. Without hesitation, she pressed the button for the fortieth floor, and we ascended rapidly, as if being sucked skyward.
+Hand in hand, we stepped into the large central elevator. Without hesitation she pressed the button for the fortieth floor, and we rose, drawn upward like we were being pulled straight into the sky.
 
-"There are some seats we don't usually use. Private rooms for entertaining clients."
+"There's a table we don't usually use. A private room, for entertaining clients."
 
-The lift reached the fortieth floor sooner than expected. Still tense, I followed Yui-san to a two-seater table by the window, where a breathtaking night view unfolded. I couldn't help but gasp.
+The elevator reached the fortieth floor almost instantly, and following Yui-san, still unable to fully relax my shoulders, I was shown to a table for two by the window with a staggering view of the night skyline, and I caught my breath despite myself.
 
-The waiter pulled out my chair and I sat down.
+A waiter pulled out my chair for me.
 
-"Sato-san, it's been an age."
+"Sato-san, it's been a while."
 
-"It certainly has. I was looking forward to seeing you, as you haven't been here recently."
+"It has. You haven't been in lately, so I've been looking forward to seeing you."
 
-Yui-san smiled warmly and addressed the waitress. Mid-thirties, perhaps? A beautiful woman.
+Yui-san smiled brightly at the waitress, addressing her by name. Mid-thirties, maybe. A beautiful woman.
 
-She stood upright before the table and gave a crisp, formal bow. Honestly, I'm not used to this sort of thing; it makes me feel a bit flustered.
+She stood straight in front of the table and gave a crisp, precise bow. Honestly, unused to this kind of thing, my heart raced a little.
 
-"I shall be attending to you today. My name is Sato. Aosawa-san, I look forward to serving you."
+"I'll be serving you today, my name is Sato. Aozawa-sama, it's a pleasure, and I look forward to serving you going forward as well."
 
-"I, I look forward to it too..."
+"P-pleasure to meet you too..."
 
-Being brought to places like this really drives home how much of a proper young lady Yui-san is. At home, she just seems like a normal older sister, but here she's so at ease, so... seasoned, I suppose.
+Brought somewhere like this, it really drove home all over again just how much of a proper heiress Yui-san actually is. At home she seems like an ordinary, easygoing older sister type, but here, she's clearly completely at ease, used to environments like this in a way I'm not.
 
-After ordering drinks, just as Sato-san left the private room, I relaxed my shoulders a little and leaned back in my chair. Yui-san smiled.
+We ordered drinks, and once Sato-san had stepped out of the room, I let my shoulders drop and sank back into my chair, and Yui-san laughed.
 
-"There's no need to be so tense."
+"You don't have to be this tense."
 
-"You're used to this sort of thing, aren't you, Yui-san?"
+"You're used to this kind of thing, Yui-san."
 
-"We have a monthly dinner party, you see."
+"There's a dinner like this every month."
 
-I see. So the "dinner parties" Yui-san always talks about are held in hotel restaurants like this.
+Ah — so that's where those "dinners" she's always mentioning actually take place. Restaurants like this one.
 
-"The fireworks start at half past seven, so we've got two hours. Let's take our time eating."
+"The fireworks start at seven-thirty, so we've got two hours, let's take our time eating."
 
-"When you said we'd see the fireworks, I thought we'd just be looking up from the ground."
+"When you said we'd watch fireworks, I figured we'd be standing on the ground looking up like normal."
 
-"I really wanted to do that too, but the viewing area tickets were sold out, I'm sorry. Next year I'll book somewhere closer, so just bear with it here this year."
+"That's actually what I wanted to do too, but the viewing tickets were already sold out, sorry about that. Next year I'll book somewhere closer in advance, so bear with this for now."
 
-Bear with it... well, it actually feels like a massive upgrade to me. Seeing fireworks in such a relaxed setting like this is probably a once-in-a-lifetime thing, but is this just normal for her?
+Bear with it — if anything, this feels like a massive upgrade. Getting to watch fireworks in an environment this relaxed and luxurious felt like a once-in-a-lifetime thing, though maybe for her, this really is just normal.
 
-"Actually, I'm delighted. It's my first time..."
+"Honestly, I'm happy. It's my first time doing something like this..."
 
-"I'm glad to hear it," Yui-san smiled gently, facing me.
+*Good, I'm glad*, Yui-san said, smiling gently across from me.
 
-"I rather like this restaurant, you know. The chef's a bit of a scary one, though. Once, when I was younger, Yuki-nii and I tried sneaking into the kitchen and got grabbed by the scruff of the neck and told off terribly. But the food really is absolutely delicious."
+"I actually really like this restaurant. The head chef's terrifying, though. Yuki-nii and I once tried sneaking into the kitchen as kids and got grabbed by the collar and yelled at, big time. But the food really is amazing."
 
-The image of that mischievous-looking brother and sister came to mind, and I couldn't help but smile. So Yui-san had such an innocent time too.
+I could picture the two mischievous siblings so clearly that I couldn't help smiling too. So Yui-san had moments like that too, once.
 
 "...Course meals make me nervous."
 
-"Really? Just eat whatever comes out in order. Table manners don't need to be perfect. There's only the two of us here now."
+"Really? Just eat whatever comes out, in order. Table manners don't really matter, it's just the two of us right now."
 
-Even as she said this, Yui-san's impeccable table manners were evident, hinting at her refined upbringing. She really is a young lady, after all.
+Even as she said that, the sheer ease of Yui-san's own table manners betrayed exactly how she'd been raised. A proper heiress, through and through.
 
-The French course we'd left entirely to the chef's discretion was utterly delicious, every single dish. I genuinely thought my cheeks might fall off. The dessert and the tea afterwards were absolutely splendid too.
+The French course, apparently left entirely to the chef's discretion, was so good with every single dish that I genuinely thought my cheeks might fall off. Dessert and the tea afterward were both wonderful too.
 
-Honestly, I started to feel a little anxious about how much this dinner might cost. How much money did I actually have in my wallet?
+I found myself quietly worrying just how much this whole dinner must be costing, and whether I even had enough in my wallet to cover my half.
 
-"Right, it's just about the right time. Shall we go?"
+*
 
-"...Eh? Aren't we watching it here?"
+"Alright, good timing, let's head out."
 
-Having just finished eating, I was wondering why we were moving when I asked, and Yui-san promptly produced a card key.
+"...Huh, aren't we watching from here?"
 
-"I've booked a room."
+She said it right as we finished eating, and confused about moving somewhere else, I asked, and Yui-san pulled out a card key with a small click.
 
-"Eh...? A room? At the hotel?"
+"I've got a room booked."
 
-"Yes, the Royal Suite. Top floor."
+"Wha...? A room? Here, at the hotel?"
 
-It suddenly clicked. So that shiny, slicked-back hair at reception had been handing her a room key.
+"Yeah, the Royal Suite. Top floor."
+
+So that's what she'd taken from the slicked-hair man at the front desk earlier — a room key. It clicked into place.
 
 Wait, hold on. This is a hotel. Booking a room means... staying the night?
 
-　I felt my face growing hot. Yui-san before me was smiling coolly. What on earth was she playing at? I had no clue.
+I felt my face heating up. Yui-san, across from me, looked perfectly composed, smiling easily. What exactly was she thinking? I had no idea at all.
 
-"...Um—"
+"...Um..."
 
-Just as I was about to ask, Yui-san glanced at her watch and stood up.
+Just as I opened my mouth to ask, Yui-san checked her watch and stood.
 
-"Come on, we'd better hurry or it'll start."
+"Come on, we need to hurry or we'll miss it."
 
-"Ah, the bill?"
+"Ah, what about the bill?"
 
-"The bill? We don't need to pay that."
+"The bill? Don't worry about that."
 
-With that, she took my hand. I called out to Sato-san, "Thank you for the meal," and she smiled broadly and bowed. Truly, we left the restaurant without paying the bill and pressed the up button on the lift.
+She said it and pulled my hand along. I called out a thank-you to Sato-san, who smiled and bowed in return. We really did just walk straight out of the restaurant without paying, and Yui-san pressed the elevator's up button.
 
-"The fireworks look absolutely stunning."
+"The fireworks look amazing from up there."
 
-Holding up the room key, she pressed the button marked 'Royal Suite' and the iron box ascended once more.
+She held the room key up to the panel, pressed the button marked "Royal Suite," and the metal box rose once more.
 
-"Um, Yui-san?"
+"Um, Yui-san."
 
-"Hmm?"
+"Hm?"
 
-"Are we staying tonight?"
+"Are we staying the night?"
 
-"I'd like to say we could go home, but... I've had a drink. Can't drive, so I can't go home."
+"I'd love to say we could just head home, but... I had some wine earlier. Can't drive. Guess we can't go back."
 
-She smiled mischievously. This was deliberate, absolutely. I pinched her arm hard, and Yui-san laughed again, saying it hurt.
+She laughed, mischievous. This was absolutely intentional, no question. I pinched her hand hard, and she laughed again, saying *ow.*
 
-"So that means..."
+"That means..."
 
 "What?"
 
-I grabbed her arm and urged her to bend down slightly. As if sharing a secret, I brought my lips close to her ear, where her piercing sparkled.\
-Even in the lift, there should be security... well, I couldn't be sure if the audio was being monitored. I whispered as quietly as possible.
+I caught her arm and pulled her down slightly, and, as if sharing a secret, brought my lips close to her ear, glinting with an earring.
+There had to be security cameras even in the elevator... though whether there was audio too, I had no idea. I kept my voice as low as I could.
 
-"You mean... you want to do naughty things...?"
+"...Does that mean you want to do something dirty...?"
 
-　Being taken to a hotel, I could only think of that. Just as Yui burst out laughing, the lift reached the top floor.
+I couldn't think of any other reason to be taken to a hotel room like this. Yui-san burst out laughing right as the elevator reached the top floor.
 
-"What's that? Are you asking me out?"
+"What's that? Are you inviting me?"
 
-"N-no. That's not what I meant..."
+"N-no, that's not, that's not what I meant..."
 
-Stifling her laughter, Yui gently guided my flushed back, urging me to step out of the lift.
+Holding back laughter, Yui-san gently guided my back, my face gone red, ushering me off the elevator.
 
-　She waved her card key again, and we arrived. Beyond that opulent door. The moment I stepped into the room, a gasp of wonder escaped me. The entire living room was glass-fronted, and the night view captured my heart and wouldn't let go.
+She held the card key up once more, and we arrived at our destination. Beyond that grand door, the moment I stepped into the room, a small gasp of wonder escaped me. The entire living area was floor-to-ceiling glass, and the night skyline outside captured me completely, refusing to let go.
 
-In the distance, the sea shrouded in darkness came into view. It bore a certain resemblance to Yui-san's image.
+In the distance, the sea, wrapped in darkness. It somehow felt, in some indefinable way, like Yui-san herself.
 
-The gentle arms that softly embraced me from behind as I stood transfixed in the living room by the overwhelming scenery. Yui-san's sweet scent tickled deep within my chest, making me feel all tingly.
+Caught staring, frozen in place by the view, I felt gentle arms wrap around me from behind. Yui-san's sweet scent reached me, and something deep in my chest stirred, restless.
 
-"Hey, if it really were okay, I wouldn't be thinking about fireworks at all right now."
+"Hey, if we're actually allowed to do this, I'm not really in the mood for fireworks anymore."
 
-Her breath tickled my ear as she softly nibbled my earlobe. I turned my face away, resisting. "No, that's not it. I was just wondering what you were really up to."
+Her teeth grazed my earlobe, gently, her voice carrying with her breath. I turned my face away, protesting — *that's not it.*
 
-"Oh, that's cruel. Getting me all worked up like that."
+"N-no, that's not it. I was just wondering what you actually meant by all this."
 
-"Yui, what about the fireworks? Look, there's only ten minutes left."
+"Aw, that's cruel, getting me all worked up like that."
 
-　I lifted my left wrist, where my watch sat, holding it up before Yui-san's eyes. Only ten minutes left; the launch time was fast approaching.
+"Yui-san, what about the fireworks? Look, ten minutes left."
 
-"So then, after the fireworks end, shall we?"
+I lifted my left wrist, showing her the watch. Ten minutes until the show started.
 
-"...Even after the fireworks end, it's no good. I don't do that sort of thing with people I'm not dating."
+"Then, after the fireworks, want to?"
 
-After stating that clearly, Yui-san quietly moved away from me, looking disappointed. I really don't understand what this person is thinking.\
-　When she pressed me about whether we could or couldn't get intimate, I managed to dodge the question so skilfully.
+"...Even after the fireworks, no. I don't do that kind of thing with someone I'm not dating."
 
-"...What a shame. Right then, I'll just watch the fireworks quietly."
+Said it plainly, and Yui-san pulled back from me, looking genuinely disappointed. I really can't figure out how this person's mind works.
+When I'd pushed her, point blank, on whether she could actually sleep with me, she'd dodged the question so smoothly.
 
-Yui-san settled onto the sofa positioned to see the night view and handed me the room service menu lying on the coffee table.
+"...Too bad. Alright, I'll behave and just watch the fireworks."
 
-"They'll deliver until ten o'clock, so you can choose whatever you fancy to eat or drink."
+Yui-san settled onto the sofa positioned to face the skyline and handed me the room service menu from the coffee table.
 
-"Are you sure it's alright?"
+"They deliver until ten, so pick whatever you want to eat or drink."
 
-"Of course. After all, it's on my father's tab."
+"Is that really okay?"
 
-Yui-san smiled brightly as she said this.
+"Of course. It's my father's treat, after all."
 
-"I asked to borrow the suite because I wanted to watch the fireworks with you. So this is all a present from my father to you."
+She said it and grinned.
 
-"I... I feel terribly indebted, having you do all this for me."
+"I told him I wanted to watch the fireworks with you, so I asked to borrow the suite. So this is all a present from my father to you, basically."
 
-"He mentioned that your father really looked after him when he was younger."
+"I-I feel bad, getting all this..."
 
-"When I visited home, my father mentioned helping your father court your mother."
+"He said your father did a lot for him back in the day."
 
-"Really? Dad certainly doesn't seem the type who's good at courting women."
+"When I went home, your father mentioned he helped him win my mother over."
 
-Strange, I thought. Yui-san is a genius at courting women. Perhaps that devilish charm is inherited from her mother?
+"Really? I guess that tracks, Dad never really seemed like the type who's good at wooing women."
 
-"...I hope the fireworks look beautiful."
+Strange, I thought. Yui-san's a genius at wooing women. Maybe that particular gift came from her mother's side instead.
 
-"Yes, I hope so..."
+"...I hope the fireworks look pretty from here."
 
-I settled onto the sofa too, staring intently at the night view. It was already this beautiful just like this. Knowing it would start in a few minutes, my heart began to beat steadily with anticipation.
+"Yeah, I bet they will..."
+
+I sat down on the sofa too and stared at the skyline. Even just this was already so beautiful. Knowing it would start in just a few minutes, my heart picked up, fluttering with anticipation, unbidden.
 
 "...Hey, Kanata. Why are you sitting so far away?"
 
-Because the sofa is just so incredibly spacious, I almost said, but stopped myself. The sofa in Yui-san's living room was about the same size, so that excuse wouldn't fly.
+*Because the sofa's huge*, I started to say, and stopped. The sofa at Yui-san's house is about the same size, so that excuse wouldn't hold up.
 
-　Perhaps noticing the space I'd left between us, Yui-san stared intently at me, settled at the very edge.
+Noticing the two-person gap I'd left between us, Yui-san was staring at me, settled all the way at the edge, clearly puzzled.
 
-"...Well, it's just..."
+"...I mean, it just felt..."
 
-Sitting so close in such a lovely room felt... well, it felt like something lovers would do.
+Sitting pressed close together in a room this beautiful felt, somehow, like something a couple would do.
 
-I lowered my gaze, not wanting her to see my face, and heard Yui-san chuckle softly.
+Not wanting her to see my face, I ducked my head, and I could tell Yui-san let out a small, amused laugh.
 
-"Are you embarrassed? How sweet. I won't do anything, come over here."
+"Are you shy? Cute. I won't do anything, come here."
 
-I closed the distance to her as she called me in that gentle voice. Gently, her arm drew me closer, her hand resting on my shoulder. Yui dimmed the room lights with the remote.
+Called over in that gentle voice, I closed the distance. Her arm came around my shoulder, gentle, drawing me in. Yui-san dimmed the room lights with the remote.
 
-"What's this arm doing?"
+"What's with this arm?"
 
-"It's what I always do, isn't it? There's no need to be embarrassed."
+"It's what I always do, isn't it? No need to be shy about it."
 
-　Silence was shattered as a streak of light shot up into the pitch-black canvas of the night sky. I gasped involuntarily. A huge bloom blossomed in the air. A moment later, a loud boom echoed.
+Cutting through the silence, a single streak of light shot up against the black canvas of the night sky. I caught my breath despite myself. A huge bloom of light opened in the air. A beat later, the boom rolled in, thundering.
 
-It was more beautiful than I could have imagined, and I almost forgot to breathe.
+More beautiful than I'd imagined, enough that I nearly forgot to breathe.
 
-"...Amazing."
+"...Incredible."
 
-A quintessential Japanese summer tradition. Fireworks are incredible. I thought to myself, I've never experienced such a wonderful night before.
+The great symbol of Japanese summer. Fireworks — they're incredible. I thought, this is the most wonderful night I've ever had.
 
-One after another, they shot up into the sky. I lost track of time, mesmerised, watching them endlessly.
+Burst after burst went up in quick succession, and I lost all track of time, completely lost in watching.
 
 "The fireworks are so beautiful..."
 
-"Yes, they are."
+"Yeah, they are."
 
-The fireworks at the end of summer held a certain poignancy, tightening my chest. Once August ended, autumn would be just around the corner.
+Fireworks at summer's end always carry a certain ache, tightening something in the chest. Once August ends, autumn is right there waiting.
 
-Next year, I want to try handheld sparklers too. I didn't get to do the incense sparklers this year. I'm so glad I came back to Japan. I truly mean it.
+Next year, I want to try hand-held fireworks too. Never got around to sparklers this year. I'm so glad, from the bottom of my heart, that I came back to Japan.
 
-　Wanting to express my gratitude, I turned towards Yui-san.
+Wanting to express that gratitude, I turned toward Yui-san.
 
-"Yui-san, next year too..."
+"Yui-san, next year too, I..."
 
-I wanted to say I wanted to watch them together, but the words faltered. In the distance, a firework boomed. Its light illuminated Yui-san's long lashes and pale cheeks.
+*I want to watch these with you again* — the words I meant to say trailed off. In the distance, another firework thundered. The light lit up her long lashes, her pale cheek.
 
-I felt the soft touch of her lips, and only a moment later did I realise she was kissing me.
+I felt the soft touch of lips, and only a beat late, understood — I was being kissed.
 
-　I thought I'd missed the last firework, but I couldn't push her shoulders away.
+I thought, *I never got to see that last one*, but I couldn't bring myself to push her shoulder back either.
 
-Our lips parted with a faint smacking sound. She stared at me intently. I knew I should be angry, but no such emotion stirred within me.
+A faint sound as our lips parted. Held under that steady gaze, I knew I should be angry, and yet no such feeling rose in me at all.
 
 "Um... Yui-san...?"
 
-"Did you dislike it?"
+"Did you hate it?"
 
-"...Asking after doing it feels rather underhand. You said earlier you wouldn't do anything..."
+"...Doing it first and asking after is unfair. You said you wouldn't do anything, just now..."
 
-"Sorry, I couldn't help myself. You're so cute, Kanata."
+"Sorry, I couldn't help it. You're too cute."
 
-Yui-san lowered her eyebrows apologetically. Seeing that expression, I couldn't say a word.\
-Her arm remained around my shoulder while her other fingers gently wiped my lips. As if reading my anxiety about being pushed down, Yui-san smiled softly.
+Yui-san said it, looking genuinely apologetic, her brows drawn down. Faced with an expression like that, I couldn't say anything back at all.
+The arm around my shoulder stayed exactly where it was, and her other hand gently wiped at my lips. As if she could see straight through my worry about being pushed down further, Yui-san smiled, gentle.
 
-"I don't do this sort of thing with anyone but my boyfriend..."
+"I don't do that kind of thing with anyone except a boyfriend or girlfriend..."
 
-"Yeah, I know. I won't go any further. But please, just let me kiss you. Please."
+"Yeah, I know. I won't go further than this. But let me have at least the kiss. Please."
 
-Saying that, she drew her face closer to mine. I knew I had to refuse.
+She said it and leaned her face in close again. I knew I needed to refuse.
 
-My arms, which should have pushed her away, wouldn't obey me.
+But the arm that should have been pushing her back wouldn't listen to me.
 
-Our eyes met at point-blank range. Knowing I wouldn't refuse, Yui gave a soft smile.
+Our eyes met at close range, and reading in them that I wasn't going to refuse, Yui-san smiled, soft.
 
-　I'd never seen that colour in her eyes before. Beneath the gentleness, a predatory desire flickered.
+I'd never seen that particular color in her eyes before. Something predatory flickered beneath the kindness.
 
-Unable to bear it, I gently closed my eyes. Her lips touched mine softly.
+Unable to bear it, I let my eyes fall shut, and her lips met mine again, gentle.
 
-The arms pulling me closer, the lustrous black hair caressing my neck – everything made me acutely aware that I was kissing a woman.
+The arm holding me close, the glossy black hair brushing against my neck — every bit of it drove home, hard, the fact that I was kissing a woman, right now.
 
-I hadn't known. A woman's lips were this soft, this pleasurable.
+I hadn't known. That a woman's lips could be this soft, feel this good.
 
-　As lips touched mine again and again, shifting angles, my arms clung to her like a child seeking comfort – beyond my own control.
+Tilting, meeting mine again and again from different angles, my arms clung to her, needy, entirely outside my own control now.
 
-Inside me, I thought I heard the sound of something crashing down, shattering.
+Somewhere inside me, I thought I heard something collapse, crumbling apart, piece by piece.

@@ -1,278 +1,283 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: First-year university student, summer
 sequence: 12
-title: 'Episode 12: Are They Dating? The Two of Them'
+title: 'Episode Twelve: Are They Dating? The Two of Them'
 ---
-Episode 12: Are They Dating? The Two of Them
+## Episode Twelve: Are They Dating? The Two of Them
 
-On sweltering summer afternoons, iced coffee sells like hot cakes.
+\
+On sweltering summer afternoons, iced coffee sells fast.
 
-The café uniforms switched from long sleeves to short sleeves, and shaved ice appeared on the menu.
+The café uniform switched from long sleeves to short, and shaved ice joined the menu.
 
-Even in summer, regulars still made up the bulk of this shop's clientele, but the cooler the aquarium looked, the more it drew customers in as the outside temperature climbed.
+Even in summer, the shop's still mostly regulars, but the higher the outdoor temperature climbs, the more the cool-looking aquarium draws customers in.
 
-　My favourite is this tiny pufferfish. It's adorable, darting about in the tank. What was its name again? The owner told me, but it was so long I've forgotten.
+My favorite is this tiny pufferfish. The way it drifts around the tank is adorable. What was its name again? The owner told me once, but it was long, and I forgot it.
 
-Watching this little one makes me itch to go to the aquarium with Yui-san soon.
+Watching this little guy makes me itch with impatience to get to the aquarium with Yui-san.
 
-I'm looking forward to it, really can't wait.
+I can hardly wait, I'm so excited.
 
-Once I got through the exams looming in a few days, summer holidays would be just around the corner.
+Once I get through the exams a few days off, summer break would finally be here.
 
-　Just as I finished feeding the fish, the doorbell chimed. Reflexively, I turned towards the entrance and called out, "Welcome!"
+*
 
-"Kanata-chan, it's been ages."
+Right after I'd finished feeding the fish, the entrance bell jingled. Reflexively I turned toward the door — *welcome*.
 
-Appearing in the shop with a lively voice was Ritsu-san, her long pink-ash hair tied back. She was dressed casually in just a tank top with a shirt thrown over it – a look that screamed summer.
+"Kanata-chan, long time no see~"
 
-"It's been a while, Ritsu-san."
+The voice, bright and energetic, belonged to Ritsu-san, her long pink-ash hair pulled back, stepping into the shop. A tank top with a shirt thrown over it, casual, unmistakably summer.
 
-The last time I'd seen Ritsu-san was during the incident with Yui-san getting terribly drunk.\
-Why had she gone out of her way to come to the shop today? I guided her to a counter seat and handed her the menu.
+"Ritsu-san, it's been a while."
 
-"...Um, I'm terribly sorry for all the trouble I caused back then."
+The last time I saw Ritsu-san was during the whole Yui-san-getting-drunk incident.
+Why had she gone out of her way to come to the shop today? I showed her to a counter seat and handed over the menu.
 
-"Ah, the running away? It wasn't any trouble at all. I'm just glad you made up."
+"...Um, I really am sorry for all the trouble that time."
 
-　I really did wonder how it would turn out. Since then, I've reflected a bit myself – I need to be more careful not to involve others in my actions.
+"Ah, the running-away thing? That wasn't trouble at all, I'm glad you two made up."
 
-"I'd never seen Yui so panicked before."
+I really had been worried about how that would turn out. Since then, I'd reflected a little on how I shouldn't drag other people into things like that.
+
+"That's the first time I've ever seen Yui that panicked."
 
 "Really?"
 
-When Yui-san came to Yuri's house, she seemed incredibly calm to me. Ritsu-san chuckled softly as she flipped through the menu.
+When Yui-san showed up at Yuuri's place, she'd looked so composed. Ritsu-san flipped through the menu, laughing softly.
 
-"Oh dear, oh dear," she said, "she was clutching her head the whole time she was looking for Kanata-chan."
+"She kept going 'what do I do, what do I do,' holding her head the whole time she was looking for you, Kanata-chan."
 
-I couldn't imagine it. The thought that she'd been so worried made me feel strangely flushed. But that must have been a side of her only Ritsu saw, and I felt a little envious.
+I couldn't picture it. Knowing she'd worried that much left me feeling oddly warm inside. But that was probably a face she only shows to Ritsu-san, and it stung, just a little, with envy.
 
-　There was definitely a bond between those two. So what exactly was there between me and Yui-san?\
-I'd already laid all my weaknesses and flaws bare for Yui-san to see. So surely she could show me a little more of her own vulnerabilities too.
+There's a real bond between the two of them. So then, what exactly is there between me and Yui-san?
+I've already laid bare every weak, pathetic part of myself to Yui-san. So it'd be nice if she showed me a little more of her own weak side too.
 
-"Ah, this looks good. I'll have the iced coffee and cake set."
+"Oh, this looks good. I'll get the iced coffee and cake set."
 
-"Certainly."
+"Coming right up."
 
-This shop's cold brew coffee was refreshing and delicious.\
-　Since Yui-san likes coffee too, I thought I'd get her some next time she comes. That's when I noticed Ritsu-san staring intently at me from across the counter.
+This shop's cold-brew coffee is crisp and delicious.
+Yui-san likes coffee too, so I found myself thinking I should serve her some next time she comes by, when I noticed Ritsu-san studying me intently over the counter.
 
-"Kanata-chan, you're surprisingly capable when you put your mind to it. I've got to rethink my opinion of you."
+"You know, Kanata-chan, you can really throw down when it counts. I'm impressed."
 
-"...About what?"
+"...What do you mean?"
 
-After placing the glasses and cake on the counter, I met her dark brown, drooping eyes. Ritsu-san flashed a sly, defiant grin.
+Setting the glass and cake down on the counter with a small clink, I looked back into her drooping, dark-brown eyes, and Ritsu-san grinned, bold.
 
-"Not many women would splash water on that Yui, you know."
+"Not many women out there would dump a glass of water on Yui like that."
 
-"...Ritsu-san, how much do you know...?"
+"...Ritsu-san, how much do you actually know...?"
 
-"When I asked what on earth she did to make you so angry, she spilled everything. Said she kissed you when she was drunk, then you shoved her away and splashed water on her."
+"I asked her what on earth she did to make you that mad, and she spilled everything. Kissed you drunk, got shoved off, got water dumped on her."
 
-I could feel my cheeks flush hot. Why on earth did Yui just blurt that out so easily? Even if it was Ritsu, having the fact she kissed me out in the open was a bit embarrassing.
+I felt my cheeks go hot in a rush. Yui-san, honestly, why would she just tell someone that so easily. Even if it's Ritsu-san, having the fact that we kissed known is more than a little embarrassing.
 
-"Well, that was... I was startled, and in the heat of the moment..."
+"That was, um... I was startled, and it just kind of happened in the moment..."
 
-"It's fine, just a little. Yui needs to learn a lesson now and then."
+"It's fine, a little of that's good for her. Yui needs to get burned every once in a while too."
 
-I certainly agree with that. Just because someone's popular doesn't mean they have licence to do that sort of thing to anyone. I think it only works if both parties consent.
+Honestly, I agree with that. No matter how popular she is, it doesn't give her the right to do that to just anyone. That kind of thing only works when both people actually agree to it.
 
-"So, the reason I came to see you today, Kanata-chan, was because I wanted to confirm a few things."
+"Anyway, the reason I came to see you today is I wanted to confirm a few things."
 
-Ritsu-san takes a bite of her shortcake. She hums contentedly, looking blissfully happy, and it makes me feel a little peckish too. How nice, I want some too.
+Ritsu-san took a bite of shortcake. She made a happy little hum, and it made me a little hungry too. Lucky, I want some too.
 
-　Just as I was thinking that, a bombshell of a question came flying at me without mercy.
+While I was thinking that, a question dropped on me like a bomb, without mercy.
 
-"Are you two... dating?"
+"Are you two dating? You and Yui?"
 
-"Eh...?"
+"Huh...?"
 
-The question came from such an unexpected angle, my brain froze. Ritsu-san's eyes were utterly serious, fixed intently on me.
+The question came from such an unexpected angle that my thoughts just stopped. Ritsu-san's eyes were completely serious, staring right at me.
 
-"Dating? Who with? Who exactly?"
+"Dating — who and who, exactly?"
 
-"Yui and... Kanata-chan?"
+"Yui, and you, Kanata-chan."
 
-"Wh-why would you think that?"
+"W-why would you think that?"
 
-"Hmm... Didn't Kanata-chan ask the other day how two women do it?"
+"Hmm... didn't you ask me the other day how two women even do it together?"
 
-It was true, that had happened. But it wasn't about Yui-san and me specifically; I'd simply asked out of curiosity about what sex between women generally entailed.
+That's true, that did happen. But that wasn't about anything between me and Yui-san specifically, I'd just been curious in general about how sex between women worked.
 
-"And then Yui kissed Kanata-chan and they ended up arguing, right?"
+"And then Yui kissed you and you two fought, right?"
 
 "That's true, but..."
 
-"But then you made up and reconciled. I wonder if that means you're dating now?"
+"But you made up in the end, safe and sound. So I figured, maybe that meant you two got together."
 
-Ritsu asked as if it were the most natural thing in the world.
+Ritsu-san asked it like it was nothing at all.
 
-I reckon she doesn't really care that Yui-san is a lesbian, so she's probably just asking out of genuine curiosity, not to tease or anything. Still, my heart had been pounding faster and faster since she asked.
+She doesn't seem to think much of Yui-san being gay either, so she's probably asking purely out of genuine curiosity, not to tease or anything — but my heart had been pounding, fast, this whole time.
 
-"We're not dating. Besides, Yui-san isn't the type to have girlfriends, is she?"
+"We're not dating. Yui-san doesn't do girlfriends anyway, does she."
 
-"Well, I suppose not. You're such a serious type, not really suited to playing around, so why on earth did Yui do that?"
+"Yeah, that's true. Kanata-chan, you're such a serious type, not really cut out for playing around — makes me wonder why Yui even did something like that."
 
-That... I wish I knew myself. Maybe something unpleasant happened, or she was feeling frustrated or something.
+That's... I want to know that myself. Maybe something upsetting had happened, maybe she was just frustrated about something, some reason like that.
 
-I never did find out the real reason why she kissed me.
+The real reason she'd kissed me — I never actually asked, in the end.
 
-"...Um, Ritsu-san?"
+"...Um, Ritsu-san."
 
-"Hm? What is it?"
+"Hm? What's up?"
 
-"Ritsu-san, have you ever been kissed by Yui-san or anything?"
+"Has Yui-san ever kissed you, Ritsu-san?"
 
-It was a genuinely curious question. After all, Ritsu-san had a certain charm, and it seemed unlikely that Yui-san, who was quite fond of women, had never made a move on her.
+It was pure curiosity. Because Ritsu-san has plenty of allure too, and I couldn't imagine someone as into women as Yui-san never once making a move.
 
-However, that question was cut off abruptly by Ritsu-san, who looked utterly displeased.
+But that question got shot down flat by Ritsu-san, who made a thoroughly displeased face.
 
-"Of course not. Yui's type is more like Kanata-chan – sweet-faced, very cat-like..."
+"No way. To begin with, Yui's type is more like... a sweet-featured face like yours, Kanata-chan, the kind that gives off a cat-like vibe..."
 
-"Cat-like?"
+"Cat?"
 
-"Hmm, no, never mind. Sorry, forget I said that."
+"Mm, no, never mind. Sorry, forget I said that."
 
-Ritsu laughed nervously, making me tilt my head. True, Yui had once said I resembled an unaccustomed cat, but I didn't think I had a cat-like face.
+Ritsu-san laughed, flustered, and I tilted my head. It's true Yui-san once told me I was like a cat unused to people, but I don't think I actually have a cat-like face.
 
-"Mind if I ask? You don't have to answer if you don't want to, but... are you attracted to men? Or women?"
+"Can I ask you something? You don't have to answer if you don't want to, but — who are you attracted to, Kanata-chan? Men, or women?"
 
 "Men."
 
-"...I figured. Never mind. Anyway, if you ever need anything, just get in touch."
+"...Figured. Well, that's fine then. Anyway, if anything comes up, feel free to contact me anytime."
 
-With that, Ritsu hurried off, saying she had to study for her exams. My heart was still beating strangely, thump-thump.
+She said that and hurried off, saying she had to go study for exams. My heart was still pounding, strangely, and kept on.
 
-　Whether we were dating or not. It would be rather embarrassing if it was seen as a lovers' quarrel.
+Are we dating, huh. If she thought it was some kind of lovers' spat, that's more than a little embarrassing.
 
-When I ran away from home, Yuri said nothing when I asked to stay at hers.
+When I ran away from home, Yuuri hadn't said a single word about it when I asked to stay over.
 
-But when I next saw her at university, I thought I should make it clear, just in case, that we weren't in a romantic relationship.
+But the next time I saw her at university, I decided I should make a point of clarifying, just to be safe, that we're not actually in a romantic relationship.
 
 ＊＊＊
 
-When I got home from my part-time job, Yui-san seemed to have just returned too. She was taking off her necklace, her hand around the back of her neck.
+By the time I got home from work, Yui-san had apparently just gotten back too. She was reaching up behind her neck, unclasping her necklace.
 
 "I'm home."
 
 "Ah, welcome back, Kanata."
 
-A single-stone diamond necklace sparkled brightly, reflecting the living room light.
+The single-diamond necklace caught the living room light, glittering.
 
-Something I've noticed recently.
+Something I've noticed lately.
 
-Yui-san changes her nails and earrings on a whim, yet she always wears the same necklace.
+Yui-san changes her nail polish, her earrings, all the time — but the necklace is always the same one.
 
-The one thing the fickle Yui-san has treasured for so long. There's something special about that necklace that I just can't stop thinking about.
+Something someone as prone to boredom as Yui-san keeps wearing, carefully, without ever switching it out. That necklace, carrying some hint of significance I can't place, has been nagging at me.
 
-　Settling onto the sofa, I glanced at my watch. It was just past eight. No wonder I was hungry.
+I settled onto the sofa and checked the clock. Just past eight. No wonder I was hungry.
 
-"Hey, Yui, I'm starving."
+"Hey, Yui-san, I'm hungry."
 
-Saying this in a slightly whiny voice, Yui glanced at me as she took off her watch.
+I said it in a voice deliberately wheedling, and Yui-san glanced over at me while unclasping her watch.
 
-The watch she tossed onto the jewellery tray was different from yesterday's. Still, only the necklace remained consistently the same.
+The watch, tossed casually onto the accessory tray, was different from yesterday's too. Sure enough, only the necklace stays the same, always.
 
-"Haven't you eaten anything? Shall we order something then?"
+"You didn't eat before coming home? Should we order something?"
 
-The way she phrased it suggested Yui-san had eaten before coming home.
+The way she said it, Yui-san had probably already eaten on her way back.
 
-We usually have breakfast together, but dinner is often separate. We eat together if our schedules align, but I often work part-time in the evenings too.
+We generally eat breakfast together, but dinner's usually separate. We eat together when our schedules line up, but I often work evening shifts too.
 
-Standing beside the sofa, she was swiping her finger swiftly across her smartphone. She must be searching for something on a delivery app, but I wasn't in the mood for that today.
+Standing by the sofa, her thumb sliding across her phone screen, she was probably browsing a delivery app, but that wasn't what I felt like tonight.
 
-"...Yui, make something."
+"...I want Yui-san to make something."
 
-At that, her hand stopped abruptly. Yui looked at me wide-eyed, puzzled.
+At that, her thumb went still. Yui-san's eyes went round, looking at me, puzzled.
 
-"What's up? Feeling clingy today? Something happen?"
+"What's gotten into you? You're being extra clingy today. Did something happen?"
 
-"Nothing really, but delivery takes time."
+"Nothing happened, it's just delivery takes too long."
 
-"That hungry?"
+"You're that hungry?"
 
-　Asked, I gave a slight nod. I was hungry, yes, but more than that, I suddenly had this overwhelming urge to eat something Yui-san had made.\
-Saying it out loud was fine, but I did wonder if she might refuse. She'd just got back and must be tired, and maybe it was just too selfish of me, I thought.
+Asked that, I nodded, small. It wasn't just hunger — I found myself wanting, badly, to eat something Yui-san had actually made.
+Having said it out loud, I figured she'd probably turn me down. She'd just gotten home, she must be tired, and this was probably too selfish a request even for me to make.
 
-"Alright, fine."
+"Got it, sure."
 
-She said it so simply, and headed for the kitchen, so I hurriedly followed behind her.
+She said it easily, and headed for the kitchen, so I scrambled to follow behind her.
 
-"Um... Are you sure it's alright?"
+"Um... are you sure it's okay?"
 
-After opening the fridge to check the ingredients, Yui-san turned back to me.
+She opened the fridge, checked what was inside, and turned back to face me.
 
-"I reckon I could manage pasta, is that alright?"
+"I could probably manage pasta, is that alright?"
 
-"I love pasta."
+"I like pasta."
 
-"Really? That's good."
+"Yeah? Good."
 
-Seeing Yui-san, who hadn't rested once since coming home, pull out a pot and start cooking efficiently, I felt terribly guilty for being so selfish.
+Even though she hadn't rested once since getting home, Yui-san pulled out a pot and got to work briskly, and I felt a stab of guilt for having made such a selfish request.
 
 "...Um, is there anything I can help with?"
 
-"You're hungry, aren't you? You could just sit down."
+"You're hungry, aren't you? You can just sit."
 
-Why is she so kind? Well, I knew she was, but... Even so, I couldn't just sit and wait. Yui-san said with a laugh.
+Why is this person so kind. Well, I already knew that. Even so, told to sit and wait, I couldn't quite manage it, and Yui-san laughed and said,
 
-"Right then, make me a highball. There are glasses at the back."
+"Then make me a highball. Glasses are behind you."
 
-Turning around, I spotted the glasses Yui-san always used when she drank. According to her, she liked her whisky and sparkling water three parts to one.
+Turning around, I found the glass Yui-san always uses when drinking. According to her, she likes a three-to-one ratio of soda water to whiskey.
 
-I made a mental note to remember that.
+I'll remember that, I noted, tucking it away in a corner of my mind.
 
-　While the pasta boiled, she deftly chopped ingredients and tossed them into the frying pan. It struck me again: this person really has been cooking for herself all this time.
+While the pasta boiled, she chopped ingredients briskly and tossed them into the pan with practiced ease. Watching her, I thought again — this person really has been cooking for herself all this time.
 
-Snapping out of my fascination, I remembered the task at hand. I filled the glass with ice and poured in the soda water and whisky at a three-to-one ratio.
+Realizing I shouldn't just stand there staring, I reminded myself to do the job I'd been given, dropped ice into the glass, and poured soda water and whiskey in a three-to-one ratio.
 
-Earlier, when I’d tried to measure precisely with a measuring cup, she’d said it didn’t need to be exact. Still, I worried whether I’d got it right.
+Earlier I'd tried to measure it out exactly with a measuring cup, but she'd told me eyeballing it was fine, so now I was worried I hadn't actually gotten it right.
 
-"Get the lemon from the fridge. It's already sliced, so just pop it in and you're done."
+"Grab a lemon from the fridge. It's already sliced, just drop it in and you're done."
 
-I placed the lemon as instructed. Handing it to Yui-san, with its faintly grown-up aroma, she smiled brightly and said thank you.
+I did as told and set the lemon in. Handing her the glass, carrying a faintly grown-up scent, Yui-san smiled and thanked me, bright.
 
-"Right then, cheers!"
+"Alright, cheers~"
 
-I was offered a glass, but I had nothing to clink with, so I hastily grabbed a measuring cup nearby and clinked it against the glass.\
-Every time she gulped down the drink, her white throat moved, and I thought it looked strangely alluring.
+She held her glass out to me, but I had nothing in hand to toast with, and grabbed the measuring cup sitting nearby in a panic, clinking it against her glass.
+Watching the pale line of her throat move each time she drank, gulp after gulp, I thought it looked oddly alluring.
 
-"Is it that delicious?"
+"Is it really that good, that drink?"
 
-"It's delicious. When will you be able to drink, Kanata?"
+"It's good. When are you old enough to drink, Kanata?"
 
-"I turn twenty next April."
+"Twenty, next April."
 
-"Eh, April? But your birthday's already passed this year. Why didn't you tell me?"
+"Huh, April? Your birthday this year's already passed, then. Why didn't you tell me?"
 
-"Don't people usually keep that to themselves? When's your birthday, Yui-san?"
+"Isn't it weird to bring that up yourself? What about you, Yui-san, when's your birthday?"
 
-"Mine's in October."
+"Mine's October."
 
-Beep, beep, beep. The timer sounded. With practised hands, she drained the pasta and tossed a single portion into the frying pan. The ingredients were bacon and king oyster mushrooms. Both were meant to be Yui-san's snacks. The delicious aroma of butter and soy sauce made my stomach growl loudly.
+The timer beeped. With practiced hands, she drained the pasta and tossed a single portion into the pan. Bacon and king oyster mushroom for the ingredients — both of which had probably been meant as her own drinking snacks. The rich smell of butter and soy sauce set my stomach growling loudly.
+
+*
 
 "Here you go."
 
-I was moved by the pasta placed on the dining table. I properly clasped my hands together and said, "Itadakimasu," to which Yui-san smiled directly in front of me and replied, "Enjoy your meal."
+I felt genuinely moved, seeing the pasta set down on the dining table. I said a proper *itadakimasu*, hands pressed together, and Yui-san smiled across from me — *dig in*.
 
-"Was this slapdash stuff really alright?"
+"Was something this thrown-together really okay?"
 
 "It's delicious."
 
-"Really? Well, I'm glad then... I'm not really sure myself. I've never eaten home-cooked food before."
+"Yeah? Good, then... I honestly can't tell myself. I've never eaten anyone else's home cooking."
 
-She'd mentioned before that her father couldn't cook either, and Yui-san's words about never having tasted home cooking sounded somehow lonely.
+I remembered her saying before that her father couldn't cook either, and hearing that Yui-san had never once eaten a home-cooked meal made by someone else struck me as faintly lonely.
 
-"...I'd like you to make it again sometime."
+"...I want you to make it for me again."
 
-"Sure. If I've got all the right ingredients, I can make something a bit more proper for you."
+"Sure. If I actually have proper ingredients around, I can make something better than this."
 
-Pasta was perfectly fine, though. Yui watched me devour the pasta with a smile the whole time, probably because I was so hungry.
+The pasta was more than enough, honestly. Hungry as I was, I polished off the whole plate, and Yui-san watched me the entire time, smiling.
 
-"...Your exams finish next Friday, right? Shall we go to the aquarium on Saturday?"
+"...Exams end next Friday, right? Let's go to the aquarium on Saturday."
 
-I'd been looking forward to it for ages, so I nodded immediately.\
-I hadn't felt this excited when I went to the zoo with Hayakawa-kun, yet now my heart was pounding with anticipation.
+I'd been looking forward to it for so long that I nodded without a second's hesitation.
+Going to the zoo with Hayakawa-kun had never made my heart race like this. And now, my chest was fluttering, so much.
 
-Please, let it be sunny. Yes, I couldn't help but wish for it.
+*Please let it be sunny.* I couldn't help but wish for it.

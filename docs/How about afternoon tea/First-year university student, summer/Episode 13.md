@@ -1,308 +1,324 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: First-year university student, summer
 sequence: 13
-title: "Episode 13: Today, I'll let you off the hook"
+title: "Episode Thirteen: I'll Let This Be Enough for Today"
 ---
-Episode 13: Today, I'll let you off the hook
+## Episode Thirteen: I'll Let This Be Enough for Today
 
-The first weekend after exams brought the clear, refreshing skies I'd wished for – perfect weather for an outing.
+\
+The first weekend after finals ended came exactly as hoped — a sky so clear it felt almost extravagant, perfect weather for an outing.
 
-Saturday, the day of our promise.
+Our promised Saturday.
 
-An hour and a half's drive. Crossing right through the middle of Tokyo Bay, we set foot on the Bōsō Peninsula for the first time. My heart leapt at the thought of the long-awaited aquarium.
+An hour and a half of driving, cutting straight across the middle of Tokyo Bay, and I set foot on the Boso Peninsula for the first time. My heart raced at the aquarium I'd been waiting so long for.
 
-　Clutching the pamphlet handed to us with the tickets, I checked the show times and tugged Yui-san's hand, urging her along.
+*
 
-"Yui-san, let's hurry and see the orcas!"
+Pamphlet in hand, checking the show times, I tugged Yui-san's hand along, hurrying, hurrying.
 
-"Eh? Are we going to the show first?"
+"Yui-san, let's go see the orcas first."
 
-"But it says it starts at half nine. Since we're here, I want to see that first."
+"Eh? We're doing the show first?"
 
-"...Kanata, are you the type who eats taiyaki from the head end?"
+"It says nine-thirty. I want to see it right away, since we're here."
 
-Asking that means Yui-san must be the type who eats from the tail end. I can't resist and always eat my favourite part first.
+"...Kanata, are you a bite-the-head-first kind of person, with a taiyaki?"
 
-"...Is that not allowed?"
+Asking that meant Yui-san was probably a tail-first type. I can't help it — I go for whatever I like best, right away, every time.
 
-"It's not forbidden. Right then, let's go see it first."
+"...Is that bad?"
 
-The hand I'd been tugging gently clasped mine again, and we headed straight for the stadium.
+"Not bad at all. Okay, let's go see it first, then."
 
-　We'd arrived well before the show was due to start, yet people were already staking out spots here and there. Still, we managed to secure the very front row.
+She re-laced her fingers gently through the hand I'd been pulling, and we headed straight for the stadium.
 
-I handed Yui the raincoat I'd bought and prepared beforehand.
+*
 
-"Eh? Are we wearing these? Won't it be hot?"
+I'd thought we'd arrived plenty early, well before the show started, but there were already a few people staking out spots, though we still managed to claim front row.
 
-"I heard we're going to get absolutely soaked."
+I handed Yui-san one of the two raincoats I'd bought and prepared ahead of time.
 
-"Huh, really?"
+"Wait, we're wearing these? Won't it be hot?"
 
-She looked sceptical, but I'd done my research beforehand, so I wasn't taking any chances.
+"I heard you get really, really soaked."
 
-"Doubting me? Well then, you don't have to wear yours, Yui-san. It's not me who'll be in trouble."
+"Hm, that soaked?"
 
-As I said this and reached out to take back the raincoat, Yui-san deftly dodged my hand.
+She looked half-convinced, but I'd done my research beforehand, so I wasn't taking any chances.
+
+"You don't believe me? Fine, you don't have to wear it. I'm not the one who'll be sorry."
+
+I said it and reached to take the raincoat back, but Yui-san neatly dodged out of the way.
 
 "...I'll wear it. Just in case."
 
-Perhaps noticing other front-row patrons putting on raincoats too, Yui quietly slipped her arms through the sleeves.
+Maybe she'd noticed the other front-row visitors putting theirs on too, because Yui-san obediently slid her arms through the sleeves.
 
-"Ah, mind your shoes too, please."
+"Ah, watch your shoes too."
 
-At that, Yui's gaze fell to her two-tone sneakers, resembling orca dolphins.
+I said it, and Yui-san glanced down at her sneakers, two-toned black and white, almost orca-colored themselves.
 
-"Eh... Is it really that bad? Maybe I should've worn sandals like Kanata."
+"Wait... it's that serious? Maybe I should've worn sandals like you, Kanata."
 
-　I smiled at Yui, who seemed just a little timid now, and pressed my shoulder firmly against hers.
+I laughed at her, growing faintly nervous, and pressed my shoulder right up against hers.
 
-Today, Yui was dressed casually for easy driving – a refreshing change.
+Today Yui-san had gone with something casual, easier for driving, and it felt refreshingly new on her.
 
-Though honestly, she always looks beautiful, whatever she wears, thanks to her great figure.
+Though honestly, whatever she wears, her figure's good enough that she always looks put together.
 
-The earrings peeking through her glossy black hair caught the sunlight and sparkled. Lovely, I thought.
+An earring peeked through her glossy black hair, catching the sunlight, and I thought, simply, how lovely it looked.
 
-　I'd been looking forward to today for so very long, which is why I managed to buckle down for my exams.
+I'd been looking forward to today for so long that even exam studying had felt bearable.
 
-My first summer holiday spent with Yui-san. Though, since I'm returning to England next week, this will probably be my only summery event.
+My first summer break spent with Yui-san. Though, with my flight back to England already set for next week, this was probably the only proper summer outing I'd get.
 
-When I mentioned coming back at the end of August, Yui-san told me some places still have fireworks displays then.
+When I mentioned I'd be back by the end of August, Yui-san told me some places still hold fireworks festivals even that late.
 
-　I stole a glance at her beside me.
+I stole a glance at her beside me.
 
-This girl, so incredibly popular she can't help it, must surely have her schedule packed with dates.\
-Everyone wants her. Even knowing she'll never belong to anyone, I could understand the urge to reach out for her now.
+Someone this endlessly popular surely had her dating calendar packed solid.
 
-I don't know anyone else as captivating as Yui-san.
+Everyone wants her, apparently without end. Even knowing she'd never belong to any one person, I found I could understand, now, at least a little, the urge to reach for her anyway.
 
-The first killer whale I'd ever seen was far larger than I'd imagined.
+I don't know anyone else as magnetic as Yui-san.
 
-　Its black and white bulk surged up from the depths, leaping lightly amid cheers.
+*
 
-Just when you thought it had jumped high enough, it slammed its body hard against the surface. With a thunderous splash, a torrent of water, more than I'd imagined, came crashing down from above without mercy.
+The orca, the first I'd ever seen in my life, was so much bigger than I'd imagined.
 
-Spray flew up into the blue sky, sparkling as it reflected the sun.
+The huge black-and-white body surged up from the depths and leapt, light as anything, to a roar of cheers.
 
-Ah, I thought, it's been ages since I felt a Japanese summer like this.
+Just as it reached its highest point, it slammed itself flat against the water's surface, and with a tremendous crack, a wall of water far larger than expected came crashing down over our heads without mercy.
 
-　When the spectators' cries, more akin to screams than cheers, finally subsided. Despite wearing raincoats, both of us were thoroughly soaked through.
+Spray burst up against the blue sky, glittering where it caught the sun.
 
-"Blimey, that was something else, wasn't it? I'm gobsmacked!"
+Ah, I thought. My first real Japanese summer in a long time.
 
-Yui laughed innocently, brushing her damp fringe back.
+*
 
-"Are you alright?"
+By the time the cheering — closer to screaming, honestly — had settled, both of us were soaked clean through despite the raincoats.
 
-"I'm fine. I'm used to getting splashed with water."
+"That was so intense, I'm shocked."
 
-I nudged Yui's arm with my elbow as she peered at my face with a mischievous grin.
+Yui-san laughed, unguarded, brushing her wet bangs back.
 
-The sun was out, so it would probably dry in no time.
+"Are you okay?"
 
-　She wiped my face with a handkerchief, tickling me.
+"I'm fine. I'm used to getting doused."
 
-"...It's salty."
+She said it with a teasing smile, peering into my face, and I elbowed her arm.
 
-"Are you alright?"
+With the sun out, we'd probably dry off in no time.
 
-I'd licked the droplets that had splashed onto my face, and they were salty. The extreme saltiness made me involuntarily stick out my tongue, and Yui laughed.
+She wiped my face with a handkerchief, and it tickled.
 
-"There's a dolphin and seal show too, so we need to move on soon."
+"...Salty."
 
-"Do the dolphins and seals splash water too?"
+"You okay?"
 
-"Only the killer whales do that. And only in summer. That's why I wanted to come."
+A stray droplet had landed on my face and I'd licked it without thinking — salty. I stuck my tongue out at the taste, and Yui-san laughed.
 
-Taking Yui-san's hand, I tugged her along, urging her to hurry. As she stood up, she looked at me and smiled softly.
+"There's a dolphin and sea lion show too, we should head over."
 
-"...You really are cute."
+"Do the dolphins and sea lions splash you too?"
 
-"Wh-what do you mean?"
+"Only the orcas do that. And only in summer. That's exactly why I wanted to come."
 
-"Nothing. Come on, next is the dolphins, right?"
+I took Yui-san's hand and tugged — *come on* — and once she'd stood, she looked at me and smiled, soft.
 
-She started walking, pulling my joined hand along.
+"...You're really cute, you know that?"
 
-　My face felt hot, surely just the sun's fault, definitely.
+"Wh-what is it now?"
 
-After watching the dolphin and sea lion show and feeling thoroughly satisfied, we strolled leisurely around the indoor exhibits.
+"Nothing. Let's go, dolphins next, right?"
 
-The lighting was dim inside, and getting separated would be terrible, so I squeezed her fingers tightly, afraid our loosely intertwined grip might slip apart. Yui-san smiled gently.
+Pulled along by our joined hands, we started walking.
 
-　I'm weak for Yui-san's smile like this. Why does she look at me with such gentle eyes?
+My face felt hot enough to burn — surely, surely, that was just the sun.
 
-My heart feels like it's being squeezed tight.
+*
 
-We sit side by side on chairs in front of the large jellyfish tank. I could watch their floating forms forever.
+After thoroughly enjoying the dolphin and sea lion shows, we wandered the rest of the building at an easy pace.
 
-"I haven't been to many aquariums, but this is fun. I might get hooked."
+Since the inside was dim and it would've been a real problem to get separated, I gave our loosely linked fingers a firm squeeze so they wouldn't slip apart, and Yui-san smiled, gentle.
 
-"Don't you usually go on dates or something?"
+I'm weak to that smile of hers. Why does she look at me with such kind eyes?
 
-"I don't have anyone to go on dates with."
+Something in my chest tightened, sharp.
 
-She squeezed her hand tightly, almost digging her nails in.
+*
 
-"Ouch, ouch!"
+We sat side by side on a bench in front of the huge jellyfish tank. Watching them drift, weightless, I could have stayed there forever.
 
-"But you must have plenty of people you could go out with."
+"I've never really come to aquariums much, but this is fun. I might get hooked."
 
-"That's not true. It's only you I'd go on a date with."
+"You don't come here on dates, usually?"
 
-She whispered those words, sweet as sugar, softly into my ear, so I couldn't help but glare at her.
+"I don't have anyone to date."
 
-　I know. She must say the same thing to everyone.
+I squeezed the hand still linked with mine, hard enough that her nails nearly dug in.
 
-"Is this a date?"
+"Ow, ow."
 
-"I intended it to be. Was it different for you, Kanata?"
+"You've got plenty of people you could."
 
-She said that, her gaze lingering maliciously on our joined hands. Suddenly embarrassed, I pulled my hand away, and our grip came apart with surprising ease.
+"Not true. It's only you, Kanata. The only one I date."
 
-"There's no need to be embarrassed."
+Words sugar-sweet, murmured close against my ear, and I couldn't help glaring at her.
 
-"...Yui-san, I never said it was a date. Didn't you say you were taking me out as an 'apology'?"
+I know better. This person surely says exactly the same thing to everyone.
 
-"Did I?"
+"Is this a date, then?"
 
-"...Honestly, you're so smooth."
+"That was my intention. Wasn't it yours?"
 
-I stood up and started walking, Yui-san following behind me.
+She said it, glancing teasingly down at our joined hands, and a sudden wave of embarrassment made me pull mine back — and it came apart almost too easily.
 
-　Being with this person feels comfortable because everything — my walking pace, everything — is perfectly matched to mine.
+"You don't have to be shy about it."
 
-I first noticed it when I went out with Hayakawa-kun. I thought maybe men just walked faster, but that wasn't it. Yui-san had been matching her pace to mine.
+"...Yui-san, you never said 'date.' Didn't you say you were taking me as an 'apology'?"
 
-"Getting hungry? Shall we go to a restaurant?"
+"Did I say that?"
 
-Yui-san caught up beside me and gently took my right hand. Our fingertips intertwined.
+"...Honestly, you're way too smooth for your own good."
 
-　I wanted to ask her, how did you know? Could Yui-san actually read my mind?
+I stood and started walking, and Yui-san fell into step behind me.
 
-It felt like she was using magic.
+Being with this person is comfortable because she matches everything to me — even her walking pace, everything.
 
-We spent the whole day exploring the aquarium, and as an apology, she even bought me an orca plushie – it was a thoroughly satisfying day.
+I'd first noticed it going out with Hayakawa-kun. I'd thought maybe men just walked fast in general, but that wasn't it. Yui-san had simply always been matching her pace to mine.
 
-　Getting into the car, I placed the plushie on my lap. The cold air conditioning breeze that blew out the moment the engine started felt wonderfully refreshing.
+"Getting hungry yet? Want to find a restaurant?"
 
-"Today was absolutely brilliant."
+Catching up beside me, Yui-san took my right hand gently, fingers lacing through mine.
 
-"I'm glad. If you'd just said, I'd take you anywhere. The aquarium, the zoo, the amusement park."
+*Hey, how do you always know?* I wanted to ask. Could Yui-san actually read minds?
 
-"...Isn't this a bother?"
+It felt almost like magic.
+
+*
+
+We spent the whole day touring the aquarium and, as an apology gift, she even bought me an orca plushie — a thoroughly satisfying day.
+
+Climbing into the car, I set the plushie on my lap. The moment the engine started, cool AC air rushed out, and it felt wonderful.
+
+"I had so much fun today."
+
+"Good. Just say the word and I'll take you anywhere. Aquarium, zoo, amusement park, whatever."
+
+"...Isn't that a hassle for you?"
 
 "Not at all."
 
-Yui-san's hand squeezed mine tightly. Even though we'd been holding hands all day, being alone in the car and having her take my hand like this suddenly made me feel rather embarrassed.
+Yui-san's hand squeezed mine, gentle. We'd been holding hands basically all day, and yet, alone together in the car like this, having my hand held felt strangely embarrassing all over again.
 
-"Does this mean... you've forgiven me?"
+"Does this... mean I'm forgiven?"
 
-Yui-san looked at me, as if trying to read my expression. I’d told her she didn’t need to apologise for kissing me, but come to think of it, I hadn’t actually said I forgave her.
+Yui-san was watching my expression carefully. I'd told her she didn't need to apologize for the kiss, but now that I thought about it, I'd never actually said the words *I forgive you.*
 
-I’d forgiven her ages ago and completely forgotten about it.
+I'd forgiven her so long ago I'd completely forgotten I hadn't said it out loud.
 
-Had she been worried about it all this time?
+Had she been quietly worrying about that, this whole time?
 
-"I’m not angry anymore. …Honestly, I feel almost guilty about all you’ve done for me. I had such a wonderful time today."
+"I'm not angry anymore. ...If anything, after all this, I feel bad on the other end. Today was genuinely so much fun."
 
-She’d driven us, bought the tickets, even given me a stuffed toy.
+She'd driven the whole way, bought the tickets, even bought me the plushie.
 
-　To be honest, when you ask if my lips are worth all this, I do wonder if it’s too much.
+Asked whether my lips were really worth all that, honestly, I couldn't help thinking I'd come out ahead.
 
-Gently, the fingers we’d been holding came apart. That hand reached out smoothly and stroked my cheek softly.
+Our linked fingers slipped gently apart. Her hand rose instead, coming to rest softly against my cheek.
 
-Those eyes, as deep as the night sea, captured me and wouldn’t let go.
+Eyes the deep color of the night sea held me, wouldn't let go.
 
-“I had fun too.”
+"I had fun too."
 
-　Her thumb gently traced my lips. Blood rushed to my heart with a thud, making it pound wildly.\
-When she gazed at me like that, I almost forgot to breathe.\
-She was too beautiful. Like drowning, I couldn't draw air.
-
-"...Kanata."
-
-She called my name. The sound resonating in my eardrums was far sweeter and gentler than usual.
-
-　Please, don't call me with such a gentle voice.\
-Don't look at me like that, as if you can't bear to be apart from me.
-
-Her hand came around the back of my neck, pulling me closer. Yui leaned forward, closing the distance.
-
-I knew instinctively she was going to kiss me.
-
-Why? There was no time to think about such things. It felt as natural as breathing.
-
-　Just as my eyes were about to close naturally, it happened. At the very moment our lips were mere centimetres apart, a ringtone suddenly sounded.
-
-Yui-san froze instantly.
-
-The sound wasn't from my phone. A name appeared on the car's satnav. An incoming call for Yui-san.
-
-Shinji Kitakami. A man's name I'd never seen before.
-
-The instant she saw that name, Yui-san sighed wearily.
-
-　She reached out and tapped the navigation system's 'Off' button with a sharp click.
-
-As Yui tried to close the distance again, I regained a little composure and pressed the orca figurine from my lap against her face to stop her.
+Her thumb traced softly over my lips. Blood rushed to my heart all at once, pounding, hard.
+Caught in that gaze, I nearly forgot to breathe.
+Too beautiful. Like drowning — I couldn't breathe at all.
 
 "...Kanata."
 
-I smiled slightly at the dissatisfied voice I heard through the orca.
+She said my name. The voice ringing in my ears was so much sweeter, so much gentler than usual.
 
-"Aren't you going to answer that call?"
+Please don't say my name in a voice that kind.
+Please don't look at me like that, like I'm something unbearably precious.
 
-"That was someone from work. It's Saturday today, so no need to answer. I'll call them back later."
+Her hand slid around the back of my neck, drawing me in. Yui-san leaned forward, the distance closing.
 
-"Even so... trying to kiss on the first date? Yui, you're moving too fast."
+I knew, on instinct, that I was about to be kissed.
 
-Ignoring how I'd nearly been swept up in the moment myself, I looked at her reproachfully.\
-Honestly, it was really close. My heart was still pounding.
+*Why* — there wasn't even time to ask the question, it happened so naturally, like this was simply how things went.
 
-"...Then when would be okay?"
+My eyes had just started to drift shut on their own when, with only a few centimeters left between our lips, a ringtone suddenly cut through the air.
 
-"Is that how you see it? Oh, you haven't learnt your lesson at all... Do you even mean to apologise?"
+Yui-san went still, all at once.
 
-I prayed the evening sun streaming through the window would hide my flushed cheeks.
+The sound wasn't from my phone. A name lit up on the car's navigation display. An incoming call for Yui-san.
 
-"...Really, no?"
+Kitagami Shinji. A man's name I'd never seen before.
 
-"...No."
+The instant she saw it, Yui-san let out a weary sigh.
 
-If I let her kiss me now, I probably wouldn't be able to refuse her again.\
-　I was a little scared. Scared of a door I didn't even know existed being forced open, scared of losing my nerve.
+She reached out and tapped the "decline" button on the nav screen.
 
-Yui-san had been staring intently at me, but she sighed softly, perhaps giving up. I felt a little tickled, thinking she didn't need to be so disappointed.
+When she leaned in again, trying to close the distance once more, I'd gathered myself enough to shove the orca plushie from my lap straight into her face, blocking her.
 
-Even though she's done far more than just kissed all sorts of girls.
+"...Kanata."
 
-She says I'm special to her, but I don't know how many people that 'special' applies to for Yui-san.
+Her voice, muffled and faintly put out from behind the plush orca, made me laugh a little.
 
-"Right... I see."
+"Shouldn't you answer that?"
 
-Just as I thought she'd gently taken my hand, she gave my knuckles a soft peck.
+"That was someone from the company. It's Saturday, no need to pick up. I'll call back later, it's fine."
 
-Stunned, I just stared blankly at the scene. Yui-san chuckled softly.
+"Still... trying to kiss someone on the very first date, Yui-san, isn't that moving a little fast?"
 
-"...I'll let you off with that today."
+Conveniently ignoring how close I'd come to getting swept along myself just a moment ago, I gave her an accusing look.
+Honestly, that had been genuinely dangerous. My heart was still racing.
 
-Hearing that, my face flushed scarlet. Realising this couldn't be hidden by the sunset, I hurriedly looked away.
+"...So how many dates would be enough, then?"
 
-"Right, shall we head back?"
+"Is that really the question here? Geez, you haven't learned a thing... Are you even actually sorry?"
 
-Yui-san took hold of the steering wheel as if nothing had happened.
+The sunset pouring in through the window — please, let it disguise how red my cheeks have gone.
 
-My heartbeat refused to slow as the car began driving towards home.
+"...Really, not even once?"
 
-　Next week, I have to return to England, to my family.
+"...Not even once."
 
-Just three weeks. But how many women will this person kiss, how many nights will she spend with them, in that time?
+If I let myself be kissed right now, I don't think I'd be able to refuse her again after that.
+It scared me, just a little. Like some door inside myself, one I didn't even know existed, was about to be forced open, and the thought made me flinch.
 
-Just thinking about it, I could feel a thick, sticky emotion settling deep in my chest.
+Yui-san had been staring at me steadily, but she finally let out a small, resigned sigh, giving up. Watching her look that disappointed left me strangely, ticklishly pleased.
 
-I couldn't even remember how I'd lived before meeting Yui-san.
+And here she is, someone who's kissed — and done far more than kiss — plenty of other girls without a second thought.
 
-To think I didn't want to be apart for even a moment... surely, I must be mad.
+She says I'm special, but I have no idea how many "special" people there actually are, in Yui-san's book.
+
+"...Right. Got it."
+
+She took my hand gently, and before I knew it, pressed a small kiss to the back of it.
+
+I sat there, dumbstruck, staring, and Yui-san let out a soft laugh.
+
+"...I'll let this be enough, for today."
+
+Hearing that, my face went completely, thoroughly red. Even the sunset couldn't cover for me now, and I turned away in a hurry.
+
+"Well, let's head home."
+
+Yui-san took the wheel like nothing at all had happened.
+
+My heart never once settled the whole drive, as the car pulled away, heading for home.
+
+Next week, I have to go back to my family in England.
+
+Only three weeks. But in that time, how many women will this person kiss, how many nights will she spend with someone else?
+
+Just thinking about it, I could feel something dark and heavy settling, thick, at the bottom of my chest.
+
+I can't even remember anymore how I used to live, before I met Yui-san.
+
+Not wanting to be apart from her, even for a moment — something's definitely wrong with me right now.

@@ -1,224 +1,228 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: First-year university student, summer
 sequence: 17
-title: 'Episode 17: Even Women Should Pursue Love Seriously'
+title: 'Episode Seventeen: Women Should Take Their Relationships With Each Other Seriously Too'
 ---
-Episode 17: Even Women Should Pursue Love Seriously
+## Episode Seventeen: Women Should Take Their Relationships With Each Other Seriously Too
 
-After returning to Japan, I resumed our weekend film-watching habit, and one evening I slipped between those legs for the first time in ages.
+\
+Back in Japan now, our weekend movie habit picked right back up, and the first night I curled into my usual spot between her legs after so long, felt like coming home too.
 
-"What shall we watch tonight?"
+"What are we watching tonight?"
 
-"Hmm... what do you fancy?"
+"Hm, what do you want to watch?"
 
-Her arm wrapped around my waist squeezed me tight, making it a little uncomfortable. When I pinched her hand in protest, she hugged me even tighter.
+The arm around my waist squeezed, tight enough it was almost uncomfortable, and I pinched her hand in protest — which only made her hold me tighter.
 
-　Just as I was about to complain, I felt lips pressed against the nape of my neck peeking out from my T-shirt. My throat, which had been trying to form words, made a sharp hissing sound instead.
+Just as I opened my mouth to complain, I felt lips press against the side of my neck, right where my T-shirt collar left it bare, and whatever I'd meant to say caught in my throat with a small, strangled sound.
 
-Admittedly, it was me who had slipped into her arms for a hug.
+It was true, I'm the one who'd crawled into her arms wanting a hug in the first place.
 
-But I never said I wanted it to go this far.
+But I never once asked for this much.
 
-"Yui-san, just... it tickles. Hey...!"
+"Yui-san, that's... a little ticklish. Hey...!"
 
-"Oh? So you're ticklish around the neck too, Kanata?"
+"Huh, so your neck's sensitive too."
 
-Was this payback for rejecting her kiss earlier? Ignoring my protests, she kissed behind my ear too, sending a shiver through my body.
+Maybe out of leftover spite from me turning down that kiss earlier, she ignored my protest entirely and kissed just behind my ear too, and my whole body shivered.
 
-This was clearly beyond the bounds of senior-junior camaraderie. It was lover's intimacy.
+This had clearly gone well past ordinary senior-junior skinship. This was lover territory.
 
 "Yui-san, seriously...!"
 
-"What is it?"
+"What?"
 
-"It tickles, I tell you."
+"It's ticklish."
 
-"It's not your lips, you know. You could let me get away with this much."
+"It's not your lips, so this much should be fine, right?"
 
-A slightly dissatisfied voice came from behind me. As expected, she seemed to still be holding a grudge about me refusing her kiss.
+Her voice from behind me sounded faintly put out. Just as I'd suspected — she was still holding a grudge over the rejected kiss.
 
-When she gently swept my long hair to one side and pressed her lips to the nape of my neck, I felt like crying.
+She brushed my long hair gently to one side, and by the time her lips pressed against the nape of my neck, I was nearly in tears.
 
-It was so embarrassing that I reacted so strongly, simply because she was touching places I was rarely touched at all.
+Touched in places that almost never get touched normally, my body reacted more than I wanted, and the embarrassment was unbearable.
 
-"If you're going to keep playing pranks like this, I don't need to watch the film anymore..."
+"If you're going to keep pulling stunts like this, we're not watching a movie at all..."
 
-"That won't do. I've been looking forward to watching it together for ages."
+"No, that's not allowed. I've been looking forward to watching together this whole time."
 
-Noticing me struggling to free myself from the arm around my waist, Yui-san stopped her mischief with surprising abruptness.\
-Feeling her chin rest on my shoulder, I finally relaxed and leaned back into her embrace.
+Noticing me struggling to pry the arm off my waist, Yui-san let the teasing drop, easily, almost too easily.
+I felt her chin settle onto my shoulder, and finally, I could relax and let my weight sink back against her.
 
-"Then why did you do this...?"
+"Then why are you doing this in the first place..."
 
-"Because I find you utterly adorable."
+"Because you're unbearably cute."
 
-Hearing that, I was at a loss for words.
+Said that plainly, I had no idea how to respond.
 
-The word 'adorable' carries many meanings.
+"Cute" carries so many different meanings.
 
-"...Yui, do you really like me that much?"
+"...Yui-san, do you actually like me that much?"
 
-I didn't ask because I truly believed it. But because I couldn't fathom her feelings at all, the words slipped out before I could stop them.
+I hadn't asked expecting a real answer, exactly. It was just that her feelings were so impossible to read that the question slipped out before I could stop it.
 
-　Whether she behaved similarly when alone with someone else was something I'd never know unless I asked a woman connected to Yui-san.
+Whether she acts the same way with someone else, alone with them — that's something I'd never know unless I actually asked one of the women she's involved with.
 
-I didn't think she disliked me. But I couldn't flatter myself into thinking I was the only one she particularly liked either.
+I don't think she dislikes me. But I can't quite let myself believe I'm the only one she's especially fond of, either.
 
-Wanting to grasp even a hint of her emotional subtlety, I turned my head back.\
-Our eyes met, and Yui-san looked at me with wide, puzzled eyes.
+Wanting to catch even the smallest hint of what she actually felt, I turned my head back to look at her.
 
-"Yes, I like you."
+Yui-san's eyes went round, puzzled, meeting mine.
 
-My heart nearly stopped when she said it so matter-of-factly, as if it were the most natural thing in the world.
+"Yeah, I like you."
 
-Right, that's the sort of person she is. I wanted to bury my face in my hands.
+Said so simply, like it was obvious, that my heart nearly stopped.
 
-There was no point in confirming it with words. I should have known.
+Right — this is exactly who she is. I wanted to put my head in my hands.
+
+There was no point confirming it in words. I already knew that.
 
 "I always tell you you're special, don't I?"
 
-Indeed, I'd been told I was special at every opportunity, spoken to with indulgent kindness.
+It was true, she'd told me that, over and over, spoiling me with it every chance she got.
 
-Her words were always so pleasant to hear; only Yui-san knew what she truly meant.
+Everything this person says sounds wonderful to hear, and only Yui-san herself knows how much of it is actually true.
 
-The troubling thing about this person, Ichinose Yui, was that I couldn't shake the feeling she might say the same thing to anyone.
+The fact that I can't rule out her saying the exact same thing to everyone else — that's the exhausting part about this person, Ichinose Yui.
 
-"...You also said you wouldn't have a lover, didn't you?"
+"...You also said you don't do girlfriends."
 
-It seemed odd to me. If you liked someone, wouldn't you wish to be their lover?
+It struck me as a strange thing to say. If you like someone, shouldn't you want to be with them properly?
 
-I recalled memories of past confessions. After the words "I like you," "Please go out with me" almost always followed.
+I thought back to every confession I'd gotten in the past. "I like you" was, almost every time, immediately followed by "will you go out with me?"
 
-Though not quite like Hayakawa-kun's recent confession, which is still fresh in my memory, Yui-san's words feel as light as feathers compared to the directness of his.
+Hayakawa-kun's confession, still fresh in memory, hadn't gone quite that way either, but even set against how direct his words had been, Yui-san's felt light as a feather by comparison.
 
-Yui-san's "I like you" carries no further meaning, no implication of a relationship.
+Yui-san's "I like you" never comes with any words after it. No relationship attached.
 
-Whether it's love, or like, or neither, I cannot tell.
+Whether it's love, or like, or something that's neither — I don't know.
 
-　The words of affection thrown at me felt almost like violence – one-sided, irresponsible. She seemed intent only on unsettling my heart, with no intention whatsoever of taking responsibility.
+The affection she throws around feels, honestly, closer to a kind of one-sided, irresponsible violence. Stirring up someone's heart with no intention whatsoever of taking responsibility for it.
 
-"You're straight, Kanata, so why worry about that? We're both girls, so it's fine, isn't it?"
+"You're straight anyway, so it shouldn't matter to you either way, right? We're both women, so it's fine."
 
-In other words, Yui-san's argument was this:
+Which is to say, her whole logic boils down to this —
 
-　—Because I'm straight... meaning heterosexual, she assumes I'd never want to date or be in a romantic relationship with someone of the same sex like her. So she feels free to say things like I'm special, cute, she likes me, or wants to kiss me, without a second thought.
+*Because I'm straight — because I'm not attracted to women — there's no risk of me actually wanting to date her or fall for her, so she can say "you're special" or "you're cute" or "I like you" or "I want to kiss you" without a second thought.*
 
-"...Does gender matter? Even between women, you should be able to have a serious romantic relationship."
+"...Does gender even matter here? Women should take their relationships with each other seriously too."
 
-Staring straight into those jet-black eyes, I stated it plainly. Yui looked startled.
+I said it, looking straight into those black eyes, and Yui-san's face went openly startled.
 
-"…………………"
+"......................"
 
-We stared at each other in silence for a moment. Had I said something that strange?
+We stared at each other in silence for a moment. Had I really said something that strange?
 
-"Um... is my way of thinking... odd?"
+"Um... is that a weird way to think about it?"
 
-"Eh? Ah, no, it's not that..."
+"Huh? Ah, no, that's not it, but..."
 
-She was unusually hesitant for Yui, and I wondered if I'd been a bit too harsh.
+Unusually halting for Yui-san, and I thought — maybe I'd come down a little too hard.
 
-　Admittedly, what I'd just said sounded like I was blaming Yui for always playing around.
+It's true, what I'd just said amounted to criticizing her for how casually she plays around.
 
-There might be some reason, some unavoidable circumstance, that made her become this kind of woman who plays the field so much.
+Maybe there's some real reason, something unavoidable, behind why she'd ended up someone who plays this hard with women.
 
-But — she had a girlfriend before, didn't she? She liked that person, didn't she? She was devoted to her, wasn't she?
+But — she'd had a girlfriend once, hadn't she. She'd genuinely liked that person, hadn't she. Been devoted to her, hadn't she.
 
-Then why? Why don't you want to 'date' me?
+Then why. Why won't she consider being with me the same way?
 
-　You say I'm special, but the fact that there was someone more special to you than me makes me furious. It feels like defeat, and it's bitterly frustrating.
+She says I'm special, but the fact there'd been someone even more special to her once, in the past — it made me furious, honestly. Like I'd already lost. It stung.
 
-Even if you did ask me out, I still don't know if I could actually date a woman.
+Whether I could actually date a woman myself, even if she asked — I still don't know.
 
-The person who turned high school Yui-san's values upside down. I know it's pointless to be angry at someone from the past.
+Whoever it was that flipped Yui-san's whole worldview upside down back in high school — I know there's no point being angry at someone from the past.
 
-　Then I want you to prove I'm special by doing something only university-aged Yui can do, something only for me.
+But then, I want her to give me something only present-day, university-age Yui-san can give — something to prove I'm the special one, right here, right now.
 
-"...Yui-san?"
+"...Yui-san."
 
-"Hmm?"
+"Hm?"
 
-"Have you ever been to a fireworks display with a lover?"
+"Have you ever gone to a fireworks festival with a girlfriend?"
 
-I want to know how you spent time with a lover, not just a playmate, back when you were in high school.
+Not a playmate. A real girlfriend. I wanted to know how high-school Yui-san had spent time with someone she actually loved.
 
-She pouts slightly, pinching the fingertips of the hand loosely wrapped around her waist in a sulky manner.
+I pouted, just slightly, and pinched the fingers of the hand still loosely wrapped around my waist, sulking.
 
-"...No, I haven't. Not at all."
+"...No, never, not once."
 
-Seeing Yui smile a little awkwardly, I instinctively knew: ah, she doesn't want to be asked that.
+Yui-san laughed, faintly troubled, and I understood instinctively — ah, this isn't something she wants to talk about.
 
-"Hmm... Have you already forgotten the promise you made to take me?"
+"Hmm... Did you already forget you promised to take me?"
 
-"Of course not. I haven't forgotten. Next Saturday, let's go see the fireworks together."
+"No way. I haven't forgotten. Next Saturday, let's go see the fireworks together."
 
-"...I'm working until evening on Saturday, so please come and pick me up."
+"...I've got a shift until evening on Saturday, so come pick me up."
 
 "Yeah, of course."
 
-There were mountains of things I wanted to do before summer ended.
+There was so much I wanted to do before summer ended.
 
-Summer certainly comes every year, but this very moment, this summer we're spending together, will never come again.
+Summer comes again every year, sure, but this exact summer, spent together like this — it will never come again.
 
-I picked up the remote and chose a film I wanted to watch without asking Yui for her opinion.\
-I love this time spent wrapped up in a blanket, snuggled close, exchanging opinions about this and that, just relaxing.
+I grabbed the remote and picked out a movie myself, without bothering to ask her opinion.
+Wrapped up together in a blanket, trading opinions back and forth about whatever we were watching — I love this quiet, unhurried time.
 
-"About what we were saying earlier... Kanata, you see—"
+"About what I said earlier... Kanata."
 
 "What is it?"
 
-"Would you be okay if I had a girlfriend?"
+"Would you be okay with it, if I had a girlfriend?"
 
-A question like a bomb hit me, and I thought, Oh, am I going to die?\
-My heart ached so badly it felt like it was being squeezed, and I genuinely thought she was being cruel to ask something like that.
+The question dropped like a bomb, and I thought, *ah, I think I might actually die.*
+My heart clenched that painfully, and I thought, honestly, what a cruel thing for this person to ask.
 
-I should be taking love seriously, yet I fear her heart might turn towards someone else.
+I'm the one who just said relationships between women should be taken seriously, and here I was, terrified of her feelings tipping toward someone else.
 
-I know it's contradictory.
+I know how contradictory that is.
 
-'I wouldn't want a lover' — what kind of hypocrite says that?
+*I'd hate it if you had a girlfriend* — as if I have any right at all to say something like that.
 
-I turned to face Yui-san directly. I felt her arms release their hold on me, but I ignored it, staring intently into her eyes.
+I turned to face her straight on. I felt the arm around me loosen, but I ignored it and just kept staring into her eyes.
 
-　Her calm, gentle black eyes, like the night sea, looked back at me.
+Calm, kind, black eyes, like a nighttime sea, gazed back at me.
 
-It shouldn't matter if Yui-san has a lover. After all, I'm not homosexual, I've never been in love with a woman, and it's impossible for me to ever be in that kind of relationship with her.
+It shouldn't matter to me at all if Yui-san had a girlfriend. Because I'm not gay, I've never once fallen for a woman, and there's no way something like that could ever happen between us.
 
-So, perhaps I should state it clearly here, I thought. It's the perfect opportunity to properly reassess our relationship. I took a deep breath.
+So I thought — maybe this was the moment to say it plainly. A perfect chance to reset the relationship properly. I took a deep breath.
 
-　I needed to set things straight. You and I are senior and junior. Nothing more.
+I need to get this straight. You and I are senior and junior. Nothing more than that.
 
-Yui-san has a girlfriend? Well, that's—
+Whether Yui-san has a girlfriend or not — obviously that shouldn't—
 
-"Absolutely not."
+"I'd absolutely hate it."
 
-Staring straight at Yui-san, the words slipped out before my mind could catch them, as if they'd leapt from my heart.
+*
 
-　Huh, what did I just say...?
+Looking straight at Yui-san, the words that slipped from my lips came out before thought could catch up, tumbling straight from somewhere deeper than reason.
 
-Before I could even process the words I'd blurted out, Yui burst out laughing.
+Wait. What did I just say...?
 
-"Hmm, yeah, that's right. It's fine. I'll definitely never get a girlfriend, so don't worry."
+Before I could even replay what I'd blurted out, Yui-san burst out laughing.
 
-She pulled me close, wrapping her arms tightly around my waist. I hurriedly pushed her shoulders away.
+"Mm, yeah, I figured. Don't worry, I'm never getting a girlfriend, so relax."
 
-"No, that's a misunderstanding, what I just said—"
+She pulled me in close by the waist, and I scrambled to push at her shoulder.
 
-"Honestly, you're adorable. That side of you is irresistible."
+"No, that's not, that's a misunderstanding, what I just said—"
 
-She hugged me so tightly it hurt. I couldn't take back the words I'd spoken, and I could feel my face growing red.
+"You're really too cute. I can't stand it, honestly."
 
-Yui-san was smiling so genuinely, it drained the venom from me, and the strength left my body.
+Held tight enough it was hard to breathe, I couldn't take back what I'd already said, and I could feel my face going redder by the second.
 
-"...Fireworks. Looking forward to them, aren't we?"
+Yui-san looked so genuinely happy, laughing like that, that all the fight drained right out of me, my whole body going slack.
 
-Her gentle whisper at my ear bound me. Ah, whatever happens, happens, I murmured inside.
+"...I can't wait for the fireworks."
 
-If only things were simpler.
+Whispered gently against my ear, and I gave in completely. *Fine, whatever happens, happens*, I thought to myself.
 
-If only you weren't such a complicated puzzle.
+I wish it were simpler.
 
-If only you were someone who could just say they liked me straight out.
+If, for instance, you weren't such a complicated puzzle of a person.
 
-Then maybe I could have said I liked you more easily too.
+If you were someone who could just tell me, straight, that you liked me.
+
+Maybe then I could have told you, just as easily, that I liked you too.
