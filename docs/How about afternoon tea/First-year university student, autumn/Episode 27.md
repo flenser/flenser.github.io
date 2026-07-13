@@ -1,220 +1,222 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 7
 parent: First-year university student, autumn
 sequence: 27
-title: 'Episode 27: I Hate Being Compared'
+title: "Episode Twenty-Seven: I'd Hate Being Compared"
 ---
-Episode 27: I Hate Being Compared
+## Episode Twenty-Seven: I'd Hate Being Compared
 
-I'd taken up position between Yui-san's legs as she sat on the sofa, staring intently at the travel site while operating the tablet.
+\
+Camped in my usual spot between Yui-san's legs on the sofa, I stared down the travel site on the tablet, locked in a small battle of wills with it.
 
-As for Yui-san herself, she's just resting her chin on my shoulder and staring intently at it from behind, without offering any opinion whatsoever since earlier.
+Yui-san, meanwhile, just rested her chin on my shoulder from behind, watching quietly, offering absolutely no opinions at all.
 
-　I’d been scrolling back and forth, searching for autumn travel spots, but couldn’t find anything at all. Growing impatient, I turned to her.
+Scrolling back and forth, hunting for autumn travel spots, I couldn't land on anything, and finally, out of patience, turned back to her.
 
-“Hey, Yui, isn’t there anywhere you’d like to go?”
+"Hey, Yui-san, is there anywhere you want to go?"
 
-“Where Kanata wants to go.”
+"Wherever you want to go, Kanata."
 
-“But it’s the travel voucher you got, Yui. We should go where you want to go.”
+"It's your travel voucher, Yui-san, so let's go wherever you want."
 
-"Hmm... but since we're going on a trip together, I'd rather go somewhere you'd enjoy."
+"Hmm, but if we're finally traveling together, I'd rather go somewhere that makes you happy."
 
-Hearing that, I felt stuck. The travel voucher was a present from Yukiyasu-san to Yui-san, after all.
+Told that, I didn't know what to do with it. The voucher was Yukiya-san's gift to her, after all.
 
-I wondered where Yui-san might enjoy going.
+I tried to think of somewhere Yui-san might actually enjoy.
 
-Since we were going to make the trip, somewhere with a seasonal feel seemed best. It was our first trip together, so somewhere relaxing, somewhere memorable.
+Since we're making the trip anyway, it'd be nice to pick somewhere that felt seasonal. Our first trip together — somewhere relaxing, somewhere memorable.
 
-"...Well, it is autumn, so somewhere with beautiful autumn leaves, perhaps?"
+"...Well, since it's autumn, maybe somewhere with pretty fall foliage?"
 
-"Ah, how about Hakone then?"
+"Ah, how about Hakone, then?"
 
-Yui-san stretched the arm she'd had draped around my waist and swiftly operated the tablet.
+Yui-san stretched the arm that had been looped around my stomach and swiped smoothly across the tablet.
 
-"The autumn leaves are supposed to be at their best in late November. That's perfect timing, isn't it?"
+"Peak foliage is late November, apparently. Perfect timing."
 
-Hakone, huh... How many years has it been since I last went to a hot spring? It's been getting a bit chilly lately, and an open-air bath would surely be wonderful.
+Hakone, huh... I couldn't even remember the last time I'd been to a hot spring. It's been getting a little chilly lately too — an open-air bath would probably feel amazing.
 
-"...Sounds lovely, a hot spring."
+"...Sounds nice. A hot spring."
 
-"Then it's settled. Now that we've decided, let's find a place to stay straight away. We'll bathe together in the hot spring, alright?"
+"Then it's decided. Let's find a place to stay right away. We'll go in together, okay?"
 
-I nodded without thinking it through, then suddenly snapped back to reality and turned to look at Yui-san.
+I nodded, without thinking too hard about it, before jolting and spinning back around to look at her.
 
-Why hadn't I thought of it? If we went to a hot spring together, she'd definitely suggest bathing together. It was obvious.
+Why hadn't that occurred to me sooner. Of course going to a hot spring together meant she'd say "let's go in together" — it was obvious.
 
-Panicking, I shook my head vigorously.
+Flustered, I shook my head hard, side to side.
 
-"N-no. I won't bathe with you."
+"N-no. We're not going in together."
 
-"Eh? Why not?"
+"Eh, why not?"
 
-Her dissatisfied voice made me feel so uncomfortable under her steady gaze that I averted my eyes.
+Asked in a faintly displeased voice, held under her steady gaze, I couldn't bear it and looked away.
 
-"Because... it's embarrassing, isn't it?"
+"I mean... it's embarrassing."
 
-I murmured, pouting my lips slightly. Even without asking why, she must have guessed the reason.
+I muttered it, pouting just slightly. She could probably already guess the reason without even needing to ask.
 
-"But we're both girls. Why not?"
+"Even though we're both women? Still not allowed?"
 
-The fact we're both girls wasn't the reason. If it were Yuri or Ritsu, I wouldn't mind sharing a bath at all. But Yui-san... it's different.
+Both being women isn't really the reason. I'd be fine going in with Yuuri or Ritsu-san. But Yui-san is different.
 
-We've kissed countless times. She's even pinned me down before. Expecting me not to be conscious of her? That's asking the impossible.
+We've kissed plenty of times, and she's even pushed me down onto the bed once — telling myself not to be self-conscious around her would be asking the impossible.
 
-　As I hesitated to answer, her voice urged me, "Kanata," demanding a reason, while she hugged me tighter. Resigned, I opened my mouth.
+Hesitant to answer, I heard "Kanata," pressing for a reason, and felt myself pulled into a tighter hug at the same time, and, resigned, I gave in.
 
-"...Yui-san, you've seen lots of different women naked, haven't you? I don't want to be compared."
+"...You've probably seen tons of different women naked, Yui-san. I'd hate being compared."
 
-I don't know what kind of girls Yui-san has spent nights with before.\
-　But having her see my breasts — not particularly large, just perfectly average — and my body, which isn't exactly curvaceous, is embarrassing.
+I don't know how many women Yui-san's spent nights with, up to now.\
+But having my not-especially-large, entirely ordinary chest, my body without much of anything resembling a striking figure, looked at — that's embarrassing.
 
-"Whatever," I muttered sulkily, and I could tell Yui chuckled softly.
+*Whatever, forget it*, I said, sulking, and I could tell Yui-san was laughing, soft.
 
 "...Why are you laughing?"
 
-"I wouldn't dream of comparing. Does it really bother you that much? You're adorable, Kanata."
+"I wouldn't compare you to anyone. You're actually worried about that? Cute, Kanata."
 
-"...So, no hot spring after all."
+"...Never mind, no hot spring after all."
 
-When I said that, Yui laughed out loud. "Sorry, sorry, don't sulk," she said, shaking the body she was hugging, but I ignored her and turned away. I could tell she was clearly teasing me, and it wasn't amusing.
+At that, Yui-san laughed out loud. *Sorry, sorry, don't sulk*, she said, shaking me gently where I was held, but I ignored her and turned away. Being teased this obviously wasn't fun.
 
-"Well then, shall we go in at a different time? I'll book somewhere with a private room bath. How about that?"
+"Then let's just go in at different times? I'll book somewhere with a private bath in the room too. How's that?"
 
-"Hmm, if it's that..."
+"Mm, if it's that, then..."
 
-"It's a shame we can't bathe together, but I suppose we'll save the fun for the right moment."
+"Too bad we can't go in together, but I'll just save that pleasure for the right moment."
 
-The right moment... Even though I'd said I didn't want to show her my naked body, Yui-san spoke as if she was certain "that opportunity" would arise, making my face flush with embarrassment.
+*The right moment* — I've just told her I don't want to be seen naked, and here she is, talking like she's already certain "that moment" is coming, and my face went hot with embarrassment.
 
-I pinched the hand around my waist in protest.
+I pinched the hand still wrapped around my stomach, in protest.
 
-"...Yui-san, you're such a lecher."
+"...You pervert, Yui-san."
 
-"It's a bit late now, isn't it?"
+"Bit late to point that out, isn't it."
 
-A bit late, eh? Fair enough. She's always so kind, I tend to forget, but I'd completely forgotten that despite her pretty face, all Yui-san thinks about is doing naughty things with girls.
+Bit late, huh. Fair enough — since she's always so gentle, it's easy to forget, but underneath that beautiful face, all Yui-san's thinking about, apparently, is doing indecent things with girls. I'd completely let that slip my mind.
 
-Anyway, my request had been granted, so I slid my finger across the tablet to look up Hakone when a notification ping sounded from my pocket.
+Anyway, since my request had gone through, I went to slide my finger back to the tablet to research Hakone properly, when a notification chimed from my pocket.
 
-　Who could it be at this hour?
+Who'd be messaging at this hour?
 
-Wondering, I pulled out my phone to find a message in my chat app: "What are you doing now?"
+Curious, I pulled out my phone, and a message had come in on the chat app: *What are you up to right now?*
 
 A familiar icon.
 
-"...Oh, it's you, Hayakawa-kun."
+"...Oh, it's just Hayakawa-kun."
 
-I replied, "Nothing much," knowing full well he'd follow up with "Can I call?" So I added, "I'm planning a trip with Yui-san."
+I'd learned by now that replying with just *nothing much* would inevitably be followed by *can I call you?*, so I texted back that I was making travel plans with Yui-san instead.
 
-　Right, I thought, closing my phone to look up Hakone again, when suddenly a hand reached out from behind and grabbed it.
+Right, now let's get back to researching Hakone, I thought, going to close my phone — only for a hand to snap out from behind and grab it.
 
-"Do you call him often?"
+"Do you two talk on the phone often?"
 
-"Eh?"
+"Huh?"
 
-"You've been talking for half an hour."
+"Thirty minutes, this call."
 
-I wondered what on earth she meant, but then I saw the previous call log still open on the chat app screen. Yui-san must have noticed it.
+I had no idea what she meant at first, and then realized — the chat app's screen still showed the record of our last call, and Yui-san must have noticed it.
 
-"No, it's mostly just me listening to Hayakawa-kun talk..."
+"No, that was mostly just Hayakawa-kun talking, I barely..."
 
 "Hmm..."
 
-It wasn't like I was doing anything wrong, but being called out on it felt awkward.
+I wasn't doing anything wrong, and yet, pointed out like this, it felt strangely awkward all the same.
 
-"...Is that a problem?"
+"...Is it a problem?"
 
-"It's not a problem, but... if you're not interested, you don't have to go out of your way to talk to him, do you?"
+"Not a problem, but... if you're not interested in him, do you really need to keep humoring his calls?"
 
-That was fair enough, I thought.\
-It was only relatively recently that Hayakawa-kun started calling me, partly because our shifts hadn't overlapped much lately.
+That's a fair point, I thought.\
+Hayakawa-kun calling like this was a fairly recent development, probably partly because our shifts hadn't been overlapping much lately.
 
-　Having repeatedly called Yui-san "dishonest," I couldn't say I felt entirely free of guilt about my own dishonesty.
+I've gone on and on calling Yui-san "unfaithful," and yet I can't say I feel entirely clean about doing something not so different myself.
 
-"...But Yui-san gets calls from all sorts of girls all the time, doesn't she?"
+"...You're one to talk, Yui-san. Girls call you constantly too."
 
-Knowing full well what I was implying, I said it accusingly, unable to bear it. Yui-san laughed.
+Aware of my own hypocrisy, I said it half-accusing anyway, unable to help myself, and Yui-san laughed.
 
-"I don't make long calls, do I?"
+"I don't stay on long calls, though."
 
-"Then why do they call?"
+"Then why do they even call you?"
 
-"Mostly to invite me out for drinks."
+"Mostly just invites to go drinking."
 
-Liar. I didn't say it, but I knew she was being invited home, not just out for drinks.
+Liar. I bit back the urge to point out she's not being invited drinking, she's being invited over.
 
-I know Yui-san has been leaving the house less often lately because I told her I didn't want her to go.
+I know the reason Yui-san's stopped going out as often lately is because I told her I didn't want her to go.
 
-Of course, that doesn't mean she stopped going out at night. There are nights when I find myself wondering if she's been doing that sort of thing with other girls.
+Of course, it's not like the nights out have stopped entirely, and there are still nights I catch myself wondering, suspicious, whether she's been with some girl.
 
-　I tried my best not to think about it. If I found out it was true, I had no confidence I wouldn't be hurt.
+I try, as much as I can, not to think about it. If I ever actually confirmed it was true, I don't have any confidence I wouldn't come away hurt.
 
-"...Before I came to live here, did you invite girls over?"
+"...Before I moved in, did you used to invite girls back to the house?"
 
-"Of course not. The only people who've ever been in this flat are Kanata and Ritsu."
+"No way. You and Ritsu are the only ones who've ever set foot in this place."
 
-Knowing that, it struck me as odd, even now.
+Learning that, it struck me as strange, a little late to be wondering.
 
-"...But seriously, Yui-san, why did you agree to this flat-sharing arrangement in the first place?"
+"...Actually, now that I think about it, why did you even agree to the roommate arrangement in the first place, Yui-san?"
 
-It was a simple question. Why would she, someone who rarely let people into her home, agree to share a flat with me, someone she'd never even met?
+It was a simple question. She's never someone who lets people close, into her space — so why had she agreed to share a home with someone she'd never even met?
 
-"Because she is the daughter of someone who looked after my father. There's no reason to refuse, is there?"
+"Because you're the daughter of someone my dad owed a lot to. No reason to say no."
 
-I see. So my father's past actions are what led to this. I really ought to thank him.
+I see. So it's thanks to whatever my father did, long ago, that things ended up this way. I really should thank him properly.
 
-"But honestly, I did wonder what to do at first. I knew sooner or later you'd realise I'm a lesbian, but it happened much sooner than I expected."
+"But honestly, at first I wondered what I'd gotten myself into. I figured you'd find out I was gay sooner or later, but it happened a lot faster than I expected."
 
-I reckon that's because you were partying rather wildly.
+That's probably because Yui-san was playing around so flagrantly, though.
 
-"...And you told me at first that you didn't just sleep around with anyone, but that was a lie too."
+"...At first you told me you weren't the type to make a move on just anyone. That turned out to be a lie too, didn't it."
 
-　When I pointed that out, Yui laughed awkwardly, trying to brush it off. Somehow, she'd ended up taking so much from me.
+Pointing that out, Yui-san laughed, deflecting. Somewhere along the way, so much has already been taken from me by Yui-san.
 
-And honestly, I'm surprised at myself for letting her get away with it.
+And honestly, I'm a little startled at myself, for how easily I've let all of it happen.
 
-When we first moved in together, I never imagined we'd become this close.
+Back when we first started living together, I never would have imagined the distance between us closing this much.
 
-"Well, it's all because you're so adorable, Kanata."
+"That's because you're too cute, Kanata. Can't be helped."
 
-"It's my fault?"
+"My fault?"
 
-"Yes, it's all your fault."
+"Yeah, your fault."
 
-I absolutely believe it's all Yui's fault. I know we'll never get anywhere blaming each other, but I simply can't help but hold her responsible.
+I'm absolutely convinced it's Yui-san's fault, personally. I know blaming each other back and forth won't get us anywhere, but I can't help holding her responsible too.
 
-I could never say it's your fault for being so irresistible, not even if my life depended on it.
+*You're the one who's this appealing, that's the problem* — not something I could ever bring myself to say out loud.
 
-"Honestly, I couldn't go back to a life without you."
+"I can't go back to a life without you anymore, Kanata."
 
-She gently kissed my cheek, and I accepted it. I too had grown far too accustomed to spending every day in your arms; I couldn't imagine living alone again.
+A gentle kiss pressed to my cheek, and I let myself accept it. I've gotten far too used, myself, to spending every day wrapped in her arms — I genuinely don't think I could go back to living alone anymore either.
 
-"Well then, shall we go back to England together at the end of the year? I'll show you around London."
+"Then, want to come back to England with me at year's end? I'll show you around London."
 
-Leaning her weight heavily against my back, Yui-san laughed.
+I leaned my full weight back against her, and Yui-san laughed.
 
-"That's just because you absolutely don't want to go home alone, isn't it? You said flying was boring and painful."
+"That's just because you don't want to fly home alone, isn't it. You said the flight's boring and awful."
 
-Caught out, I stuck out my tongue.
+Caught, I stuck my tongue out.
 
-"Let's forget about going home for now and plan our trip to Hakone? I want to eat black eggs."
+"Let's forget about going home for now and just plan Hakone, okay? I want to try the black eggs."
 
-"Are they tasty? Those?"
+"Are they good, those?"
 
-"I don't know if they're tasty, but apparently they extend your lifespan."
+"No idea if they're good, but apparently they add years to your life."
 
-"Ahaha, what's that? Really?"
+"Ahaha, what's that supposed to mean. Seriously?"
 
-I hadn't known that. Planning a trip is this much fun.
+I hadn't known that. Planning a trip is this fun, apparently.
 
-Ever since meeting Yui-san, it's been one new thing after another.
+Ever since meeting Yui-san, it's really been one new thing after another.
 
-I hope we can go to lots of places together while Yui-san is still a student. I want to see the town she grew up in, her favourite spots, and I want her to see the town I grew up in too.
+I hope we get to go all kinds of places together while she's still a student. I want to see the town she grew up in, the places she loves — and I want her to see where I grew up, too.
 
-　My finger danced across the tablet as my thoughts drifted to our potential destinations.
+Fingers gliding over the tablet, I let my thoughts drift toward wherever we might go.
 
-As we debated back and forth over accommodation options, we lost track of time. Before we knew it, the date had changed, and we'd completely forgotten about the messages waiting for us.
+Going back and forth, this way and that, researching places to stay, before I knew it the date had already changed, and I'd completely forgotten about the message waiting for me.
 
-In the end, I didn't manage to reply to Hayakawa-kun's message until the following morning.
+In the end, I didn't manage to reply to Hayakawa-kun until the next morning.

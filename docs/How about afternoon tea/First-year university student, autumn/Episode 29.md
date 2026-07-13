@@ -1,291 +1,297 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 9
 parent: First-year university student, autumn
 sequence: 29
-title: "Episode 29: Kissing Isn't My Only Talent, You Know"
+title: "Episode Twenty-Nine: Kissing Isn't the Only Thing I'm Good At, You Know"
 ---
-Chapter 29: Kissing Isn't My Only Talent, You Know
+## Episode Twenty-Nine: Kissing Isn't the Only Thing I'm Good At, You Know
 
-Alone in the silent changing room.
+\
+Alone in the hushed changing room.
 
-I noticed my own hands, undoing the neatly tied obi of my yukata, were trembling ever so slightly.
+I noticed my own hands trembling faintly as I untied the obi she'd tied so neatly for me.
 
-I was nervous — terribly so.
+Nervous — I was. Unbearably so.
 
-Yui-san had said she'd wait for me outside in the bath and left me behind rather promptly.
+Yui-san had said she'd wait outside in the bath first, and gone ahead without me.
 
-I recalled our exchange just minutes before.
+I replayed our exchange from a few minutes ago.
 
-"You absolutely mustn't do anything, you hear?"
+"You are absolutely not to do anything, understood?"
 
-She said it as if to emphasise, then smiled and nodded.
+I'd said it, driving the point home, and Yui-san had laughed and nodded.
 
-"I know. It'll be fine."
+"I know, I know. It's fine."
 
-She said that, but was it true?
+She'd said that, but was it really true?
 
-Even when we watched the fireworks, she'd broken our promise to do nothing and kissed me without a second thought. Could she really keep this promise to do nothing?
+Even at the fireworks, she'd broken her promise not to do anything and kissed me anyway — would she really keep this one?
 
-I asked my heart, which was beating so hard it was almost funny.
+I asked my own heart, pounding hard enough to be almost funny.
 
-　Why is it pounding so hard? If I didn't like it, I could just stop.
+Why is it racing like this. If I don't want to do this, I could just stop.
 
-Yui-san would never force me. She respects my opinion.
+Yui-san would never force me into anything. She always respects what I actually want.
 
-I know that, so why did I agree? I don't understand myself.
+I know that. So why did I agree to this in the first place? I didn't even understand myself anymore.
 
-　As I slipped out of my yukata and stood in my underwear, my heartbeat grew even more intense.
+Slipping out of the yukata and down to my underwear, my heartbeat only grew more frantic.
 
-Taking a deep breath, I reached behind me and undid my bra clasp. I slipped it off my arms and placed it gently in the basket.
+I took a deep breath, reached back, and unhooked my bra. Slid it off my arms and set it gently in the basket.
 
-The sight of her neatly folded clothes in the basket beside mine felt uncomfortably vivid.
+In the basket beside mine, her clothes sat neatly folded, and the sight of it felt oddly, viscerally real.
 
-What should I do? My heart is really pounding. This makes it seem like I'm expecting something to happen.
+What do I do, my heart's really racing. This is starting to feel like I'm actually expecting something to happen.
 
-　Anyway, I just need to keep a straight face. It's because I'm conscious of it that Yui-san finds it amusing and teases me.
+Just keep a composed face, that's all I need to do. It's exactly because I get flustered that Yui-san finds it fun to tease me.
 
-I slipped the underwear off both legs. Standing there with nothing against my bare skin made me feel uneasy and fidgety.
+I slid the underwear off both legs. With nothing at all covering bare skin, I felt exposed, restless.
 
-Steeling myself, I stepped forward and placed my hand on the door leading to the open-air bath. I peered through the slightly ajar gap.
+Steeling myself, I stepped forward and put my hand on the door leading to the open-air bath. Through the small gap I opened, I peeked through.
 
-　In the dim light, her silhouette, long black hair gathered up at the back, appeared faintly through the mist.
+In the dim light, her back, long black hair piled up on top of her head, was faintly visible through the rising steam.
 
-"Yui-san, I'm coming in now. Please close your eyes."
+"Yui-san, I'm coming in now, so close your eyes."
 
-"Eh? Close my eyes? The whole time?"
+"Eh, close my eyes? The whole time?"
 
-"Until I say it's alright."
+"Until I say it's okay."
 
-Cutting off her disgruntled words, I said that. When she replied, "Right," I felt reassured and slid my body through the door.
+I cut off her faintly displeased protest, and she answered, *got it*, so, relieved, I slid my body through the door.
 
-　Beyond the steam, Yui-san's white back came into view, and I moved my feet slowly, step by step.
+Beyond the steam, I could see Yui-san's pale back, and I inched forward, step by careful step.
 
-It's a bit nippy outside, so let's just get in already.
+It's a little chilly outside, so let's just get in quickly.
 
-Thank goodness it was milky white water. I was relieved not to be able to see Yui-san's body, submerged up to her chest.
+Thank goodness for the milky-white water. I was relieved not to be able to see Yui-san's body where it sat submerged to the chest.
 
-After rinsing myself, I dipped my toes into the bath. The enveloping warmth was just right, and I couldn't help but sigh.
+After rinsing off, I dipped my toes into the bath. Wrapped in a perfectly warm heat, a small sigh escaped me despite myself.
 
-"Hey, are you done yet?"
+"Hey, is it okay yet?"
 
-Yui-san said impatiently, so I hurriedly submerged myself up to my shoulders and turned my back.
+Yui-san said it, sounding impatient, so I hurried to submerge myself up to the shoulders and turned my back to her.
 
-"...Yes, I'm done."
+"...It's okay now."
 
-Knowing her gaze would definitely turn towards me if I opened my eyes, I curled up, hugging my knees. Then I heard a splash, and at the same moment, a white arm stretched out from behind me.
+Knowing full well that the moment she opened her eyes, her gaze would land right on me, I curled up small, hugging my knees, when I heard a small splash of water, and at the same moment, pale arms reached out from behind me.
 
-　Huh? Before I could react, she pulled me tight against her from behind. Yui-san, who’d been in the bath a little longer than me, was warm, her smooth body pressed close.
+Startled, before I could even process it, I was pulled into a tight embrace from behind. Yui-san's smooth body, warmed from soaking longer than me, pressed flush against my back.
 
-Something soft touched my back, and suddenly, it felt like all the blood in my body started boiling.
+Something soft touched my back, and my whole body felt like it was boiling over, blood rushing hot all at once.
 
-Wait, hold on. This is too sudden, I might freeze up.
+Wait, hold on. That was too sudden, I might actually freeze up.
 
-"Hey, why are you facing away? Turn towards me."
+"Hey, why are you facing away? Turn around."
 
-Her lips drew close to my ear, taking my breath away.
+Her lips, close to my ear, made me catch my breath.
 
-Hey, Yui-san, you're pressing against my back.
+*Hey, Yui-san, it's touching, my back* — I wanted to say it, but saying it would make it obvious I was hyperaware of it. I couldn't say it. Absolutely couldn't. We hug all the time as it is, and this was really no different except for the missing layer of fabric — so why was my heart racing this hard, with no sign of stopping?
 
-I wanted to say it, but saying it would make it obvious I was conscious of it. I couldn't say it. Absolutely couldn't. We hug all the time, it's just a single layer of fabric separating us, so why was my heart racing like this?
+"Why — because it's embarrassing."
 
-"Why? Because it's embarrassing."
+"The water's cloudy, you can't see anything. So show me your face, please."
 
-"The water's cloudy, I can't see a thing. So show me your face, please."
+Her hand caught my shoulder gently, guiding my body to turn.
 
-Her shoulders were gently grasped, urging me to turn around.
+Turned so easily, guided along, the line from her neck down to her collarbone that filled my vision was so beautiful I didn't know where to look, and in the end, I just looked back into her eyes.
 
-I turned as prompted, almost too easily. The line from her nape to her collarbone that flooded my vision was so breathtakingly beautiful that I hesitated over where to look. In the end, I found myself staring back into her eyes.
+Yui-san smiled, gentle.
 
-Yui-san smiled gently.
+Somehow, it felt like I was the only one whose heart was racing, tense like this. Yui-san looked so composed, and that irritated me, just a little.
 
-Somehow, it seemed like I was the only one feeling flustered and nervous. Yui-san looked perfectly composed, and that was a bit infuriating.
-
-As I was thinking that, Yui-san's arm gently drew my body closer from the front.
+Thinking that, Yui-san's arms drew my body in close, from the front, gently.
 
 "Your face is red. Cute."
 
-"Yui-san, just a moment..."
+"Yui-san, hold on a sec..."
 
-　I start to protest that embracing naked clearly goes beyond the bounds of senior and junior, but swallow the words.
+I meant to protest — holding each other naked like this was surely well past whatever "senior and junior" was supposed to cover — but the words caught in my throat.
 
-The bare skin pressed together, without a single gap, feels so incredibly good I lose my voice.
+Pressed together, bare skin against bare skin with no gap between us, it felt too good, and I lost the words entirely.
 
-I never knew a woman's uniquely smooth, soft skin could feel this good.
+I hadn't known that a woman's uniquely smooth, soft skin could feel this good against my own.
 
-I don't want to think about it, but I think I understand just a little why Yui-san wants to have sex with girls.
+I didn't want to think it, but I felt like I finally, faintly, understood why Yui-san wanted to sleep with girls.
 
-　Resistance was probably futile now. Resigned, I quietly rested my head on her shoulder. Wrapping my arms around her back, I pulled her close.
+*
 
-What should I do? It’s so warm and incredibly pleasant. I want to stay like this forever.
+There's probably no point resisting anymore. Giving up, I let myself rest my head obediently on her shoulder. I wrapped my arms around her back and hugged her tight.
 
-My heart kept pounding. Though nervous, somehow just being held by Yui-san made all the tension drain from my body.
+What do I do, she's so warm, it feels so good. I want to stay like this forever.
 
-"Hehe..."
+My heart wouldn't stop pounding. I was tense, and yet, somehow, just being held by Yui-san was enough to drain all the strength from my body.
 
-Then I heard her laugh softly in my ear.
+"Heh..."
+
+A soft laugh sounded right by my ear.
 
 "Why are you laughing?"
 
-"Because you're quieter than usual. Are you nervous? You're cute."
+"Because you're quieter than usual. Are you nervous? Cute."
 
-It'd be unreasonable to expect me not to be nervous in this situation. Whose fault do you think it is?
+Asking me not to be nervous, in a situation like this — that's asking the impossible. And whose fault does she think that is.
 
-She gently stroked my cheek, and the sensation of her fingertips felt so good I closed my eyes.
+Gently stroked on the cheek, her fingertip felt so good that I closed my eyes.
 
-"Yui-san, why are you so calm...? Am I really that unattractive? My breasts aren't even that big..."
+"Yui-san, why are you so composed about this... I really don't have any appeal, do I? My chest isn't even that big..."
 
-Objectively speaking, I think my body is average. I don't know what kind of figure Yui-san prefers, but I have no confidence in my own body.
+Even objectively, I think my body's pretty ordinary. I don't know what body type Yui-san actually prefers, but I have zero confidence in my own.
 
-In fact, the reason my ex-boyfriend cheated on me and dumped me was because of my body. A body that can't feel pleasure during sex, that's insensitive, couldn't possibly be attractive.
+Honestly, the reason my ex cheated and dumped me traces back to my body too. A body that's frigid, that can't feel good during sex — there's no way something like that holds any appeal.
 
 "...Kanata. Give me your hand."
 
-She took the arm I'd had around her back, and with a splash, lifted my hand out of the bath. Where she pulled me towards was the expanse of Yui-san's pure white chest.
+The arm I'd wrapped around her back was taken, lifted from the bathwater with a small splash. Pulled toward — Yui-san's own bare chest.
 
-Glancing sideways at my startled expression, she pressed her palm against my heart.
+While I sat there, startled, my palm was pressed flat against the spot right over her heart.
 
-The beat I felt was slightly faster than mine. I found myself looking into Yui-san's eyes.
+The heartbeat that reached me was racing, just as fast as mine. I found myself staring straight into her eyes without meaning to.
 
-"I'm nervous too. My heart's pounding like crazy."
+"I'm nervous too. My heart's pounding, so much."
 
-"Sure it's not the alcohol?"
+"...Not because of the alcohol?"
 
-Hadn't she been drinking earlier? Wasn't that why her heart was racing?
+She'd been drinking earlier — wasn't that just raising her heart rate on its own?
 
-She's used to seeing women naked, yet she genuinely gets flustered over seeing me?
+Someone this used to seeing women naked — could my body really make her heart race like this?
 
-"You're so suspicious."
+"So suspicious."
 
-Yui laughed as she said it, but I thought it was her fault for making me feel that way. Quite seriously.
+Yui-san said it, laughing, but I genuinely, more than half-seriously, think it's her own fault for making me think that way.
 
-"Well then, make my heart race even more."
+"Then, let me make it race even harder."
 
-Her face drew closer abruptly, so I hastily pressed my palm against her lips to stop her.
+Her face closed in, and, flustered, I pressed my palm flat against her lips to stop her.
 
-"...Kanata, your hand... it's in the way."
+"...Kanata, your hand's in the way."
 
-"Wh-why were you trying to kiss me?"
+"W-why are you trying to kiss me..."
 
-"If you put your hand over my heart, you'd understand. How much I'm racing for you. You want to know, don't you?"
+"You can feel it, can't you, with your hand on my heart. How much you make it race. You want to know, don't you?"
 
-　Her palm was removed from my lips and gently returned to my heart.
+The hand holding her lips back was pulled away, and gently guided back to rest over her heart instead.
 
 "Um, Yui-san..."
 
-My voice trembled slightly as I called her name. Before I could come up with another excuse to refuse the kiss, her lips silenced my words. I saw the fire ignite in Yui-san's eyes.
+Her name came out of me, my voice shaking, just slightly. Before I could produce any further excuse to refuse the kiss, her lips took the words from me instead, and I saw fire kindle in her eyes.
 
-That gaze sent a shiver down my spine.
+That look sent a shiver down my spine.
 
-　After several brief touches of a kiss, she licked my lips. I knew what that signalled, but in a last-ditch resistance, I kept my mouth shut and resisted.
+After a few light, repeated kisses, her tongue traced slowly over my lip. I understood exactly what that was a signal for, and, in what little resistance I had left, kept my mouth shut against it.
 
 "...Open your mouth."
 
-Hearing her say it clearly, I realised I was already obeying. As if it were the most natural thing, my body was at her mercy.
+Said so plainly, and before I knew it, I was already obeying. As if it were simply natural, my body had become entirely hers to command.
 
-　Oh dear, I'd realised something terrible. If Yui-san ordered me like this, I might not be able to resist anything she said.
+What do I do, I'd just realized something terrible. If Yui-san ordered me like that, right now, I might not be able to refuse her anything at all.
 
-A soft tongue slipped into my mouth. She held me tight as my body tried to escape, and when her tongue tangled with mine, breathing became unbearably difficult.
+Her soft tongue slipped into my mouth. My body, trying instinctively to pull away, was held fast in a tight embrace, and once our tongues tangled together, breathing finally became difficult.
 
-"Mmm, mmm…"
+"Mm, mm..."
 
-My head was spinning, growing hazy. The sweet taste of our tongues brushing together felt so good. All the strength drained from my body, leaving me limp and floppy.
+My head spun, hazy. Our tongues sliding against each other felt sweet, felt good. The strength drained out of my body, soft and boneless.
 
-The sensual sound of our kiss echoed, making my head feel even more daft.
+The slick, intimate sound of the kiss echoed, making my head even more foolish than it already was.
 
-Her mischievous fingertips slowly traced each vertebra down my spine, stroking my back. I couldn't help it — my body twitched and trembled.
+Her mischievous fingertips traced slowly down each vertebra of my spine, stroking down my back, and my body trembled, helpless, twitching under her touch.
 
-　My own heartbeat was too loud; I had no room to spare for Yui-san's heartbeat.
+My own heartbeat was too loud in my ears for me to spare any attention to hers anymore.
 
-What should I do? It feels good... maybe. I'd never felt this way about a kiss before.
+What do I do, this feels — good, maybe. I'd never once felt this way from a kiss before, not once, in all this time.
 
-　It was the first time I'd ever thought, I want more.
+This was the first time I'd ever wanted more.
 
-After her fingertips traced my back, then moved across my side, and the moment she stroked from my waist to my thigh, my body shook so violently I pulled away from her lips as if exploding.
+Her fingertips traced down my back, over my side, and the moment they brushed from my hip down my thigh, my body shuddered, and I broke the kiss with a startled gasp.
 
-Even when I tried to push her shoulders away, releasing my hands from her chest, the arm around my waist pulled me back. I wasn't allowed to pull away.
+I let go of her chest and tried to push at her shoulder, but the arm around my waist pulled my body back in. I wasn't allowed to put any distance between us.
 
-　Her tongue gently traced my neck, then suddenly sucked hard, making me gasp and cover my mouth with my hand.
+*
 
-"...Can you feel my heart pounding?"
+She kissed softly along my neck, then, suddenly, sucked hard, and a strange sound nearly escaped me — I clapped a hand over my own mouth to stop it.
 
-Her pulse beat faintly against my skin. But mine was racing so wildly, I couldn't tell whose heartbeat was whose anymore.
+"...Did you feel it? How hard my heart's racing?"
 
-My knees felt like jelly. I couldn't take it anymore. I surrendered. I waved the white flag and let my weight fall onto Yui-san.
+Through our pressed-together bodies, I could faintly feel her heartbeat, thudding. But my own was pounding so absurdly hard I could no longer tell which beat belonged to which of us.
 
-"I don't know anymore, I'm going to die from this pounding..."
+My legs felt like they might give out entirely. No more, I give up. Waving the white flag, I let my full weight sink against her.
 
-I rested my cheek on her shoulder. Please forgive me. I won't doubt you anymore. I could feel Yui-san's laughter through our touching skin.
+"I don't even understand anymore, I'm so dizzy I might actually die from this..."
 
-"...Yui-san, you absolutely love kissing, don't you?"
+I rested my cheek against her shoulder. Please, enough. I won't doubt you anymore. I could feel, through where our skin touched, that she was smiling.
 
-When I pointed it out, Yui-san laughed oddly.
+"...Yui-san, you definitely just love kissing, don't you."
 
-"Why'd you think that?"
+I pointed it out, and Yui-san laughed, amused.
 
-"Because you're good at kissing... It's weird, it feels so good, it's strange."
+"What makes you say that?"
 
-My true feelings slipped out, and when Yui burst out laughing, ahaha, I realised I'd said too much. But it was too late. Words spoken once couldn't be taken back.
+"Because you're so good at it... It's strange, feeling this good is strange."
 
-"Did you like it? So you like kissing too, Kanata?"
+The honest truth slipped out before I could catch it, and Yui-san burst out laughing, and only then did I realize what a mistake that had been to say. But it was too late. Once said, words can't be taken back.
 
-　She traced her lips softly with her thumb, smiling defiantly.
+"Did it feel good? Guess you like kissing too, Kanata."
 
-"...Kissing isn't the only thing I'm good at, you know. If you'll let me, I could show you things that feel even better."
+She traced my lips gently with her thumb, smiling, bold.
 
-I heard a devilish whisper. Or rather, she was already a devil, this person.\
-Naked, embracing, kissing, hearing such an invitation... could any woman resist?
+"...Kissing isn't the only thing I'm good at, you know. If you'll let me, I can show you things that feel even better."
 
-"...So this is how you seduce girls, Yui-san? Just playing around?"
+A devilish whisper. Or rather, this woman really is a devil, full stop.\
+Held naked, kissed like that, whispered a line like that — is there any woman alive who wouldn't fall for it?
 
-"Hardly. If it were just play, I wouldn't go about it so roundabout."
+"...So this is how you seduce girls, isn't it, Yui-san, this is what you do when you play around."
 
-If it's not play, then what is it? Before I could ask, mischievous fingertips gently traced up my thigh, and I hurriedly pushed her shoulder away.
+"No way. If it were just playing, I wouldn't go through this much trouble."
 
-No, no, I won't let myself be swept away. Absolutely not.
+If it's not playing, then what is it? Before I could ask, her mischievous fingers traced slowly up my thigh, and, panicked, I pushed at her shoulder.
 
-"Yui-san, I... I feel like I'm going to faint..."
+No, no. I won't be swept along. Absolutely not.
 
-The moment I said it, her fingers stopped dead.
+"Yui-san, I think I'm actually about to pass out from the heat..."
 
-"...No?"
+The moment I said it, her fingers went perfectly still.
 
-Her deep black eyes fixed on me.
+"...No good?"
 
-Ah, how blissful it would be to fall asleep in her arms. If only I could just give in.
+Deep black eyes stared straight into me.
 
-But if I did, I'd surely face hell.
+Ah — how happy I'd be, falling asleep in this person's arms. If only I could just let myself be swept along.
 
-　If I let her hold me even once, I’d never forgive her for holding another woman.
+But if I did that, I think I'd end up looking straight into hell.
 
-Then I’d become the sort of woman Yui-san dislikes – a troublesome woman.
+I'm certain that once I let her have me, even a single time, I'd never be able to forgive her sleeping with another woman again.
 
-That’s the one thing I must avoid.
+And that would make me, exactly, the kind of "high-maintenance woman" Yui-san doesn't want.
 
-Because even if I gave her my body, Yui-san wouldn’t become mine alone.
+That's the one thing I have to avoid.
 
-"...No."
+Because even if I gave her my body, that wouldn't make Yui-san mine, and mine alone.
 
-The words I somehow squeezed out might have trembled pitifully.
+"...No good."
 
-　With a slight sigh of disappointment, Yui-san murmured, "What a shame."
+Whatever I managed to force out probably came out shaking, unattractively.
 
-"All right... We'll continue this another time."
+Faintly disappointed, she let out a small breath and murmured, *too bad.*
+
+"Got it... we'll continue another time."
 
 Her gentle lips pressed against my cheek.
 
-It was probably only a matter of time before I gave in to her.
+*
 
-Because Yui-san treats me so kindly, just like a lover would.
+It's probably only a matter of time before I end up accepting her completely.
 
-Don't look at me with such adoring eyes.
+Because Yui-san keeps being this kind to me, like an actual lover would.
 
-When you have no intention of making me your lover.
+Please don't look at me with eyes that fond.
 
-Falling for someone who won't return my feelings is too painful. That's why I can never bring myself to tell you I like you.
+Even though you have no intention of ever making me your girlfriend.
 
-It's unfair. You say you like me, yet your body craves me, so why don't you want my heart?
+Falling for someone who you already know will never turn around and look back at you properly is too painful. That's exactly why I still can't tell you, even now, that I love you.
 
-　It's because you keep acting so ambiguous. Because you make me choose everything.
+It's unfair. You say you like me, and your body reaches for me too — so why don't you ever want my heart?
 
-So I find myself wishing you'd just take everything from me.
+It's because you keep holding yourself at that same vague, undefined distance. Because you keep leaving every choice up to me.
+
+That's exactly why I find myself thinking, half-desperate — I wish you'd just take everything from me, all of it, whether I want you to or not.

@@ -1,292 +1,303 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 11
 parent: First-year university student, autumn
 sequence: 31
-title: 'Episode 31: Yui-san, Do As You Please'
+title: "Episode Thirty-One: Do Whatever You Want With Me, Yui-san"
 ---
-Episode 31: Yui-san, Do As You Please
+## Episode Thirty-One: Do Whatever You Want With Me, Yui-san
 
-My first trip with Yui-san became an unforgettable experience in so many ways.
+\
+Our first trip together turned into an unforgettable experience, in more ways than one.
 
-This journey taught me something.
+There's something I understood, from this trip.
 
-That scenery shared with someone special is truly wonderful and leaves a powerful impression.
+Scenery shared with someone special leaves an impression far stronger, far more vivid, than it has any right to.
 
-That a single embrace can make you feel like you're soaring to heaven.
+That a single embrace can be enough to lift you straight up toward heaven.
 
-And that I feel this way because I like her.
+And that feeling that way, all of it, is because I love her.
 
-　Truthfully, I'd known all along. I'd just been pretending not to realise.
+Honestly, I'd known for a while. I'd just kept pretending not to.
 
-Once I admitted it, it felt like a weight had lifted from my shoulders.
+Once I finally admitted it, something in me eased, like a weight lifting off my shoulders.
 
-All the restlessness, all the frustration – it's all because I like Yui-san.
+Every restless, aching, irritated feeling — all of it, every last bit, because I love Yui-san.
 
-I thought it was a sweet yet bittersweet love, like dark chocolate.
+A love like sweet, faintly bitter chocolate, I thought.
 
 ＊＊＊
 
-　The day after returning from the trip. I messaged Ritsu-san saying I'd bought souvenirs, and she came to pick them up at my part-time job.
+The day after we got back from the trip. I messaged Ritsu-san to say I'd brought back a souvenir, and she came by my part-time job to pick it up.
 
-"Here, these are souvenirs."
+"Here, this is for you. A souvenir."
 
-I slipped the Hakone souvenir I'd stashed under the counter — so she wouldn't be seen eating cake by other customers — into her hands.
+While she was busy with a mouthful of cake, I slipped the Hakone souvenir I'd hidden under the counter into her hands, careful not to let the other customers notice.
 
-"Ooh, thanks! Definitely the right call asking Kanata-chan instead of Yui!"
+"Ooh, thanks! Guess it really was the right call asking you instead of Yui."
 
-"I only bought enough for you to finish, as it doesn't keep well. You shouldn't eat too much either."
+"They don't keep well, so I only bought as much as we could actually finish. Eating too many isn't good for you either, you know."
 
-"You can never have too much of something blessed. My old granny back home said so, so it must be true."
+"Something with actual blessings attached, you can never have too much of. My grandma back home always said so, so it's got to be true."
 
-Seeing Ritsu-san beam like that, I couldn't help but smile too.
+Ritsu-san said it with a bright grin, and I couldn't help smiling back, easy.
 
-Ritsu-san has grown quite fond of my part-time job's café and started dropping by often.
+Ritsu-san had thoroughly taken a liking to the café I work at, and started dropping by regularly.
 
-She's probably my most frequent customer among my acquaintances. Yui-san mostly gets picked up and never comes inside the shop.
+Probably the most frequent regular among everyone I know, honestly. Yui-san mostly just picks me up outside and never actually comes in.
 
 "So? How was Hakone?"
 
-"It was really enjoyable. The hot springs were lovely, and Owakudani was amazing. The mountain railway uses switchbacks like this to climb the slope."
+"So much fun. The hot spring was great, and Owakudani was incredible too. The mountain railway does this thing called a switchback, going back and forth to climb the slope..."
 
-I explained with hand gestures, but Ritsu-san just tilted her head, looking puzzled.
+I demonstrated with hand gestures, back and forth, but Ritsu-san just tilted her head, blank.
 
 "Switchback? What's that?"
 
-It seemed Ritsu-san wasn't particularly interested in railways.
+Apparently Ritsu-san has zero interest in trains.
 
-Of course, I wasn't an expert either; I'd only learnt about it because Yui-san had told me.
+Not that I'm any kind of expert either — I only knew because Yui-san had explained it to me.
 
-"...Anyway, you should go with Yuri sometime. It was really lovely."
+"...Anyway, you should go with Yuuri sometime. It was really wonderful."
 
-Giving up on explaining, Ritsu-san smiled and said, "That sounds nice."
+Giving up on the explanation, Ritsu-san laughed, *maybe I will.*
 
-"So, about that. I've been wondering... how was the evening?"
+"So, anyway. I've been dying to ask — how was the night?"
 
-"Eh...? Last night?"
+"Huh...? The, um, night?"
 
-Asked so abruptly, I let out an involuntary, utterly ridiculous gasp.
+Caught off guard by the sudden question, an embarrassingly high-pitched sound escaped me.
 
-"So it was as rumoured? She was good? That girl?"
+"So, was it good, just like the rumors say? With her?"
 
-"W-wait, I'll ask, but what exactly do you mean by 'good'..."
+"I-I mean, I'll humor you, but good at what, exactly..."
 
-"No, I mean, sex..."
+"You know, se—"
 
-"R-Ritsu-san! What are you saying?! I don't know anything about that sort of thing!"
+"R-Ritsu-san?! What are you talking about, I don't know anything about that!"
 
-　My face flushed bright red as I shook my head vigorously. Then Ritsu grinned and pointed at her own neck.
+Face burning red, I shook my head hard, side to side. At that, Ritsu-san grinned, wide, and pointed at her own neck.
 
-"You're lying. I can see it."
+"Liar. It's showing, you know."
 
-"Liar!"
+"No way!"
 
-Realising she'd pointed out the hickey, I frantically covered my neck. I'd covered it with concealer, but had it rubbed off on my collar? What to do?
+Realizing she meant the hickey, I clapped a hand over my neck in a panic. I'd covered it with concealer — had it rubbed off against my collar without me noticing? What do I do.
 
-　Then Ritsu burst out laughing.
+Ritsu-san burst out cackling.
 
-"You did it after all, didn't you? Got caught? A hickey."
+"Knew it. So something did happen? You got marked up?"
 
-Only then did I realise I'd been set up.
+Only then did I realize I'd been baited.
 
-"No, it's not that! This is Yui's prank, I swear nothing... nothing happened...!"
+"That's not — that was just Yui-san being mischievous, nothing actually... nothing actually happened, I swear...!"
 
-"Bullshit... Eh, really? Nothing happened?　Even though you were in the same room all night? That Yui didn't make a move? Is that even possible?"
+"Nooo way... wait, seriously nothing happened? A whole night in the same room? Yui not making a move — is that even possible?"
 
-It wasn't that nothing happened. In fact, she tried to do quite a lot. If I hadn't clearly said no back then, I might have ended up having a very different kind of night.
+It's not that nothing happened. If anything, plenty had almost happened. If I hadn't clearly said no, right then, that night might have gone very differently.
 
-But now, I'd heard something I couldn't just let slide.
+But something she'd just said caught my attention, and I couldn't just let it slide.
 
-"Um, by the way... about that rumour that she's good at it... did the girls say that?"
+"Um, by the way — 'just like the rumors say, good at it' — is that something the other girls actually say?"
 
-I stare intently at Ritsu, careful not to let her see the flames of jealousy burning fiercely deep within my chest.
+I stared steadily at Ritsu-san, careful not to let the jealousy flaring hot in my chest show on my face.
 
-"Ah... no, sorry. That was a slip of the tongue. Forget what I just said."
+"Ah... no, sorry. That was a slip. Forget I said it."
 
-I feel a slight pang of irritation at Ritsu, whose eyes dart around conspicuously. No matter what, this girl is always on Yui's side, one way or another.
+Watching her gaze skitter away so obviously, I felt a small flash of irritation. No matter what, this person always ends up on Yui-san's side, one way or another.
 
-"It's fine, really. I know what kind of person Yui is. She doesn't even have a girlfriend, just leads girls on for fun. She's got the worst reputation with women."
+"It's fine, really. I already know exactly what kind of person Yui-san is. Never dates anyone, plays around charming girls, terrible track record with women."
 
-The amazing thing about Yui-san is that she makes up for that flaw with her overwhelming charm.
+Though it's kind of impressive, honestly, how she makes up for that flaw with an overwhelming surplus of charm.
 
-"Ah... well, yeah, that's true. But I think Yui's been putting in a lot of effort lately, don't you? She's really calmed down compared to before. I reckon it's all for Kanata-chan's sake."
+"Ah... well, yeah, that's true, but. Lately I think Yui's actually been trying pretty hard, you know? She's really calmed down compared to before. I kind of think it's all for your sake, Kanata-chan."
 
-"But doesn't she still sneak the occasional bite?"
+"But she still sneaks the occasional snack on the side sometimes, doesn't she?"
 
-When I pointed it out, Ritsu scratched her cheek awkwardly. See? I knew it. There's no way Ritsu, who drinks with her all the time, wouldn't know about it.
+I pointed it out, and Ritsu-san scratched her cheek, awkward. There it is — she goes out drinking with Yui-san all the time, there's no way she wouldn't know.
 
-"Hmm... But if you don't like it, I think you should say so clearly. The Yui we know now would probably listen to what Kanata-chan says, wouldn't she?"
+"Mm... but honestly, if you don't like it, I think you should just say so, clearly. Yui the way she is now would probably actually listen to you, don't you think?"
 
-"I didn't... say I didn't like it."
+"I never said... I don't like it..."
 
-I do dislike it. I want to say it. But I know full well I have no right to say it.
+I do dislike it. I want to say so. But I know full well I don't have the right to say it.
 
-If she were the kind of person with a heart broad enough to love me completely, flaws and all, then maybe it would be fine. But I'm not that kind of person yet.
+If I were generous enough, big-hearted enough to love even that part of her whole, maybe it'd be fine — but I'm not that finished a person yet.
 
-I want to believe there's no lie in her words when she said she'd talk about it someday.
+*I'll tell you properly someday* — I want to believe that promise wasn't a lie.
 
-So, since Yui-san said that, I didn't want to be the one to put pressure on her.
+So, since that's what Yui-san said, the one thing I didn't want to do was pile on any pressure of my own.
 
-I don't want her to think I'm a pain. I've finally realised I like her, and I don't want her to dislike me.
+I don't want her thinking I'm a hassle. Now that I've finally admitted I love her, I don't want her to end up hating me.
 
-　But given my impatient nature, if I catch another glimpse of another woman next time, I can't promise I won't give Yui a proper telling-off.
+Though, given how bad I am at just letting things go, I don't have much confidence that if I ever catch wind of another woman's shadow again, I'd manage not to lash out at her, hard.
 
-"How devoted," Ritsu sighs.\
-I don't know if it's devotion, but I reckon this is the best I can manage right now.
+"You're really something, aren't you."
 
-After finishing closing duties, I leave the shop through the back door. It's turned rather chilly. Winter was already knocking at the door.
+Ritsu-san said it, sighing. I don't know if "something" is the right word, but I think this is the absolute most I can manage, right now.
 
-The seasons cycle like this, passing in the blink of an eye.
+*
 
-Yui-san couldn't pick me up today, so I had to walk home alone. I pulled my coat collar up and started walking towards the station.
+Finishing up closing duties, I stepped out the back door. It had gotten noticeably chillier. Winter was closing in fast.
 
-"Aosawa!"
+The seasons just keep turning like this, slipping past in the blink of an eye.
 
-Hearing my name from behind, I turned to find Hayakawa-kun grabbing my hand.
+Yui-san couldn't come pick me up today, so I'd need to walk home alone. Pulling my coat collar in close, I started toward the station.
 
-"Isn't your senior picking you up today? I'll walk you home."
+"Aozawa!"
 
-　Hayakawa-kun's cheerful smile made my heart ache. If only I'd refused sooner, like Yui-san told me to.
+Called from behind, I turned to find Hayakawa-kun catching my hand.
 
-Winter is almost here. Keeping things ambiguous like this, continuing to take up his time, surely isn't true kindness.
+"Your senior's not picking you up today? I'll walk you home."
+
+Seeing him smile, so pleased, something in my chest ached, sharp. I should have just turned him down sooner, like Yui-san told me to.
+
+Winter's practically here already. Keeping things this vague, continuing to eat up his time like this — that's not real kindness, not really.
 
 "...Just to the station is fine."
 
-Hayakawa-kun's expression stiffened, as if he sensed something.
+Sensing something, Hayakawa-kun's expression stiffened.
 
-　I understand now how frightening it is to have affection rejected. And I can see now just how cruel I've been to him all this time.
+Being turned down when you have feelings for someone is scary — I understand that now. And I understand, too, now, just how cruel I've been to him, this whole time.
 
 "There's something I need to tell you, Hayakawa-kun."
 
-"Eh, yeah... what is it?"
+"Eh, y-yeah... what is it?"
 
-We walked together to the station. The headlights of passing cars repeatedly illuminated his anxious profile before fading away.
+We walked together toward the station. Passing car headlights lit his uneasy profile, again and again, and faded.
 
 "Hayakawa-kun... do you still like me?"
 
-Asking so directly, I could tell he swallowed hard.
+Asked straight out, I could tell he swallowed, hard.
 
-"...Yeah, I do."
+"...Yeah. I do."
 
 "...I see."
 
-His reply left me disheartened. How much better it would have been if he'd said he didn't like me anymore.
+The answer that came back left me disheartened. If only he'd said he didn't like me anymore.
 
-"You said I didn't have to give you an answer to my confession yet. But I thought keeping quiet wasn't right either."
+"You said I didn't need to answer your confession yet. But I don't think staying silent was really fair to you either."
 
-　As the station lights came into view, Hayakawa-kun stopped walking. I turned to face him.
+Just as the station lights came into view, Hayakawa-kun's steps stopped. I turned back to face him too.
 
-"Do I really have to hear it?"
+"Do I really have to hear this?"
 
-"Please do."
+"Please, listen."
 
-"Right... Yeah, I suppose so, Aosawa. You're cute, after all. You should have a boyfriend soon..."
+"I figured... yeah, that's fair. You're cute, Aozawa. A boyfriend, you'd have one in no time..."
 
-Hearing that, I shook my head from side to side.
+Hearing that, I shook my head, side to side.
 
-"I don't have a boyfriend. But... there is someone I like. So, I can't return your feelings, Hayakawa-kun."
+"I don't have a boyfriend. But... there's someone I love. So I can't return your feelings, Hayakawa-kun."
 
-Ah, it's painful, I think. Seeing Hayakawa-kun shrink away makes me feel suffocated, as if I'm seeing myself in him.
+Ah, this hurts, I thought. Watching him shrink, small, I felt it overlap painfully with myself.
 
-Love is painful. If feelings are reciprocated, it brings happiness, but if not, it becomes a blade that gouges at the heart.
+Love is painful. When it's mutual, it's happiness, but when it isn't, it becomes a blade carving straight through the heart instead.
 
-"...What kind of person does Aosawa like?"
+"...What's this person you love like?"
 
-"Someone very kind, but also a bit sly."
+"Really kind, but a little unfair, too."
 
-Saying this, Hayakawa-kun gave a self-deprecating laugh.
+I said it, and Hayakawa-kun laughed, self-deprecating.
 
-"Why don't you just go out with them?"
+"Why aren't you together, then?"
 
-"...Because they have no intention of being in a relationship."
+"...Because they have no intention of ever dating anyone."
 
-"Why do you like someone like that? I'd treat you much better..."
+"Why would you fall for someone like that. I'd treasure you so much more..."
 
-He turned back to me, his tone accusatory.
+He turned to face me straight on, his voice edged with something almost accusatory.
 
-I wonder... Hayakawa-kun would certainly treat me well too, but surpassing Yui-san would be rather difficult, I think.
+I don't know. Hayakawa-kun probably really would treasure me too, but I don't think that's something easily measured against Yui-san.
 
-"I don't know why. ...But I do. It's beyond help. It's not logical."
+"Why, huh. ...But I love her. Hopelessly. It's not something logic can explain."
 
-When I stated it plainly, Hayakawa-kun bit his lip in frustration.
+I said it plainly, and Hayakawa-kun bit down on his lip, frustrated.
 
-"...I see. I understand. Thank you for telling me."
+"...I see, got it. Thanks for telling me."
 
-Hayakawa-kun is a good person. If I hadn't met Yui-san, there might well have been a future where I dated him.
+Hayakawa-kun really is a good person. If I'd never met Yui-san, maybe there really could have been a future where I dated him.
 
 But I did meet Yui-san.
 
-　Because I've discovered this intense feeling that burns my chest so fiercely, it makes me think everything I thought was love before was fake.
+I've come to know a feeling burning in my chest so intensely that everything I ever thought was love, before this, feels almost fake by comparison.
 
-There's no going back now.
+There's no turning back now.
 
-I don't care if it's a quagmire. Even if it's a love that leaves me crying, screaming, and covered in wounds.
+Even if it's a swamp I sink into. Even if it's a love that leaves me crying, screaming, covered in wounds.
 
-I parted ways with Hayakawa-kun at the station. Rocked by the train, I head home for two stops.
+I parted ways with Hayakawa-kun at the station. Two stops on the train, swaying, heading home.
 
-For some reason, I suddenly feel an overwhelming urge to see Yui-san. Maybe it's because I said I liked her, but my feelings are accelerating rapidly.
+For some reason, I suddenly wanted, badly, to see Yui-san. Maybe putting the feeling into words out loud had only accelerated it further.
 
-　She probably wasn't home yet, but if she was definitely coming back, I could wait for her forever.
+She probably wasn't home yet. But as long as she'd genuinely come home to me, I felt like I could wait for her forever, however long it took.
 
-Lying sprawled on the sofa, waiting for Yui-san to return, I heard the front door open.
+*
 
-I threw myself at her as she opened the living room door, her beloved sweet perfume tickling my chest.
+Sprawled on the sofa, waiting for her, I heard the front door open.
 
-"Yui-san, welcome home."
+I threw myself at her the moment she opened the living room door, and that sweet, beloved perfume of hers tickled at my chest.
 
-"I'm home, Kanata. What's this? You're greeting me today?"
+"Welcome home, Yui-san."
 
-Yui-san smiled happily. She pressed her lips to my eyelids, then my cheeks, and I hugged her tightly.
+"I'm home, Kanata. What's this, you're actually greeting me at the door today?"
 
-"Sorry I couldn't pick you up."
+Yui-san laughed, pleased. Her lips brushed my eyelid, then my cheek, one after another, and I hugged her back, tight.
 
-I shook my head. "No." I stared intently at her lips, wanting a kiss. Yui-san smiled softly and peered into my face.
+"Sorry I couldn't come pick you up."
 
-"...You're being rather clingy today. Something happen?"
+I shook my head — no. Wanting a kiss, I stared straight at her lips, and Yui-san let out a small laugh, peering into my face.
 
-"...Is it wrong to be clingy when nothing's wrong?"
+"...You're extra clingy today. Did something happen?"
 
-Even I have nights when I feel like being clingy, when things pile up.\
-Because you spoil me, I seem to have become addicted to that kindness.
+"...Is it not allowed to be clingy even if nothing happened?"
 
-"...No, it's not. You can be as clingy as you like. Fancy something to drink? I'll make you anything."
+There are nights, even for me, when a lot happens and I just want to be spoiled.\
+You're the one who spoils me, so somewhere along the way I've turned into an addict for your kindness.
 
-"...Hot milk would be nice. With honey. But before that... kiss me."
+"...No, it's allowed. Be as clingy as you want. Want something to drink? I'll make you anything."
 
-Yui-san's eyes widened slightly, looking a little surprised. I wondered if she'd meant it when she said I could be clingy, but then she smiled, took my chin, and lifted my gaze.
+"...Hot milk. With honey. But before that... kiss me."
 
-　Her deep black eyes met mine directly.
+Yui-san's eyes went round, faintly startled. Had I overstepped, even after she said it was fine? I watched her, worried, and Yui-san laughed, taking my chin gently to tilt my gaze up.
 
-"...All right. What sort of kiss would you like?"
+Caught, straight on, in those deep black eyes.
 
-Making me say that. I averted my gaze, and Yui chuckled softly.
+"...Okay. What kind of kiss do you want?"
 
-"Why are you asking that? You never ask, you just do as you please."
+Making me actually say it. My eyes wandered, and Yui-san laughed, soft.
 
-"Hmm, well, because I want to do what you want me to do. I'd like you to tell me."
+"Why are you even asking? You never ask, you always just do whatever you want, usually."
 
-Yui-san is quite mischievous. Her thumb gently traced my lips. Just that alone made me imagine what would come next. I already knew how wonderful kissing her felt.
+"Hmm, well, I want to give you exactly what you want. Tell me."
 
-"...Do as you please, Yui-san."
+Yui-san can be pretty mean, sometimes. Her thumb traced gently along my lips. Just that alone was enough to make me imagine everything that might come after. I already know, by now, exactly how good kissing her feels.
 
-When I said that in a small voice, Yui-san burst out laughing.
+"...Do whatever you want with me, Yui-san."
 
-"Alright, I'll do as I please. But no complaining, you hear?"
+I said it, small, and Yui-san burst out laughing.
 
-She pushed me hard, pinning me down on the sofa. As Yui-san, who had thrown herself on top of me, took off her coat and flung it onto the floor, my heart felt like it was being squeezed tight.
+"Got it, I'll do whatever I want, then. But no complaining afterward."
 
-"Just a kiss, alright?"
+Pushed back firmly, I fell onto the sofa. Looming over me, Yui-san shrugged off her coat and tossed it carelessly to the floor, and my heart clenched, tight.
+
+"Kissing only, okay?"
 
 "I know."
 
-She smiled happily, then bit down on my lips. I closed my eyes. As I pulled her arms around my neck closer, I could feel Yui-san give a soft chuckle.
+Smiling, so clearly pleased, she claimed my lips like she meant to devour them, and I closed my eyes. I pulled her in by the arms around her neck, and I could tell she smiled against me.
 
-"Enough, I'll die if you keep this up," I gasped, raising the white flag. It was only some time later that I finally got my hot milk.
+*Enough, please, I'll die if this goes on any longer* — waving the white flag, breathless — and it was quite a while after that before I finally got my hot milk.
 
-　When autumn ends and winter comes, I'm sure I'll meet a Yui I haven't known yet.
+*
 
-Hey, Yui, you didn't know, did you?
+Once autumn ends and winter comes, I'm sure I'll get to meet a Yui-san I still don't know yet.
 
-If you only ever thought of me, I'd give you everything I had.
+*
 
-I truly, genuinely believed that.
+Hey, Yui-san. You didn't know this, did you.
+
+If you'd have loved only me, I would have given you everything I had.
+
+I mean that, genuinely, with everything in me. I really did think that, back then.
