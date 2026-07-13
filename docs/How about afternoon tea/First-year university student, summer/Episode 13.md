@@ -235,15 +235,15 @@ Eyes the deep color of the night sea held me, wouldn't let go.
 
 "I had fun too."
 
-Her thumb traced softly over my lips. Blood rushed to my heart all at once, pounding, hard.
-Caught in that gaze, I nearly forgot to breathe.
+Her thumb traced softly over my lips. Blood rushed to my heart all at once, pounding, hard.\
+Caught in that gaze, I nearly forgot to breathe.\
 Too beautiful. Like drowning — I couldn't breathe at all.
 
 "...Kanata."
 
 She said my name. The voice ringing in my ears was so much sweeter, so much gentler than usual.
 
-Please don't say my name in a voice that kind.
+Please don't say my name in a voice that kind.\
 Please don't look at me like that, like I'm something unbearably precious.
 
 Her hand slid around the back of my neck, drawing me in. Yui-san leaned forward, the distance closing.
@@ -276,7 +276,7 @@ Her voice, muffled and faintly put out from behind the plush orca, made me laugh
 
 "Still... trying to kiss someone on the very first date, Yui-san, isn't that moving a little fast?"
 
-Conveniently ignoring how close I'd come to getting swept along myself just a moment ago, I gave her an accusing look.
+Conveniently ignoring how close I'd come to getting swept along myself just a moment ago, I gave her an accusing look.\
 Honestly, that had been genuinely dangerous. My heart was still racing.
 
 "...So how many dates would be enough, then?"
@@ -289,7 +289,7 @@ The sunset pouring in through the window — please, let it disguise how red my 
 
 "...Not even once."
 
-If I let myself be kissed right now, I don't think I'd be able to refuse her again after that.
+If I let myself be kissed right now, I don't think I'd be able to refuse her again after that.\
 It scared me, just a little. Like some door inside myself, one I didn't even know existed, was about to be forced open, and the thought made me flinch.
 
 Yui-san had been staring at me steadily, but she finally let out a small, resigned sigh, giving up. Watching her look that disappointed left me strangely, ticklishly pleased.

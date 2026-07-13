@@ -1,222 +1,226 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 5
 parent: First-year university student, autumn
 sequence: 25
-title: 'Episode 25: Oh, Was I Not Invited?'
+title: "Episode Twenty-Five: Oh — Was I Not Invited?"
 ---
-Episode 25: Oh, Was I Not Invited?
+## Episode Twenty-Five: Oh — Was I Not Invited?
 
-"Yui-san went out for dinner with her father today... I think she'll be back shortly. If you'd like, would you care for a coffee inside?"
+\
+"Yui-san's out having dinner with her father today... I think she'll be back soon. If you'd like, would you care for some coffee inside while you wait?"
 
-I blurted out the invitation and ushered him inside, but then I remembered how Yui-san had grumbled the other day, insisting she'd never let me meet her brother.
+The words slipped out before I fully thought it through, and I'd already invited him in by the time I remembered — Yui-san had grumbled, pointedly, that she'd absolutely never let me meet her brother.
 
-It had been incredibly difficult to win back her favour after that.
+Winning back her ruined mood after that conversation had genuinely taken real effort.
 
-　Yui-san, clinging to me and refusing to let go, proceeded to lecture me at length about how popular Yukiyasu-san was with women, how there are plenty of rivals, and even if he falls for you, you'll definitely have a hard time, how falling for him would be nothing but trouble, and how I should just give up.
+Refusing to let go of me for the rest of the night, Yui-san had launched into an exhaustive rundown of exactly how popular Yukiya-san was with women, how much competition I'd be up against, how much trouble it'd cause if I ever fell for him, that I really shouldn't bother — an endless stream of discouragement.
 
-That sounds exactly like you, Yui-san — I almost said it, but wanting her to cheer up quickly, I let it slide and just listened silently.
+*That's basically just describing yourself, Yui-san* — I'd nearly said it, but wanting her mood to improve as fast as possible, I'd let it slide and just listened quietly instead.
 
-　And now, that infamous Yui-san's brother is standing right before me.
+And now, that same notorious brother of hers was standing right in front of me.
 
-Upon entering the living room, Yukiyasu-san sat down on a dining table chair. Apparently, "the sofa is Yui's special seat, so she'll get upset if I sit there."
+*
 
-Oh, I didn't know that. I always sit on Yui-san's special seat without a second thought, but she's never said anything about it.
+Stepping into the living room, Yukiya-san took a seat at the dining table instead of the sofa. Apparently the sofa was "Yui's throne, and she hates it when other people sit there."
 
-"Yuki-san. Would black coffee be alright?"
+Huh, I hadn't known that. I always sit in Yui-san's favorite spot without a second thought, and she's never once said anything about it.
 
-Peering out from the kitchen to ask, he nodded with a smile, saying, "Yes, thank you."
+"Yukiya-san. Is black okay?"
 
-I brewed Yui-san's favourite blend. Glancing at the clock, it was nearly nine o'clock.
+I called from the kitchen, and he nodded, smiling, *yes, thank you.*
 
-Honestly, it wouldn't be strange if Yui-san came home any minute now.
+I brewed Yui-san's favorite blend. Glancing at the clock, it was getting close to nine.
 
-　I steal glances at Yukiyasu-san while brewing the coffee. His uncoloured black hair is the same shade as Yui-san's. His overall impression is refreshingly clean-cut, the very picture of neatness.
+It wouldn't be strange at all if Yui-san walked in any minute now.
 
-What's more, he's tall. Since Yui-san is tall, I'd assumed her brother might be too.
+While making the coffee, I stole glances at Yukiya-san. His black hair, clearly unbothered by dye, was the exact same shade as Yui-san's. His whole look radiated a kind of clean, refreshing wholesomeness.
 
-No wonder Yui-san speaks so highly of him. I certainly thought Yukiyasu-san must be incredibly popular with women.
+Tall, too, on top of it. Since Yui-san's tall herself, I'd figured her brother might be too.
 
-"Here you are."
+No wonder Yui-san had gone on that much about him — Yukiya-san really was, unmistakably, the kind of person who'd be terrifyingly popular.
 
-I placed the coffee in front of Yukiyasu-san.
+"Here you go."
 
-"Thank you. Sorry to keep you up. I really should have checked Yui's schedule properly."
+I set the coffee down in front of him.
 
-"Not at all. I've heard so much about you from Yui, Yukiyasu-san. It's lovely to meet you."
+"Thanks. Sorry for waiting on you like this — I should've actually checked Yui's schedule ahead of time."
 
-"It's lovely to meet you too. Just as Yui said, you really are lovely. How's it going with Yui? Having fun?"
+"No, not at all — I've heard a lot about you from Yui-san, so I'm glad to finally meet you."
 
-　There it is, that Ichinose bloodline. The womanising gene.
+"I'm glad too. Just like Yui said, you really are cute. So, how's it going with her? Having fun?"
 
-Suddenly, he was staring into my eyes and calling me cute. I didn't know how to react, so I let my gaze wander. Yukiyasu chuckled softly.
+There it is. The Ichinose bloodline. That same flirtatious streak.
 
-"Yes, thank you. Yui-san is always so kind to me."
+Called cute so suddenly, held under his direct gaze, I didn't know how to respond and let my eyes wander, and Yukiya-san laughed, soft.
 
-I kept quiet about the one time we'd argued. Then Yukiyasu took a sip of his coffee and smiled happily.
+"Yes, thanks to her... Yui-san's really been wonderful to me, always."
 
-"I'm glad you're getting along well. Speaking of which... do Yui and my father meet up that often?"
+I decided not to mention the one fight we'd had. At that, Yukiya-san took a sip of coffee and smiled, pleased.
 
-"I think they have dinner together about once a month. She also mentioned company people join them sometimes."
+"Good to hear you're getting along well. Come to think of it... do Dad and Yui actually see each other that often?"
 
-"Company people...? Ah, Shinji."
+"They seem to have dinner together about once a month. Someone from the company joins too, she said."
+
+"Someone from the company...? Ah — Shinji, probably."
 
 —Shinji?
 
-I should have forgotten him completely, yet the moment I heard that name, a memory resurfaced in my mind.
+I'd completely forgotten about it, and yet the moment I heard that name, the memory came flooding back.
 
-　On the drive home from the aquarium, Yui-san had received a call. The name displayed on the satnav was definitely — Kitakami Shinji.
+That phone call in the car, on the way home from the aquarium. The name displayed on the nav screen — I was almost certain it had been Kitagami Shinji.
 
-Who on earth was that person? Noticing my anxious expression, Yukiyasu-san smiled.
+Who was he, exactly? Yukiya-san must have noticed the anxious look on my face, because he laughed.
 
-"Ah, did Yui tell you? That Dad and I don't get along?"
+"Ah, you've heard about it from Yui, maybe? That Dad and I don't get along?"
 
-"Er... yes."
+"Um... yes."
 
-　His terrifyingly sharp intuition was another trait he shared with Yui. Siblings are amazing, I thought. Yukiyasu really was the spitting image of Yui.
+Terrifyingly perceptive too, just like Yui-san. Siblings really are something, I thought. Yukiya-san really is remarkably similar to her.
 
-"...So Yui is worried after all?"
+"...Does it bother Yui, after all?"
 
-What should I do? I didn't know if I should just say plainly, "Yes, she is worried," and found myself looking away, my eyes darting around.
+What do I say. I hesitated, unsure whether it would be better to just plainly say *yes, it bothers her* or not, and my gaze wandered, uncertain.
 
-To say she doesn't care would be a lie. You mentioned how difficult it is when your father and brother don't get along. It's obviously better for Yui-san if they were on good terms.
+Saying it doesn't bother her would be a lie. She'd said, herself, how hard it was, having her father and brother at odds. It'd obviously be better for Yui-san if the two of them got along.
 
-But the fact that Yui-san hasn't sought reconciliation with either her brother or her father until now means there must be some reason.
+But the fact that Yui-san's never once pushed either her brother or her father toward reconciliation must mean there's some reason behind it.
 
-"...Well, I suppose. Unless you ask Yui-san directly, it's hard to say..."
+"...I'm not sure, honestly. I'd have to ask Yui-san herself to really know..."
 
-　In the end, my reply remained vague. It was practically the same as saying, "Yes, she is concerned."\
-I'm hopeless with words, even by my own standards. I'm so exasperated I can't even speak.
+In the end, I gave a vague, noncommittal answer. Which basically amounts to saying yes, it does bother her.\
+Even by my own standards, I'm hopeless with words. I could hardly believe myself.
 
-"Heh heh, I see. That's right. Sorry for troubling you."
+"Ha, I see. That's fair. Sorry for putting you in an awkward spot."
 
-Yukiya-san said that and smiled. If he knew it would trouble me, I wish he hadn't asked in the first place. He's just like Yui-san in that way too.
+Yukiya-san said it, laughing. If he knew it would put me in an awkward spot, I wish he hadn't asked in the first place. That, too, was exactly like something Yui-san would do.
 
-　Truly, they resemble each other in every single way.
+Truly, every last detail about them matches.
 
-But — even when Yukiyasu-san gazed at me, even when he called me cute, I didn't feel that same tightening in my chest like when Yui-san said it.
+But — even held under Yukiya-san's gaze, even called cute by him, I felt none of that tight, clenching sensation in my chest the way I did with Yui-san.
 
-Was it because he simply didn't feel that way about me?
+Was that because he simply had no romantic interest in me?
 
-"...Yui's always been very sensible, never really acted selfishly. Seems she hasn't changed much even now."
+"...Yui's always been the understanding type, even as a kid. Never once acted spoiled or selfish. Doesn't seem like that's changed much, even now."
 
-　Somehow, I could imagine that. Lately, Yui-san has started showing her feelings more openly — getting jealous, sulking — but still, the overwhelming majority of the time, I have no idea what she's thinking.
+I could sort of imagine that, I thought. Lately Yui-san's started showing jealousy, sulking a little, being more honest about her feelings than before — but even now, there's still so much more I don't understand about what's going on in her head than what I do.
 
-"Because she never complains much, I'm always worried. I want Yui to live much more freely."
+"She never really complains, which honestly worries me all the time. I wish Yui could live a lot more freely."
 
-Freely. What did that mean? Not being bound by her father? Or...
+　*Freely.* What did that mean, exactly. Free from being bound to their father? Or something else.
 
-　I stared back intently into his eyes. I couldn't read any emotion in those deep-coloured irises, and I thought how remarkably like Yui-san he was, even in this.
+I stared steadily into his eyes. Those deep-colored eyes gave nothing away, no readable emotion at all — even in that, so identical to Yui-san.
 
-Does Yukiyasu-san know? That Yui-san is homosexual.
+Did Yukiya-san know? That Yui-san likes women?
 
-Just because Yui-san doesn't hide it at university doesn't mean she does with her family.\
-In fact, Yui-san's father probably doesn't know.
+Just because she doesn't hide it at university doesn't necessarily mean the same is true with her family.\
+In fact, her own father almost certainly doesn't know.
 
-What should I say in reply? Just as I hesitated slightly, a sudden noise from the entrance made me jump and straighten up.
+What should I even say back to that. Just as I hesitated, unsure, a sudden sound from the entryway made me straighten up sharply.
 
 "Kanata? Is someone here?"
 
-Yui had come home. Her voice sounded displeased, having apparently noticed Yukiyasu-san's shoes by the entrance.
+Yui-san was home. Her voice, sounding faintly displeased, must have already spotted Yukiya-san's shoes by the door.
 
-I scrambled to my feet and headed for the door connecting the hallway to the living room. But before I could open it, the door swung open forcefully.
+I scrambled to my feet, heading for the door connecting the hallway to the living room. But before I could open it, it swung open hard from the other side.
 
 "Yui, welcome home."
 
-Yui looked startled, her gaze shifting between me, standing awkwardly midway, and Yukiyasu.
+Yui-san's face went startled, glancing back and forth between me, frozen awkwardly mid-step, and Yukiya-san.
 
-"W-welcome home, Yui..."
+"W-welcome home, Yui-san..."
 
-After a moment, Yui seemed to grasp the situation and gave a slightly displeased look.
+Apparently piecing the situation together, Yui-san paused for a beat, then let a faintly displeased expression settle over her face.
 
 "...Why is Yuki-nii here?"
 
-"I came to celebrate your birthday... Oh, wasn't I invited?"
+"Came to celebrate your birthday... oh, was I not invited?"
 
-Yukiya stood up and gently handed Yui the bouquet he'd placed on the table.
+Yukiya-san stood and gently held out the bouquet he'd left on the table.
 
 "Happy twenty-first birthday."
 
-"...Thank you. But next time you come, please let me know."
+"...Thanks. But next time, text me before you come over."
 
-"Sorry, sorry. I wanted to surprise you."
+"Sorry, sorry, wanted it to be a surprise."
 
-　She sighed softly, then smiled with relief. Phew, I'd thought for a moment that her displeased expression meant an argument was starting, but it seems I needn't have worried.
+Yui-san let out a small sigh, and then smiled, visibly relieved. I'd worried, for a second, that things might turn into a real argument, seeing her displeased expression — but it seemed my concern had been unfounded.
 
-"Oho, you've got quite the nice present there."
+"Oh, quite the nice thing you got there."
 
-Yukiyasu noticed the pale blue paper bag hanging from Yui's hand and remarked teasingly.
+Yukiya-san noticed the pale blue paper bag hanging from Yui-san's hand and said it, teasing.
 
-　I immediately recognised it as a bag from a high-end jewellery brand.
+I recognized instantly, too, that it was a bag from a luxury jewelry brand.
 
-"That's from Dad... Nah, that can't be. From Shinji?"
+"That from Dad... nah, probably not. Shinji?"
 
-"Whoever it's from doesn't matter, does it? It's none of your business, Yukiyasu."
+"Doesn't matter who it's from, none of your business, Yuki-nii."
 
-"Shinji" again. Who on earth is that? My chest felt unsettled. It was her birthday today, so why would someone from work be joining her dinner with her father?
+*Shinji* — that name again. Who on earth was he? Something unsettled churned deep in my chest. It's her birthday today — why would someone from the company be involved at all?
 
-"You're being rather cold, aren't you? I went to the trouble of bringing Yui a present too."
+"So cold. And here I brought you a present too."
 
-"Isn't it these flowers?"
+"Isn't this it? The flowers?"
 
-Yui-san lowered her gaze to the bouquet in her hands and tilted her head. Then, Yukiyasu-san slipped his hand into his jacket's inside pocket.
+Yui-san glanced down at the bouquet in her hand, tilting her head. At that, Yukiya-san slipped a hand into his jacket's inner pocket.
 
-"Not at all. The real thing is this."
+"No way. The real one's this."
 
-Saying that, he pulled out a thick, pure white envelope tied with a ribbon.
+What he pulled out was a thick, pure white envelope, tied with a ribbon.
 
-"Ta-dah! Travel vouchers. Since you're here, why not go somewhere with Kanata-chan?"
+"Ta-da. Travel vouchers. Go somewhere with Kanata-chan sometime, on me."
 
-Judging by its thickness, the envelope seemed to contain quite a few vouchers. Yui accepted it without fuss and smiled.
+Judging by its thickness, it looked like it held a considerable amount. Yui-san took it without hesitation, smiling.
 
-"Really? I'm so happy. Thank you, Yuki-nii."
+"Really? I'm so happy. Thanks, Yuki-nii."
 
-"You're welcome. University life seems long but passes quickly, so enjoy it to the fullest. Right then, I'll be heading back now. Kanata-chan, you two should properly celebrate Yui's birthday properly from here on."
+"You're welcome. College life feels long but it's actually short, so enjoy it while it lasts. Alright, I should head out now. Kanata-chan, go ahead and give Yui a proper birthday celebration after this."
 
-Saying this, Yukiyo-san looked at me and smiled warmly, so I nodded in acknowledgement. It seemed he was well aware of our preparations to celebrate Yui-san's birthday.
+He said it, smiling at me, and I nodded, small. Yukiya-san seemed to have somehow figured out I'd been preparing for Yui-san's birthday.
 
-"Ah, yes. And... Kanata-chan, give me your contact details. Just in case something comes up in the future."
+"Oh, right, one more thing... Kanata-chan, mind giving me your contact info? Just in case something comes up down the line."
 
-Hearing that, Yukiyasu-san pulled out his smartphone, so I followed suit and fished mine out of my pocket.
+Asked that, Yukiya-san pulled out his phone, and, following his lead, I pulled mine out of my pocket too.
 
-I displayed the chat app's QR code, about to show it to Yukiyasu-san, when suddenly, with a thud, Yui-san grabbed my smartphone screen with her palm and stopped it.
+Right as I pulled up my chat app's QR code to show him, there was a soft thud, and at the same moment, Yui-san's palm slapped down over my phone screen, stopping me cold.
 
 "Eh...?"
 
-Yukiyasu-san and I both turned our gaze to the source of the sound at our feet.
+Yukiya-san and I both looked down, toward where the sound had come from.
 
-A pale blue paper bag lay discarded at our feet. So that was the sound – it had fallen.
+The pale blue paper bag lay tossed on the floor. That must have been the sound of it dropping.
 
-Yui-san, her hands full with the bouquet and the paper bag, must have let go of the bag to grab my phone.
+Her hands full with the bouquet and the paper bag both, Yui-san had apparently let go of the bag to grab my phone instead.
 
-　When forced to choose between letting go of the bouquet from Yukiyasu-san or the luxury brand accessory, she’d toss the accessory without hesitation – that was so typical of Yui-san.
+Faced with a choice between dropping Yukiya-san's flowers or the luxury brand accessory, choosing without a moment's hesitation to fling the accessory aside — that's so exactly like Yui-san.
 
-With a bright smile, Yui-san covered my phone screen with her palm and laughed.
+Smiling, her palm still pressed flat over my phone screen, Yui-san said it.
 
-"Yuki-nii, don’t worry, it’s fine. If anything happens, I'll contact you myself."
+"Don't worry, Yuki-nii. If anything comes up, I'll be the one to contact you."
 
-I gasped at her smile, which carried an undeniable weight. Yukiyasu looked back and forth between my face and Yui's, then suddenly smiled gently.
+Something in that smile carried a pressure that left no room for argument, and I found myself catching my breath. Yukiya-san glanced between my face and Yui-san's, then smiled, gentle.
 
-"Is that so? Well then... I suppose it's alright."
+"That so? Well... fair enough."
 
-Yukiyasu picked up the paper bag Yui had tossed aside and placed it gently on the edge of the sofa.
+Yukiya-san picked up the paper bag Yui-san had tossed aside and set it gently on the edge of the sofa.
 
-"The present itself isn't at fault, you know. Treasure it properly. It must have cost a pretty penny. If you're too cold to it, Shinji'll cry, you know?"
+"The present didn't do anything wrong, you know. Take care of it. It probably cost a lot — treat it too coldly and Shinji's going to cry."
 
-Noticing my anxious fidgeting, Yukiyasu turned to me.
+Noticing my restless, anxious expression, Yukiya-san turned to me.
 
-"Ah, I suppose you've never met him, Kanata-chan? This Shinji fellow..."
+"Ah, you haven't met Shinji, have you, Kanata-chan? He's..."
 
-"Yuki-nii's childhood friend, the son of the managing director at your father's company."
+"Yuki-nii's childhood friend. Son of the managing director at Dad's company."
 
-Yui-san cut him off with a sigh.
+Yui-san cut him off, sighing as she said it.
 
-"Enough already... I don't want to talk about Shinji until his birthday."
+"That's enough already... I don't want to talk about Shinji, not even on my birthday."
 
-Yui-san spat out the words with obvious distaste. Yuki-san chuckled, clearly sharing her dislike. It seemed both siblings had a poor rapport with this man named Kitakami Shinji.
+She spat it out, clearly displeased, and Yukiya-san laughed, *yeah, fair, me neither.* Apparently both siblings had a mutual dislike for this "Kitagami Shinji" character.
 
-"Right then, I really must be off now. See you, Yui, Kanata-chan."
+"Alright, I really will head out now. See you both — Yui, Kanata-chan."
 
-Having drunk just one cup of coffee and without lingering, Yukiyasu left.
+Having had only a single cup of coffee and staying only briefly, Yukiya-san left.
 
-He'd probably squeezed in the visit between busy schedules, and though Yui looked a little dissatisfied, she still seemed rather pleased somewhere deep down.
+He'd probably carved this visit out of a busy schedule, and though Yui-san's expression stayed faintly displeased, she also looked, unmistakably, a little happy underneath it.

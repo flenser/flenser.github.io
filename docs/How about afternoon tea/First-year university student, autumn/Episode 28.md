@@ -1,242 +1,260 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 8
 parent: First-year university student, autumn
 sequence: 28
-title: "Episode 28: That's the thing about her, though — it's rather endearing"
+title: "Episode Twenty-Eight: That's Exactly What Makes You Cute, Though"
 ---
-Episode 28: That's the thing about her, though — it's rather endearing
+## Episode Twenty-Eight: That's Exactly What Makes You Cute, Though
 
-Yukiya-san covered the travel expenses, and since this trip was to celebrate Yui-san's birthday, I should really have been the one making all the arrangements. Yet, in the end, Yui-san handled everything — from booking the accommodation to reserving the train tickets.
+\
+The whole trip was funded by Yukiya-san, and since this was ostensibly Yui-san's own birthday celebration, I should really have been the one handling the arrangements — but in the end, Yui-san took care of everything herself, from booking the inn down to the train tickets.
 
-As usual, I simply let her take my hand and follow along.\
-Before I knew it, we were aboard the limited express bound for Hakone-Yumoto.
+Same as always, really. I just let myself be led along, hand in hand.\
+By the time I registered it, we were already on the limited express bound for Hakone-Yumoto.
 
-　Unlike ordinary trains, this one offered splendid views and was incredibly comfortable to ride. It truly lived up to its name, the Romance car, I thought with admiration.
+Unlike an ordinary train, the wide, view-forward seating made for a wonderfully smooth ride, and I found myself genuinely impressed — this really was a "Romancecar," living up to the name.
 
-As usual, she naturally offered me the window seat. She was just as kind today as ever.
+As if it were only natural, she'd given me the window seat without a second thought. Kind as ever, today too.
 
-Spreading out the ekiben, the holiday feeling really started to kick in.
+*
 
-"I'm terribly sorry to have you do everything for me. It's supposed to be your birthday trip, Yui-san."
+Once I unwrapped the station bento, the trip finally started to feel real.
 
-"It's fine, I enjoyed preparing it. Don't worry about it."
+"Thank you for handling everything. Even though this is supposed to be your birthday trip, Yui-san."
 
-Lately, I feel Yui-san has been spoiling me a bit too much.\
-I just keep saying, 'I'd like this,' or 'I'd like that,' and Yui-san always makes those wishes come true.\
-Even now, without me saying a word, she's stuck a straw into a paper carton of tea and placed it right in front of me.
+"It's fine, planning it was fun too. Don't worry about it."
 
-　It's surprising, but this is just how Yui-san always is.
+Lately, I think Yui-san's been spoiling me a little too much.\
+All I ever do is pick out what I want — this, or that — and every single time, she makes it happen.\
+Even right now, without me saying a word, she'd already stuck a straw into my carton of tea and set it down in front of me.
 
-I suck on the straw with a slurp. Yui-san once said she was the type to go all out for someone, but honestly, I was sceptical at first.
+Startled, I wondered — is Yui-san always like this?
 
-But now I get it.
+I took a sip through the straw. She'd told me once that she was the "devoted, goes-all-in type" — and honestly, at first, I'd taken that with a grain of salt.
 
-It wasn't a lie. If she's this devoted without us even being together, I wonder what it'd be like if we were. Yui-san is utterly kind.
+But now, I finally believe it.
 
-"...Yui-san, apart from your terrible taste in women, you really are flawless, aren't you?"
+It wasn't a lie. If she's already this endlessly kind without us even dating, I genuinely wonder what she'd be like if we actually were.
 
-"What's that supposed to mean? I can't tell if you're complimenting me or insulting me."
+*
 
-Yui-san laughed like that, but I thought, that one flaw is quite the bombshell.
+"...Yui-san, honestly, aside from your terrible track record with women, you really don't have a single flaw."
 
-　Everyone gets ensnared by her kindness and forgets, but you have to remember that her kindness isn't directed solely at you.
+"What's that, is that a compliment or an insult? I can't tell."
 
-Still, there are plenty of people who are fine with that, so I suppose women are always drawn to Yui-san.
+Yui-san laughed it off like that, but I couldn't help thinking — that one flaw alone is a pretty massive one.
 
-　I'm selfish, so I absolutely cannot accept being just one of the crowd.
+It's easy to forget, swept up in her kindness, but I need to keep reminding myself: that kindness was never pointed only at me.
 
-If I actually saw her doing the things she usually does for me with another woman right in front of me, I'd definitely feel awful.
+I'm sure that's exactly why women are always gathering around Yui-san — because plenty of people out there are fine with that arrangement.
 
-We're often alone together, so it's easy to forget.
+But I'm selfish. There's no way I could ever be satisfied being just one more face in that crowd.
 
-"Ah... come to think of it, Ritsu-san sent a request for souvenirs."
+If I ever actually saw her, right in front of me, doing for some other woman the exact things she does for me — I know, without a doubt, it would hurt.
 
-"Eh? I didn't get any message about that."
+Being alone together so often makes it easy to forget that, but still.
 
-"She said to buy as many black eggs as I could find. She's going to eat them all herself. But eating one is supposed to add seven years to your life... so eating too many probably isn't a good idea, right?"
+"Ah... right, Ritsu-san sent in a souvenir request."
 
-"...Is she aiming for the world record for longevity or something?"
+"Eh? She never messaged me about it."
 
-We exchanged glances and burst out laughing.
+"She said to buy as many black eggs as I can carry. Says she's going to eat every single one herself. But if one egg really adds seven years to your life... eating too many can't be good for you, right?"
 
-The sky peeking through the window was an endless blue. Once autumn ends, winter comes, and a year passes in the blink of an eye.
+"...Is she going for some kind of longevity world record?"
 
-　The train reached its destination after an hour and a half. Unable to contain my excitement, I tugged Yui-san's hand and pulled her through the ticket gates.
+We caught each other's eyes and burst out laughing.
 
-From home to Shinjuku Station, I'd just followed along, Yui-san holding my hand. But once we reached our destination, it was no big deal.\
-Honestly, I still can't get the hang of changing trains. London Underground was easier than Tokyo's, at least.
+The sky through the window stretched endlessly blue. Once autumn ends, winter will come, and a whole year will have slipped by in the blink of an eye.
 
-"Hey, Yui-san, hurry up!"
+*
 
-"There's no need to rush. The hot springs aren't going anywhere."
+The train took an hour and a half to reach our destination. Unable to hold back my excitement, I tugged Yui-san's hand and pulled her through the ticket gate.
+
+From the house all the way to Shinjuku Station, I'd just let myself be led along by Yui-san's hand — but once we actually arrived, that was no longer an issue at all.\
+Honestly, I still can't remember train transfers to save my life. The London Underground was still simpler than Tokyo's, by comparison.
+
+"C'mon, Yui-san, hurry up."
+
+"No need to rush, the hot spring's not going anywhere."
 
 "But..."
 
-I'd pored over the guidebook for this very day, and I wanted to enjoy it to the fullest.
+I'd read through the whole sightseeing guide specifically for today, and I wanted to enjoy every last bit of it.
 
-Would she think me childish, even at nineteen?
+Nineteen years old, and still acting like this — maybe it's childish of me.
 
-Looking up at Yui-san, wondering if I'd been a bit of a nuisance, she narrowed her eyes and gently stroked my head.
+Wondering if I'd been a bit of a handful, I glanced up at Yui-san, and she narrowed her eyes gently and stroked my head.
 
-"It's that sort of thing that makes you cute, you know."
+"That's exactly what makes you cute, though."
 
-Avoiding her gaze as if to hide my embarrassment, I tugged her hand.\
-That ability to say such things so casually was one of Yui-san's rather cunning traits.
+Embarrassed, I looked away and pulled her hand forward instead.\
+Saying things like that so effortlessly is exactly the unfair part about Yui-san.
 
-"So, where did you want to go again?"
+"So, where do you want to go first?"
 
-"First, a café. I've looked up the place, so leave it to me."
+"A café first. I've already looked up a place, so leave it to me."
 
-"Right then. I suppose I'll take you up on that offer and let you lead the way."
+"Got it. Guess I'll just let you lead the way, then."
 
-She gently took my hand again, our fingers intertwining. My heart gave an unexpected leap.
+Our hands re-laced together gently, fingers intertwined. My heart gave an unexpected little jump.
 
-Lately, I've been constantly troubled like this. Yui-san's every move and gesture just keeps stirring up my feelings.
+I've been struggling with this a lot lately. Every little thing Yui-san does keeps stirring up my heart, no matter what.
 
-I pulled her hand along, hoping against hope that my feelings wouldn't show through our clasped hands, even though I knew it was pointless to think that.
+*Please don't let my feelings leak through this joined hand*, I found myself wishing, over something entirely impossible, as I pulled her along.
 
-　Whether we were eating matcha tiramisu or savouring her favourite tea, Yui-san would sit across the table, smiling and watching me.
+*
 
-"Is it nice?"
+Eating matcha tiramisu, savoring some specially selected tea afterward — the whole time, Yui-san sat across the table, smiling, watching me the whole while.
 
-"It's nice."
+"Good?"
 
-I adore that gentle gaze, yet it makes me a little uneasy.\
-Sometimes I feel anxious, as if those deep black eyes might peer right into my soul.
+"Yes, it's good."
 
-　Like she knows everything already. That she understands all my worries and troubles, yet says nothing.
+I love that gentle gaze of hers, but I'm also a little bad at handling it.\
+That deep black, I sometimes worry, might see straight through to the inside of my heart.
 
-Truthfully, you can only know someone's real feelings by asking them.
+Maybe she already understands everything. Maybe she already knows all the things I keep agonizing over, and just chooses not to say anything.
 
-I know it's all my fault – this cowardly me, hesitating and dithering, lacking the courage to simply ask, "Please tell me the real reason you don't have a lover."
+But real feelings are something you can only learn by actually asking the person.
 
-　When booking the lodgings, I was asked whether I preferred a bed or futon. Without hesitation, I said futon.
+All I'd need to do is ask, plainly — *please tell me the real reason you don't do girlfriends* — and yet I never have the courage to actually confirm it, and just keep wavering instead, and I know full well that's entirely my own fault, being this much of a coward.
 
-After all, when staying at a ryokan is about the only chance I get to sleep on a futon. I didn't know how Yui-san felt about it, but I stuck to my guns. The moment we were shown to our room, I knew I'd made the right choice.
+*
 
-This was probably the first time in my life I'd stayed at such an authentic ryokan, with its traditional Japanese style so prominently featured.
+When booking the inn, she'd asked whether I wanted a bed or a futon, and I'd answered "futon" immediately, without hesitation.
 
-"It's... spacious, isn't it..."
+Sleeping on a futon isn't something you get to do often, outside of a proper inn like this — and though I had no idea how Yui-san would feel about it, the moment we were shown to our room after I'd pushed my own preference through, I knew right away it had been the right call.
 
-"Yes, it is. Oh, there's a terrace too. And an open-air bath."
+This might be the first time in my life I've stayed at a proper, traditional Japanese-style inn like this.
 
-The envelope Yukiyasu-san had received from Yui-san, containing the travel voucher, had been quite thick.
+"I-it's huge..."
 
-"We should make the most of it," Yui-san had said, choosing this luxury inn. It was so expensive that I felt a little intimidated, wondering if it was really right to be receiving such generous hand-me-downs.
+"It is. Oh, there's a terrace too. And an open-air bath attached."
 
-　The sun was beginning to set. Stepping outside and sitting down on a chair, the colourful leaves of the trees filling her view were truly beautiful.
+The envelope of travel vouchers Yukiya-san had given Yui-san had been considerably thick.
+
+*Might as well use it properly*, Yui-san had said, choosing a genuinely high-end inn — expensive enough that I felt a small pang of guilt, wondering if it was really okay to be benefiting from someone else's generosity this much.
+
+Evening was starting to settle in. Stepping outside and sitting in the chairs on the terrace, the vividly colored autumn leaves filling my view were genuinely beautiful.
 
 "Ah, you can see Mount Fuji."
 
-"You're right."
+"You really can."
 
-"Do you think you can see it from the main bath too?"
+"Can you see it from the main bathhouse too, I wonder?"
 
-"If we go in the morning, we might just catch it. They said dinner starts at half past six, so there's no time to go now."
+"Might be visible if you go in the morning. Dinner's from six-thirty, they said earlier, so there's no time to go right now."
 
-Yui-san said, glancing at her watch. A morning bath sounded lovely too. Indeed, it would be absolutely perfect if we could bathe together, I thought.
+Yui-san said it, checking her watch. A morning bath sounds nice too. If the two of us could actually go in together, that would be wonderful, I found myself thinking.
 
-Back in the room, we put on the yukata that had been laid out for us. As I fumbled about, Yui-san smiled and neatly tied the obi sash on my yukata for me.
+*
 
-"Yui-san, are you perhaps quite experienced with travelling?"
+Back in the room, I slipped into the prepared yukata. Fumbling with it, Yui-san laughed and neatly tied my obi for me.
 
-"Not at all. I've never been on a proper trip. Just taken along on company outings as a child."
+"Yui-san, are you actually experienced at traveling, by any chance?"
 
-"Oh. That sounds nice, that sort of thing."
+"Not at all. Never really traveled before. Just the occasional company trip as a kid."
 
-"Not really. Even when he called it a trip, it was work for Dad, and it wasn't nearly as enjoyable as this."
+"Huh. That sounds nice, though."
 
-Yui-san pulled me close and hugged me tightly.
+"Not really. Even calling it a trip, it was work for my dad, so it was never this fun."
 
-"Your yukata is lovely. I'm so glad I came. We really must thank Yuki-nii."
+Yui-san pulled me in close, hugging me tight.
 
-She kept saying "adorable, adorable" while kissing my cheeks and eyelids, making me feel rather embarrassed.
+"The yukata's cute. I'm really glad we came. I should thank Yuki-nii properly."
 
-"Oh, Yui-san, you're squeezing me so tight it's uncomfortable!"
+*Cute, cute*, she kept saying, kissing my cheek, my eyelid, and it left me flustered with embarrassment.
 
-I pushed her shoulders away, trying to hide my blush. Her gentle eyes were fixed on me.
+"Geez, Yui-san, hugging that tight actually hurts."
 
-I wondered what kind of expression I must be wearing to Yui-san.
+I pushed at her shoulder to hide my embarrassment. Her kind eyes were watching me.
 
-Perhaps I, too, was overflowing with affection in my gaze, just like this.
+What kind of expression must I look like, from where Yui-san's standing?
 
-Then it was time for dinner, and as we were leisurely enjoying our meal in the room, Yui-san had unusually ordered a local beer.
+Maybe I'm doing this too — letting my own gaze overflow, unguarded, with something like fondness, the same way hers does.
 
-"So you drink beer too, Yui-san? I thought it was just highballs for you."
+*
 
-"Highballs are my favourite, but I basically only drink them at home. I have something different at bars too."
+Dinnertime came after that, and while we enjoyed a leisurely meal in the room, Yui-san, unusually, ordered a local craft beer.
 
-"Oh? What do you drink then?"
+"You drink beer too, Yui-san? I thought it was just highballs."
 
-"Salty Dogs, for instance."
+"Highball's my favorite, but I basically only drink that at home. At bars I usually order something different."
 
-Huh? Dogs? I never really grasped drink names. What flavour could that be?
+"Oh yeah? Like what?"
 
-"...What exactly is that?"
+"A salty dog, sometimes."
 
-"It's a cocktail with grapefruit and vodka. The rim of the glass is salted, and that's what makes it so delicious."
+Eh, a dog? Cocktail names are baffling. What does it even taste like?
+
+"...What's that?"
+
+"Grapefruit and vodka. There's salt around the rim of the glass — that's actually the best part."
 
 "Grapefruit..."
 
-　As I listened, I recalled the first time Yui-san kissed me when she was drunk. I distinctly remember a faint grapefruit flavour.
+Hearing that, I found myself remembering the first time Yui-san had kissed me, drunk. I remembered a faint hint of grapefruit that night.
 
 "Kanata? Your face is red."
 
-"...Nothing. Yui-san, you're going to have a bath soon, so please don't drink too much."
+"...It's nothing. More importantly, you're about to take a bath, Yui-san, so please don't drink too much."
 
-"Aye."
+"Yes, ma'am."
 
-The sashimi was delicious too, and seeing Yui-san in such high spirits made me happy as well.
+The sashimi was delicious too, and watching Yui-san in such a good mood made me happy as well.
 
-　Ah, travelling is wonderful, I thought. Of course, I knew. That "who you go with" is the most important thing.
+Ah, traveling really is wonderful, I thought. Of course I already know — who you go with matters more than anything else.
 
-"Kanata, you can go and have a bath first."
+*
 
-After the meal was cleared away, Yui-san said that, and I suddenly felt rather sorry.
+"Kanata, you can go take your bath first."
 
-It was true I'd stipulated that we should stagger our bathing times, but now I was starting to feel bad about making her wait in the room for over an hour.
+Once the dishes had been cleared, Yui-san said it, and it left me feeling strangely guilty.
 
-"Please go first, Yui-san. It is your birthday celebration, after all."
+I'd been the one to insist we go in at staggered times, but now, belatedly, I was starting to feel bad about leaving her alone in the room for over an hour.
 
-"Don't worry about it. There's a bath in the room too."
+"You go first, Yui-san. This is your birthday celebration, after all."
 
-Saying that, Yui-san pointed towards the open-air bath provided in the room.
+"Don't worry about it, there's a bath right here in the room too."
+
+She said it, pointing toward the room's own open-air bath.
 
 "But..."
 
-Just as I started to say it was such a special hot spring, Yui-san smiled brightly and peered into my face. Her long black hair swayed softly.
+Since we came all this way for a proper hot spring — I started to say, when Yui-san smiled and leaned in, peering into my face. Her long black hair swayed softly.
 
-"Well then, let's go in together after all."
+"Then, let's just go in together after all."
 
-"No, no way. I mean, the changing room in the main bath is brightly lit..."
+"N-no way. The changing area at the main bathhouse is bright and open..."
 
-"You don't like it being bright? Then we can just turn off the lights in the room's open-air bath. If you don't want me to see you change, I'll go in first and wait for you."
+"Is it the brightness you don't like? Then let's just turn off the lights in the room's open-air bath. If you don't want me seeing you change, I can go in first and wait."
 
-My feelings wavered. It was true I'd thought it would be wonderful to bathe together. Even now, I found myself thinking it would be a shame to waste this precious time by going in separately.
+My feelings wavered. It's true — I really did think it would be wonderful if we could go in together. Belatedly, I was starting to feel it would be a waste to burn through our precious time here going in separately.
 
-"Still no?"
+"Even so, still no?"
 
-Please don't ask so gently. I wish you wouldn't make me choose like this.\
-I knew Yui-san would never force me.\
-But... well... the desire to be with her outweighed my embarrassment.
+Don't ask me that so gently. I wish she wouldn't leave the choice up to me like this.\
+I already know Yui-san would never force me into anything.\
+But — my desire to just be with her a little longer was starting to win out over my embarrassment.
 
-"...All right. In that case, I suppose it's fine if we go in together."
+"...Fine. In that case, I suppose we can go in together."
 
-Trying to hide my embarrassment, I ended up sounding rather condescending.
+Trying to hide my embarrassment, it came out sounding oddly high-handed.
 
-"Really? Well, now that's settled, let's get in quickly."
+"Really? Then let's hurry and go."
 
-"Eh? Are you sure it's alright without sobering up first?"
+"Eh, are you sure, without waiting to sober up first?"
 
-"I don't get drunk that easily, so it's fine."
+"That little bit won't get me drunk, I'm fine."
 
-Yui-san smiled happily, making me suddenly feel embarrassed, and I abruptly looked away.
+Seeing Yui-san smile, so clearly pleased, I suddenly felt embarrassed all over again and turned away sharply.
 
-　I'd been so preoccupied with being seen myself, but come to think of it, I was about to see Yui-san naked too.
+I'd been so focused on worrying about being seen myself, but thinking about it properly, this also meant I was about to see Yui-san undressed too.
 
-My heart had been pounding since earlier.
+My heart had been pounding, hard, this whole time.
 
-I almost retracted my offer, thinking I should take it back, but then I saw her smiling happily.
+*Never mind, forget it, let's not*, I nearly said, taking it all back — but then I caught sight of her, smiling so happily.
 
-I bit my lip tightly and swallowed those words.
+I bit down hard on my lip and swallowed the words whole.

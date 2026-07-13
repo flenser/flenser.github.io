@@ -1,214 +1,227 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 10
 parent: First-year university student, autumn
 sequence: 30
-title: 'Episode 30: Just a Little While Longer, Let Me Stay Like This'
+title: "Episode Thirty: Just a Little Longer, Let Me Stay Like This"
 ---
-Episode 30: Just a Little While Longer, Let Me Stay Like This
+## Episode Thirty: Just a Little Longer, Let Me Stay Like This
 
-When I arrived at this inn, I thought choosing futons over beds had been the right call.
+\
+When we first arrived at the inn, I'd thought choosing a futon over a bed had been the right call.
 
-But now, I find myself reconsidering — perhaps it was a bad move after all.
+But now, I was starting to reconsider — maybe it had actually been a mistake.
 
-Even after what happened, Yui-san grabbed the edge of the futon laid out in the tatami room, pressed the two together snugly, then smiled brightly and said, "Let's sleep together."
+Even after everything that had happened, Yui-san grabbed the edge of the second futon laid out in the tatami room, dragged it flush against mine, and said, smiling brightly, "Let's sleep together."
 
-　Right, that’s the sort of person she is.
+Right. This is exactly who this person is.
 
-Fresh from the bath, my flushed body still warm, I was pulled by the arm and dragged into the futon.
+Still flushed from the bath, my body not yet cooled down, my arm was pulled and I was dragged straight into the futon.
 
-The lamp in the corner cast a faint glow over the room, its warm light creating an indescribable atmosphere.
+The lamp in the corner of the room cast the space in a dim, warm-toned glow, giving the whole room an indescribable atmosphere.
 
-“Yui-san, haven’t you been a bit too forceful lately?”
+"Isn't this a little too pushy, even for you lately, Yui-san?"
 
-When she said it with that beaming smile, it sapped my resolve and I couldn’t refuse.
+Said with that bright a smile, I couldn't help but lose whatever resistance I might have mustered.
 
-　Refusing would be like declaring, "I'm conscious of you." There was only one choice.
+Refusing, at this point, would basically be announcing outright, "I'm hyperaware of you." There was really only one option left.
 
-"Did you mind sleeping together?"
+"Did you not want to sleep together?"
 
-Her expression made it clear she knew I didn't mind. Yui-san fundamentally wouldn't do anything I disliked.
+She asked, clearly already knowing the answer wasn't a no — that much was obvious from her expression. To begin with, Yui-san basically never does anything I actually dislike.
 
-"If it's just sleeping... I don't mind."
+"If it's just sleeping, then... I don't mind."
 
-I slipped under the futon and lay on my back.
+I slipped under the futon and lay down on my back.
 
-　Yui propped herself up on her elbow, facing me. She lifted the edge of my futon and slid her body in without hesitation.
+Yui-san propped herself up on an elbow, turned to face me, lifted the edge of my futon, and slid her body in without a moment's hesitation.
 
-As she patted my stomach gently through the futon, I started to feel like she was putting me to sleep.
+Her hand patted gently at my stomach, over the blanket, and it felt strangely like being put to sleep.
 
-"Aren't you going to sleep...?"
+"Aren't we going to sleep...?"
 
-"I will. But I want to watch you a little longer."
+"We will. But I want to look at you a little longer first."
 
-　We live in the same house, so she could see me anytime. Yui-san sometimes says things like this.
+We live in the same house, I could see her face anytime — Yui-san says things like this sometimes.
 
-When life gets hectic, it's easy to forget, but I think Yui-san surely understands that each day doesn't just come around as a matter of course.
+Caught up in the busyness of everyday life, it's easy to forget, but I think Yui-san understands, somewhere deep down, that an ordinary day isn't something you're simply guaranteed, over and over, forever.
 
-A soft, gentle hand stroked my cheek, then her fingertips traced my neckline, lightly tracing a certain spot.
+Her gentle hand stroked my cheek, and then her fingertips traced along my neck, lightly circling one particular spot.
 
-　What are you doing? When I looked at Yui-san, I noticed her eyes were fixed on my neck.
+What is she doing, I looked at her, and noticed her eyes were fixed on my neck.
 
-"...What is it?"
+"...What's wrong?"
 
-"Kanata, you're so pale, marks show up on you straight away, don't they?"
+"Your skin's so fair, marks show up fast on you."
 
-A mark? What are you talking about — just as I started to say that, I remembered when we'd bathed together.
+Marks? What's that about — I started to ask, when the memory of our bath together came rushing back.
 
-My head was foggy then, so I hadn't noticed, but I think she'd sucked my neck quite hard.
+My head had been too foolish to notice at the time, but I think she'd sucked on my neck fairly hard.
 
-"Sorry, I left a hickey."
+"Sorry, looks like you've got a hickey."
 
-I hastily pressed my hand to my neck. I knew full well that bruising wouldn't vanish that easily.
+Startled, I clapped a hand over my neck. Not that doing so would make an actual bruise disappear that easily.
 
-Yui-san grinned mischievously. Without thinking, I gave her a light jab in the side.
+Yui-san laughed, mischievous. Without thinking, I gave her side a light swat.
 
-"You did that on purpose, didn't you...!"
+"You definitely did that on purpose...!"
 
-"I didn't mean to. Sorry, forgive me."
+"Not on purpose. Sorry, forgive me?"
 
-She gently took my hand and kissed my palm. Was she really not doing it on purpose? She looked so satisfied.
+She took my hand gently and pressed a kiss to the palm. Was it really not on purpose, wearing that satisfied a face?
 
-"...Will my hair cover it...?"
+"...Will my hair cover it, do you think..."
 
-"You don't need to hide it. It's not that noticeable."
+"You don't really need to hide it. It's not that noticeable."
 
 "Really?"
 
 "Yeah, really."
 
-That delighted look on her face was definitely fake. It’s not like anyone’s going to see me naked, and it’s not like it’s going to cause any trouble, but I decided I’d check properly in the mirror tomorrow.
+That pleased expression was definitely a lie. Not like anyone's going to see me undressed, so it's not really a problem — but I decided I'd check properly in the mirror once morning came.
 
-My heart was pounding steadily. In this state, would I be able to sleep tonight?
+My heart pounded, steady and quick. Would I even be able to sleep tonight, in a state like this?
 
-This was only the second time I’d slept with Yui-san. The night we watched the fireworks, I’d just slept beside her.
+This was the second time I'd slept beside Yui-san. The night we watched the fireworks, we'd just slept side by side, nothing more.
 
-Even that had made me so nervous I couldn’t sleep properly.
+And even that alone had been enough to leave me too tense to sleep well.
 
-　But even though I'm nervous and my heart's pounding, strangely, I don't dislike it.
+But even though I was tense, even though my heart was racing, strangely, I didn't hate it.
 
-I vaguely think that the girls Yui-san plays with must know so many sides of her that I don't know.
+The girls Yui-san plays around with, I thought, distantly — they must know this side of her too, this Yui-san I don't get to see.
 
-That night she didn't come home, and that night too, someone I didn't know slept like this in her arms.
+That night she didn't come home, and that other night too — some girl I'll never know had fallen asleep in these same arms, just like this.
 
-I grip the hem of Yui-san's yukata tightly.
+I gripped the hem of her yukata tight.
 
-"...Do you always do this when you sleep with other girls?"
+"...When you sleep with other girls, do you always do this for them too?"
 
-At that question, Yui-san's hand, which had been stroking my hair, stopped abruptly.
+The moment I asked, the hand that had been stroking my hair went completely still.
 
-"...What's wrong, all of a sudden?"
+"...What's this, all of a sudden?"
 
-Even if I asked, Yui-san wouldn't answer. That's right—she knows that if she said anything, I'd start saying troublesome things. The clever girl must be rapidly thinking up an excuse that won't upset me.
+Asked that, Yui-san didn't answer. Even if I asked, of course she wouldn't — she knows perfectly well that saying yes would send me spiraling into being difficult about it, so, sharp as she is, she was probably already spinning through excuses that wouldn't upset me.
 
-"Haven't I told you many times? That you're special. I don't do this with anyone else."
+"I've told you plenty of times, haven't I? That you're special, Kanata. I don't do this with anyone but you."
 
 "...Why am I special?"
 
 "Because I like you."
 
-"You absolutely say the same thing to everyone. You're kind to everyone, Yui-san. That's why everyone ends up liking you."
+"You definitely say that to everyone. You're kind to everyone, Yui-san. That's exactly why everyone falls for you."
 
-　I couldn't quite believe it. I'd never seen how Yui-san interacted with other girls, so it was all just speculation.
+I can't fully believe it. I've never actually seen how Yui-san treats other girls, so it's really nothing but my own imagination either way.
 
-But Yui-san dismissed it flatly.
+But Yui-san denied it, easily, flat out.
 
-"That's not true. You're misunderstanding. Everyone just likes my fingers."
+"That's not it. You're misunderstanding something, Kanata. Everyone just likes my fingers."
 
-Her bluntness made my heart ache.
+The bluntness of it hit like a small, sharp ache in my chest.
 
-　Yui doesn't play with troublesome girls.
+Yui-san doesn't play around with high-maintenance girls.
 
-But isn't that just her subtly pressuring them with "If you want to play with me, don't cause trouble," without ever bothering to find out what they really feel?
+But isn't that just Yui-san quietly pressuring them — *don't be difficult if you want to keep playing with me* — rather than actually trying to understand what they really feel?
 
-If that weren't the case, there'd be no explanation for that mountain of historical drama Blu-ray sets Yui brought home.
+If that weren't true, there'd be no explaining that mountain of Taiga drama Blu-rays she'd brought home.
 
-—Judging by how she tilted her head in puzzlement that day, I reckon she still doesn't realise it was all Ritsu's scheme.
+—Though, from how puzzled she'd looked that day, tilting her head, I don't think she's caught on yet that it was all Ritsu-san's scheme.
 
-"...Isn't that contradictory? You like me, so why are you having sex with other girls?"
+"...Isn't that a contradiction? You like me, and yet you're sleeping with other girls?"
 
-"No, really, lately I haven't been doing much..."
+"No, honestly, not really that much lately..."
 
-"Haven't been doing much" means it's not zero, after all.
+Not that much — meaning it's still not zero, then.
 
-　Well, we're not lovers, and I'm not fulfilling her desires, so I've no right to blame her if those desires turn elsewhere.
+Well, we're not dating, and I'm not meeting her needs, so I don't really have the right to blame her for turning that desire elsewhere.
 
-"You're being disloyal, aren't you, Yui-san? If... I ended up falling for you, would you take responsibility?"
+"You're really unfaithful, Yui-san, aren't you. If... if I ended up falling for you, would you actually take responsibility for that?"
 
-When I said it, pouting my lips accusingly, Yui-san blinked several times in quick succession.
+I said it, pouting, accusatory, and Yui-san blinked, several times, rapid.
 
-"Responsibility... hmm. I don't know. We couldn't get married... couldn't have children either... Hmm, it's difficult, isn't it?"
+"Responsibility... hm. I don't know, we can't get married, can't have kids... Yeah, that's a tough one."
 
-Marriage, children – is that what "responsibility" means to Yui? Saying something like that, I think it's absolutely impossible in Japan today.
+Marriage, kids — is that what "responsibility" means to her? Even bringing that up, I think, in Japan right now, that's simply not possible.
 
-A relationship that can be easily established between opposite sexes with a mere piece of paper is something that, no matter how hard you struggle, is difficult to attain between same sexes.
+Something a piece of paper makes effortless between a man and a woman is, no matter how hard you fight for it, genuinely difficult to secure between two women.
 
-"...Marriage and children? Are you thinking that far ahead, Yui-san?"
+"...Are you really thinking that far ahead, marriage, kids, all of that, Yui-san?"
 
-"It's not that far ahead. You might not understand now, Kanata."
+"It's not really that far off. Though maybe you can't quite understand that yet, at your age."
 
-"...Is that why you don't have a lover, Yui-san?"
+"...Is that the real reason you don't date anyone?"
 
-When I asked timidly, Yui-san gave a faint smile. A smile that could be interpreted as either right or wrong.
+I asked, hesitant, and Yui-san let out a small laugh. A smile that could have meant either yes or no.
 
-"Well, it's not the only reason... But no matter how much I like someone, there are things I absolutely cannot give. Since breaking up is inevitable once we start dating, it would only hurt the other person. That's why I don't have girlfriends."
+"Well, that's not the only reason, but... No matter how much I like someone, there are things I can never give them. If dating someone means the ending is already decided, all it does is hurt them — that's why I don't do girlfriends."
 
-Yui-san's resolve, stated so decisively, seemed far firmer than I had imagined.
+The resolve in her voice, stated so plainly, felt far firmer than I'd expected.
 
-"So... I can't take responsibility, and I can't make promises... but even so, I like you, Kanata. Is that not enough?"
+"So... I can't take responsibility, and I can't make promises either... but even so, I do like you, Kanata. Is that not enough?"
 
-Her gentle hand caressed my cheek tenderly. She's such a loving person, so why is she so stubborn?
+Her gentle hand stroked my cheek, fond. Someone this capable of deep affection — why is she still this stubborn about it?
 
-My father said Yukiyasu-san was stubborn like him, but I think Yui-san is just as stubborn.
+My own father once said Yukiya-san takes after their father in his stubbornness. I think Yui-san's every bit as stubborn, in her own way.
 
-"I... I don't want just 'liking' you. It's not enough. If I like someone, I want to possess them entirely and make proper promises. I want you to only have eyes for me, not look at other girls."
+"I don't... just liking me isn't enough. It's not enough. If it's someone I like, I want all of them, exclusively, and I want a real promise. I want you to only look at me, not at other girls."
 
-Hey, Yui-san. I'm talking to you. I stare intently into those eyes and pour out my feelings.
+Hey, Yui-san. This is what I'm telling you. I stared straight into her eyes and threw every bit of what I felt at her.
 
-Whether she understood or not, the eyes that had been fixed on me softened into a gentle squint.
+Whether she understood or not, her eyes, watching me, narrowed gently.
 
-"Hehe..."
+"Heh..."
 
-Yui-san couldn't hold back and laughed.
+Unable to hold it back, Yui-san laughed.
 
-"...You thought it was a bother just now, didn't you?"
+"...You just thought I was being a hassle, didn't you."
 
-"Hmm, no — you're adorable. Whoever becomes Kanata's lover will be truly lucky."
+"Nn-nn, you're cute. Whoever ends up as your boyfriend or girlfriend is going to be really happy."
 
-Why imagine my future with someone else? Don't you like me? If so, why can't Yui-san picture a future with me?
+Why is she picturing my future with someone else entirely? Don't you like me? If you do, why can't you picture a future with me in it?
 
-"Yui-san... you say you like me, yet you don't want to be my girlfriend. You can't know whether we'd break up or not without trying, can you?"
+"Yui-san... you say you like me, and yet you don't actually want to be my girlfriend. Whether we'd break up or not — you can't know that until you actually try."
 
-"...Well, if Kanata begged me to be your girlfriend, I'd consider it."
+"...Hmm, well, if you actually asked me — begged me to be your girlfriend — I'd consider it."
 
-"Why should I be the one asking...?"
+"Why am I the one who has to ask..."
 
-　You say you like me, so you absolutely should be the one to say it.
+You're the one who says you like me, so that should absolutely be something you say first.
 
-Frustrated, I lightly punched Yui-san's stomach, and she laughed.
+Annoyed, I gave her stomach a light punch, and Yui-san laughed.
 
-"Come on, let's sleep now. We've got an early start tomorrow. We're going to eat black eggs, aren't we?"
+"C'mon, let's sleep already. Early start tomorrow too. You want to go eat the black eggs, don't you?"
 
-"You always dodge it like that. I hate that about you, Yui-san."
+"You always deflect like this. I hate that about you, Yui-san."
 
-"Don't say you dislike me. I adore you, Kanata."
+"Don't say you hate me. I really, really like you, Kanata."
 
-Smoothly, an arm slipped between my pillow and neck. Before I knew it, it had wrapped around my shoulders, pulling me close, fitting me perfectly within its embrace.
+Her arm slid smoothly between the pillow and my neck. Once it reached my shoulder, I was pulled in close, folding neatly into her embrace.
 
-She was giving me her arm as a pillow. I felt an unexpected pang of emotion. Enveloped in her lovely scent, I closed my eyes.
+An arm pillow. Unexpectedly, my heart gave a small, helpless flutter. Wrapped in that good scent, I closed my eyes.
 
-Oh well. It's warm and comfortable, so I'll let her get away with it today.
+Fine, whatever. It's warm, it feels good — I'll let myself be deflected, just for tonight.
 
-　Even though you say you like me, you refuse to be mine. I truly can't stand how hateful you are.
+Saying you like me, and yet never letting yourself become mine — I really do resent you for that, more than I can say.
 
-"...I'm sorry for being so sneaky. I'll talk properly someday. Just let me stay like this a little longer."
+"...Sorry for being unfair. I'll tell you properly someday. Just a little longer, let me stay like this."
 
-The voice whispering in my ear was unusually weak, unlike the usual Yui-san.
+The voice whispered against my ear sounded weaker than usual, nothing like the Yui-san I know.
 
-Even if Yui-san still has something she can't tell me, I felt it was alright for now.
+Even if there's something Yui-san still can't tell me yet, right now, I felt like that was okay.
 
-　Every time I saw this vulnerable side of her, I found myself unable to say anything.
+Every time I catch a glimpse of that fragile side of her, I find I can't say anything back at all.
 
-Because I'd come to realise that Yui-san wasn't as strong as she appeared.
+Because I've learned, by now — Yui-san isn't nearly as strong as she looks.
 
-I'm certain it was precisely that part of you that I fell in love with.
+I think that's exactly the part of you I fell in love with.
+
+---
+
+**Notes:**
+
+- Yui's "everyone just likes my fingers" line is one of the bluntest, most self-deprecating things she's said about herself so far — a sharp contrast to her usual deflecting humor, and Kanata's narration registers it as a real wound rather than a joke.\
+- The marriage/children exchange is the most direct articulation yet of *why* Yui refuses relationships — framed as protecting partners from a foreclosed future rather than simple commitment-phobia, which recontextualizes her "no girlfriends" rule established all the way back in Episode Three.\
+- Closing line ("I think that's exactly the part of you I fell in love with") is the first unhedged, unqualified "I love you" — not directed at Yui aloud, but no longer wrapped in denial or deflection either.\
+- No content requiring a censor mark this episode — stays at emotional/verbal intensity throughout.
+
+Episode Thirty-One — 「結衣さんの、好きにして」("Do Whatever You Want With Me, Yui-san") — whenever you're ready.

@@ -21,14 +21,14 @@ August had arrived in the blink of an eye, and now, before I knew it, departure 
 
 A brief goodbye to Japanese summer, and to the sound of the cicadas.
 
-Once the bags were loaded, Yui-san opened the passenger door for me, and I climbed into her beloved car.
+Once the bags were loaded, Yui-san opened the passenger door for me, and I climbed into her beloved car.\
 I never know when she washes it, but Yui-san's car is always spotless. Maybe having a garage helps.
 
 Apparently a hand-me-down from her brother, it's a bit much for a college student to be driving around in, but somehow Yui-san makes it work.
 
 According to her, "Yuki-nii loves cars, so he trades his in every three years."
 
-The car eased smoothly toward the airport. Moving this much luggage by train would have been a nightmare.
+The car eased smoothly toward the airport. Moving this much luggage by train would have been a nightmare.\
 I sent a small, silent thanks to Yui-san's brother, someone I'd still never met.
 
 *
@@ -37,10 +37,10 @@ When I'd first come back to Japan, I'd been so homesick, so unbearably lonely. N
 
 There's no question whose fault that is. The person sitting right beside me.
 
-I studied Yui-san's profile, lit by the morning sun.
+I studied Yui-san's profile, lit by the morning sun.\
 I'd realized, back at the aquarium the other day, that I loved her profile while driving, and the hands resting on the wheel.
 
-If I could've stayed in Japan, she would have taken me so many more places.
+If I could've stayed in Japan, she would have taken me so many more places.\
 Time kept pressing closer, minute by minute. I love my father, my mother, my little brother, but right now...
 
 "...I don't want to go back."
@@ -99,7 +99,7 @@ Back then I'd been a wreck of nerves, second-guessing myself right up until boar
 
 Not that regretting it now could undo a decision already made.
 
-I'd been so anxious, at first, about whether things with Yui-san would even work out.
+I'd been so anxious, at first, about whether things with Yui-san would even work out.\
 My father had said, brimming with confidence, "She's my best friend's daughter, you two are bound to get along" — but I'd never once lived with anyone outside my family before.
 
 Looking back now, that worry had been completely unfounded.
@@ -110,7 +110,7 @@ But the person who showed up at the airport shattered that image in about every 
 
 I'd assumed, being a wealthy heiress, she'd show up in a dress, maybe with an attendant trailing behind — but no matter how hard I scanned the airport, no one like that was anywhere in sight.
 
-When I called her, a woman in a black cap waved at me, and I remember being genuinely stunned.
+When I called her, a woman in a black cap waved at me, and I remember being genuinely stunned.\
 Right, she'd been wearing those same sneakers at the aquarium too, come to think of it. The black-and-white Nikes.
 
 Dressed down as she was, her glossy long black hair and sharply defined features were so striking that I remember thinking I'd never seen anyone that beautiful.
@@ -125,17 +125,17 @@ But that she liked women — honestly, I hadn't seen that coming at all, not at 
 
 *
 
-Once check-in was done and I finally had my hands free, restlessness crept in all at once.
+Once check-in was done and I finally had my hands free, restlessness crept in all at once.\
 Time always seems to move impossibly fast when I'm with Yui-san.
 
 I have to go now. But I don't want to be apart from her.
 
-I stopped in front of security and turned back toward Yui-san.
+I stopped in front of security and turned back toward Yui-san.\
 This is as far as she can walk with me. She can't come any further than this.
 
 I took her hand gently and looked up at her. Those endlessly kind black eyes were watching me.
 
-Why, right now, did I so desperately want her to hold me?
+Why, right now, did I so desperately want her to hold me?\
 Even knowing I couldn't do something like that in public.
 
 "...I'll call you."

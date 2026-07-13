@@ -1,243 +1,247 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 3
 parent: First-year university student, autumn
 sequence: 23
-title: "Episode 23: When Did I Become Yui-san's?"
+title: "Episode Twenty-Three: Since When Did I Become Yours, Yui-san"
 ---
-Episode 23: When Did I Become Yui-san's?
+## Episode Twenty-Three: Since When Did I Become Yours, Yui-san?
 
-"...So, despite Ritsu-san kindly offering to help, it seems I won't be preparing anything for Yui-san's birthday after all."
+\
+"...So, long story short, even though Ritsu-san went out of her way to help, I ended up not preparing anything at all for Yui-san's birthday present."
 
-An evening café.
+Evening at the café.
 
-Muttering discontentedly over the counter, Ritsu-san — who'd dropped by after university — stared at me with a puzzled expression while poking at her cake with a fork.
+I muttered it, faintly dissatisfied, across the counter, and Ritsu-san, stopping by after class, stabbed her fork into her cake with a puzzled look.
 
-　Yui-san's birthday was now just around the corner.\
-It was only the other day that when I'd asked her directly what she wanted for her birthday present, she'd told me not to prepare anything.\
-I'd wanted to give her something tangible myself, and frankly, I couldn't deny feeling rather put out.
+Yui-san's birthday was practically right around the corner now.\
+Just the other day, when I'd asked her directly what she wanted, she'd told me not to bother preparing anything at all.\
+I'd wanted to give her something tangible, something that would actually last — and honestly, I couldn't deny feeling more than a little unsatisfied about how that turned out.
 
-"...What on earth is she up to?"
+"...I wonder what she's actually planning."
 
-Leaning one elbow on the counter, Ritsu-san tilted her head in puzzlement.
+Ritsu-san propped an elbow on the counter, tilting her head, puzzled.
 
 "What advice did you give the other girls? About presents for Yui-san?"
 
-Ritsu had previously said, "If the other girls ask for my opinion, I'll just tell them something Yui probably wouldn't want."
+Ritsu-san had told me before — if anyone asked her advice, she'd just steer them toward something Yui-san probably didn't need.
 
-Since I couldn't give Yui-san a present directly from my hands, I must admit I wasn't exactly thrilled about someone else's gift leaving a tangible trace.
+Given that I couldn't put anything into Yui-san's hands myself, honestly, the idea of some other girl's gift actually taking physical form in her house didn't sit entirely well with me.
 
-So I was a bit curious. What would the other girls give her?
+So I was a little curious. What everyone else was giving her.
 
-"Well, a historical drama Blu-ray set. I told every girl who asked me to suggest a different series."
+"Hmm, let's see, a Taiga drama Blu-ray set. Told every single girl who asked a different series."
 
-"Eh, historical dramas...?"
+"Wait, Taiga...?"
 
-Why historical dramas?
+Why a historical drama, of all things.
 
-Yui does like films, true. But even after living together for a while, I've never once seen her watching a historical drama.
+It's true Yui-san likes movies. But in all the time we've lived together, I've never once seen her watching a Taiga drama.
 
-"Ritsu, I reckon Yui's more into Western films. Just the other day, she was watching something incredible. Full of motorbikes and trucks, and people in weird masks and white makeup..."
+"Ritsu-san, I'm pretty sure Yui-san's more into Western films. Just the other day she was watching something intense — motorcycles and trucks everywhere, weird masked guys, someone with white face paint..."
 
-"Ah, I know that one. I've seen it too. What was it called... can't remember now."
+"Ah, yeah, I know that one. Watched it too. What was the title again... forgot."
 
-Ritsu didn't seem surprised at all. From the look of it, she seemed to have known all along that Yui was into Western films.\
-　So why the historical drama? Noticing my puzzled look, Ritsu gave a knowing smile.
+Ritsu-san showed zero surprise at any of this. Which made me suspect she already knew perfectly well Yui-san was into Western films from the start.\
+So then, why the Taiga drama? Noticing me tilt my head, confused, Ritsu-san grinned.
 
-"Well, historical dramas... I'm hooked on them."
+"That's 'cause I'm into Taiga dramas lately."
 
-I couldn't hide my surprise. Only Ritsu would do something like this... It seemed her plan was to simply divert the gift meant for Yui to herself. I couldn't help but laugh at how thorough she was.
+I couldn't hide my astonishment. Ritsu-san, through and through. Apparently her whole plan was to have Yui-san's own present quietly redirected straight to herself. I couldn't help laughing — what a shameless, well-executed scheme.
 
-"...What were you planning to give Yui-san, Ritsu-san?"
+"...What are you actually planning to give Yui-san, Ritsu-san?"
 
-As Yui-san's best friend, Ritsu-san surely had something prepared.\
-Understanding their wonderful relationship, I strangely felt no rivalry towards Ritsu-san.
+Ritsu-san's Yui-san's closest friend, so surely she'd prepare something real.\
+Understanding what a wonderful bond they share, I never feel any strange rivalry toward Ritsu-san, oddly enough.
 
-"Salmon jerky."
+"Dried salmon jerky."
 
-With the last bite of cake in her mouth, Ritsu told me this with a deadpan expression. For a moment, the word felt so utterly unrelated to birthdays that I couldn't comprehend it.
+Ritsu-san popped the last bite of her cake in her mouth and delivered that with a completely straight face. For a moment, the word was so wildly disconnected from "birthday" that I genuinely couldn't process it.
 
-"Salmon jerky...? That's not a present, it's a souvenir from Hokkaido, right...?"
+"Salmon jerky...? That's not a present, that's a Hokkaido souvenir, isn't it...?"
 
-Ritsu had just returned from a "trip" to Hokkaido with Yuri the other day.\
-　Yuri gave me a brown bear keyring as a souvenir too. I haven't quite found a use for it yet, so it's sleeping in a drawer in my room.
+Ritsu-san had just gotten back from her "expedition" to Hokkaido with Yuuri, after all.\
+I'd gotten a brown bear keychain as a souvenir from Yuuri too. Still not sure what to do with it — currently asleep in a drawer in my room.
 
-"It's fine, really. No need to give me anything special."
+"I don't need to give her anything fancy, honestly."
 
-Is that how it is? I'm not sure. But then again... it is Ritsu-san and Yui-san's third birthday, and thinking about it, that makes sense.
+Is that just how it goes, between them? I don't fully get it. But then again — this is Ritsu-san and Yui-san's third birthday together, so maybe it makes sense, when I actually think about it.
 
-　Perhaps it's just that I feel this particular birthday of Yui-san's, the first one I'm celebrating with her, holds a special significance.
+Maybe I'm just the one making a bigger deal out of it, since this is my first birthday celebrating Yui-san.
 
-"...Yui-san, she's having a dinner party that day, right? So it seems she'll be coming home late."
+"...Yui-san's got that dinner that day, right? So she'll probably be back late."
 
-"Ah, with her father, right? It is her birthday after all."
+"Ah, with her dad, right? It's her birthday after all."
 
-"She'll be having a lovely meal, won't she? And I won't be able to do anything particularly birthday-like for Yui-san..."
+"She'll get a good meal out of it, I'm sure, but that means there's really nothing I can do for her that actually feels like a proper birthday celebration..."
 
-Prioritising family is only natural. There's no way her father wouldn't want to celebrate his daughter's birthday, which only comes once a year.
+Prioritizing family is understandable. No father would want to skip celebrating his daughter's birthday, the one day a year it comes around.
 
-But if I can't even manage a meal, let alone a present, there really isn't much I can do.
+But if I can't even manage a meal, let alone a present, there's really only so much left that I can actually do.
 
-"Ah, I know. How about I go and buy some champagne for you? Kanata-chan, you're nineteen, so you can't buy alcohol yet, right?"
+"Oh, right. In that case, want me to grab you some champagne? You're only nineteen, Kanata-chan, so you can't buy alcohol yourself yet."
 
-"Eh, is that alright?"
+"Eh, is that really okay?"
 
-"Of course. When she gets back, have another drink and celebrate properly. Yui will absolutely love it."
+"Of course. Once she's home, celebrate properly with a drink together. Yui'll definitely be happy."
 
-Somehow, I felt that Ritsu-san still cherished Yui-san as a friend, despite everything.\
-I was sure Yui-san must also think of Ritsu-san as special, in a different way.
+Ritsu-san really does treat Yui-san like a genuinely important friend, despite everything.\
+Yui-san, I'm sure, thinks of Ritsu-san as someone special too, in her own particular way.
 
-When I finished my part-time job and got home, Yui-san had apparently just returned too, and we bumped into each other right at the front door.
+*
 
-"Ah, Kanata, welcome home."
+Getting home from my shift, Yui-san had apparently just gotten back too, and we crossed paths right at the front door.
 
-"Welcome home, Yui-san. You were late today, weren't you?"
+"Ah, Kanata, welcome back."
 
-Yui-san opened the door and gestured for me to go in as if it were the most natural thing, so I went in first, just as naturally.
+"Welcome back to you too, Yui-san. You're late today."
 
-"My dad called me in today, so I had to pop by the office and ended up late."
+Like it was nothing at all, Yui-san opened the door and gestured me in, and, just as naturally, I went in first.
 
-Bending down slightly to take off my shoes, I caught a faint whiff of Yui-san's scent. It smelled different from when she was at home, and as always, it made my heart flutter.
+"Dad called me in today, so I stopped by the company, that's why I'm late."
 
-　The pink perfume bottle, which should have been nearly empty, had been replaced with a new one. Realising my request for her not to change it had been granted made me truly happy.
+Bending slightly to take off her shoes, her scent drifted up, softly. It's different from her usual at-home scent, and it never fails to stir something in me.
 
-As soon as I got home, I plopped down on the living room sofa. Yui called from the kitchen, "Would you like something to drink?" Taking her up on the offer, I asked for hot milk today.
+The pink perfume bottle that had been running low had, at some point, quietly turned into a fresh new one, and realizing my request — *please don't change it* — had actually been honored made me genuinely happy.
 
-　Yui-san is so quick to oblige, doing anything without complaint, that I feel myself becoming increasingly useless.
+The moment we got home, she dropped onto the living room sofa, and Yui-san called from the kitchen — *want something to drink?* Taking her up on it, I asked for hot milk tonight.
 
-But — I'm glad she spoils me. I can't help feeling that way, so there's nothing I can do about it.
+Yui-san really is so quick on her feet, doing anything asked of her without a single complaint, and it makes me feel like I'm slowly, steadily turning into a hopeless case.
 
-A highball and hot milk are placed on the coffee table.
+But — being spoiled by her makes me happy. And the fact that I can't help feeling that way is exactly the problem.
 
-The age gap separating her and me. Just two years, yet that two-year difference shows itself here too.
+A highball and hot milk, lined up together on the coffee table.
 
-　After Yui-san settled beside me, she tilted her glass and sent the alcohol straight down her throat in one gulp. Her pale throat moved, and my gaze was transfixed. Is it really alright for her to drink like that? She never shows it, so she must be incredibly strong with alcohol... though it seems she does overdo it occasionally.
+The wall of age separating us. Only two years, and yet those two years show up even here, in something this small.
 
-"Come to think of it, will your brother be coming to your birthday dinner?"
+Once Yui-san settled in beside me, she tipped her glass back and poured the alcohol straight down her throat in one go. Her pale throat moved, and my gaze caught on it, helpless. Drinking that fast, was she really okay? Her expression never changes at all, so she must genuinely hold her liquor well... though there have been nights she's clearly had too much.
 
-　I'd been wondering about it, so I asked.
+"Come to think of it, is your brother coming to the dinner for your birthday?"
 
-Yui-san has an older brother. She'd mentioned before that he didn't get on with her father, but I'd assumed she'd spend her birthday with her family.
+I asked it, a small question that had been nagging at me.
 
-But, ignoring my thoughts, Yui-san laughed and shook her head.
+Yui-san has an older brother. She'd mentioned before that he and her father don't get along, but I figured a birthday, at least, would be spent together as family.
 
-"Yuki-nii and Dad really don't get along. If we had dinner together, it wouldn't be a birthday celebration, it'd be a wake."
+But contrary to what I'd assumed, Yui-san laughed and shook her head.
 
-　Eh, that bad? I was honestly a bit surprised. I recalled something my own father had said when I visited home.\
-I think he mentioned they still hadn't reconciled.\
-The fact my father was aware of it suggested it must be a deep-rooted problem going back a long way.
+"Yuki-nii and Dad really don't get along, so if we all ate together, it'd turn into a funeral wake instead of a birthday party."
 
-"...Is that so?"
+Eh, it's that bad between them? I was honestly a little surprised. I thought back to what my own father had said, back when I visited home.\
+He'd asked, hadn't he, whether the two of them had patched things up yet.\
+If my father even knew to ask that, this had to be some deep-rooted issue, going back a long way.
 
-"Yes. It's really tough being caught in the middle, you know."
+"...I see."
 
-Yui let out a deep sigh. She must be going through a lot. Family discord isn't exactly desirable. Especially in a family of only three.\
-It's sad to see them drift apart.
+"Yeah. Being stuck in the middle's rough too."
 
-Thinking that far, I suddenly found myself wondering what kind of person Yui-san's brother was.
+Yui-san let out a deep sigh. She must genuinely struggle with it. Family rifts are never something you'd wish for. Especially in a family of only three people.\
+Falling apart like that — it's sad.
 
-I want to meet him, talk to him. My desire to know more about Yui-san just keeps growing.
+Thinking about all of that, curiosity welled up, unbidden — what kind of person is Yui-san's brother, actually?
 
-"...I'd like to meet him, Yui-san's brother."
+I want to meet him, talk to him. My desire to know more about Yui-san just keeps growing, without limit.
 
-As I murmured that, Yui-san's hand, which had been about to touch her glass to her lips, froze completely. I stared at her, wondering if I'd said something odd.
+"...I'd like to meet him. Your brother, Yui-san."
+
+I murmured it, and Yui-san's hand, mid-reach for her glass, went completely still. Had I said something strange? I studied her.
 
 "Um, Yui-san?"
 
-Feeling puzzled, I continued, "Is something wrong?" Yui-san furrowed her beautifully shaped brows. The glass remained suspended in mid-air, never reaching her lips.
+Puzzled, I added, *is something wrong?*, and Yui-san's well-shaped brows drew together. Her glass hovered midair, never quite reaching her mouth.
 
-"Do you want to see him? Yuki-nii?"
+"You want to meet him? Yuki-nii?"
 
-"Eh... yes, I suppose I'd like to meet you..."
+"Eh... yeah, I think I'd like to meet him..."
 
 "...Kanata, do you like my face?"
 
-"Eh?"
+"Huh?"
 
-What on earth? Asked such an abrupt, out-of-the-blue question, I found myself staring back intently at the face looking straight at me.
+What, out of nowhere. Thrown by such an unexpected question, I looked back, meeting her steady gaze head-on.
 
-"...On the contrary, is there anyone who dislikes Yui-san's face?"
+"...If anything, is there anyone out there who doesn't like your face, Yui-san?"
 
-　The truth slipped out. When we first met, I was genuinely stunned. I thought, 'People this beautiful exist outside of celebrities?' Now I can look back at her, but at first, she was so beautiful I couldn't even meet her gaze.
+The honest truth slipped out before I could stop it. The first time we met, I'd genuinely been stunned. *People this beautiful actually exist outside of celebrities.* Even now, I can look back at her properly, but at first she was too beautiful to even meet her eyes directly.
 
-But, even though I meant it as a compliment, Yui-san's brow furrowed even more, which I found odd.\
-When I complimented her appearance before, she didn't seem particularly bothered, probably used to it.
+But even though I'd meant it as a compliment, the crease between Yui-san's brows only deepened, and I thought — odd.\
+Last time I'd complimented her looks, she hadn't seemed bothered at all, like she was used to hearing it.
 
-"So, if I were a man, would you want to date me?"
+"Then, if I were a man, would you want to date me?"
 
-The sudden question made me stiffen. If she were a man? I'd never considered that. Because Yui-san is unmistakably a woman, both in appearance and character; I've never even sensed any masculine traits about her.
+Asked so suddenly, my spine went rigid. If she were a man? I'd never once considered that. Because Yui-san is unmistakably a woman, inside and out, and I've never once sensed anything remotely masculine about her.
 
-"...Regardless of gender, I dislike people who are unfaithful."
+"...Regardless of gender, I don't like unfaithful people."
 
-I blurted that out, desperately trying to dodge the question, but Yui-san pressed on.
+Grasping at an escape from the question, I said it, half-desperate, and Yui-san pressed further.
 
-"What if he were devoted?"
+"What if I were devoted? Faithful to just one person?"
 
-My escape route was cut off. I felt cornered on a sheer cliff. Given that condition, my answer could only be one.
+Every escape route, cut off. It felt like being backed onto a cliff's edge. Presented with that condition, there was only one possible answer left to give.
 
-Frankly, Yui-san is popular even as a woman, so am I the only one who thinks gender doesn't matter at this point?\
-Whether Yui-san were a man or a woman, I don't think she'd be much different from how she is now.
+To begin with, Yui-san's popular even with women — so is gender really even relevant at this point? Maybe I'm the only one who thinks so.\
+Whether she were a man or a woman, I don't think much about Yui-san would actually change.
 
-"Er... a handsome, kind, devoted heir to a major corporation, right? If someone like that existed in real life, wouldn't it be impossible not to like them?"
+"Um... heir to a major corporation, gorgeous, kind, faithful — a person like that? If someone like that really existed, wouldn't it be strange *not* to fall for them?"
 
-There's no one in Japan who'd turn down such a prime catch. Assuming such a perfect person actually existed, that is.\
-Having said that much, Yui-san made a face like she'd swallowed a bitter pill and sighed deeply.
+There's no one in all of Japan who'd turn down a catch like that. Assuming, of course, someone that perfect actually existed.\
+The moment I said it, Yui-san's face twisted like she'd bitten into something bitter, and she let out a long, deep sigh.
 
 "Then, no."
 
-Eh? No? What? I couldn't follow the thread and tilted my head in confusion.
+Eh, no — no to what? Unable to follow the thread, I tilted my head.
 
-"I absolutely won't let you meet Yuki-nii."
+"I'm never letting you meet Yuki-nii."
 
-Hearing that, it clicked – this wasn't about "if Yui-san were a man," but about "Yukiya-san."
+Hearing that, it finally clicked — this wasn't about "if Yui-san were a man" at all. It had been about Yukiya-san, specifically, this whole time.
 
-Hang on, if that's the case, I might have just said something incredibly stupid. About Yukiya-san, saying "it'd be impossible not to like him"...
+Wait, if that's true, then I might have just said something completely outrageous. *Wouldn't it be strange not to fall for* Yukiya-san...
 
-Yui-san downed her highball in one gulp.
+Yui-san tipped her highball back and drained it in one go.
 
-"...Yeah, I suppose so. Kanata, you're heterosexual, aren't you? If there was a man with the same face as me, you'd prefer him, wouldn't you?"
+"...Right, of course. You're straight, Kanata. If there were a man out there with my exact face, of course you'd prefer him."
 
-She said it with a sulky, pouty expression, so I instinctively grabbed Yui-san's hand in panic.
+She said it, sulking, clearly put out, and, panicking, I grabbed her hand without thinking.
 
-"Yui-san, it's a misunderstanding. When I said I wanted to meet your brother, I didn't mean I wanted you to introduce us..."
+"Yui-san, that's a misunderstanding. When I said I wanted to meet your brother, I didn't mean I wanted you to introduce us so that—"
 
-She slammed her highball glass down on the coffee table and glared at me with a look of pure resentment.
+Yui-san set her highball glass down on the coffee table with a sharp thud and glared at me, resentful.
 
-Had I perhaps stepped on Yui-san's landmine? I could feel sweat trickling down my back.
+Oh no, I might have actually just stepped on a landmine. I could feel a cold trickle of sweat run down my back.
 
-"Kanata"
+"Kanata."
 
-"Y-yes..."
+"Y-yes...?"
 
-Yui-san's white arm stretched out, drawing my body close. Without resisting, I slipped completely into her embrace. The sweet scent of her perfume filled me, and timidly, I wrapped my arms around her back and held her back.
+Her pale arm reached out and pulled me close. I let myself be drawn in without resistance, folding neatly into her arms. Yui-san's sweet perfume surrounded me, and, tentative, I wrapped my own arms around her back, hugging her in return.
 
-I had to make it clear that wasn't my intention. The strength of her arms squeezing me tight felt like it was clenching deep within my chest.
+I need to properly explain that wasn't what I meant. The strength of the arms holding me tight squeezed something deep in my chest.
 
-"...I thought you meant what if Yui-san were a man. I wasn't imagining your brother, you see."
+"...I thought you were asking hypothetically, if you were a man. I wasn't picturing your actual brother at all."
 
-Ah, no. That's not it. That's not what I meant to say. I've never once thought I'd want to date her if she were a man.\
-Whatever I say now, it just feels like digging myself into a hole.
+Ah, no. That's not it either. That's not what I want to say. I've never once thought I'd rather date a man with her face.\
+Every word I try just digs the hole deeper.
 
 "Hmm..."
 
-　A dissatisfied voice murmurs close to my ear. It tickles me to realise even Yui-san can sulk sometimes. It’s like everything’s reversed.\
-Come to think of it, when she kissed me for the first time, she was definitely like this too.
+A faintly dissatisfied sound came from right by my ear. Even Yui-san sulks sometimes, apparently, and it left me feeling strangely, ticklishly fond of her. Almost the reverse of our usual dynamic.\
+Now that I think of it, she'd been like this too, hadn't she, the very first time she kissed me.
 
-"...I won’t fall for your brother."
+"...I'm not going to fall for your brother."
 
 "Really?"
 
-Somehow, Yui-san sulking feels unbearably endearing, and my cheeks relax. I never thought Yui-san was the jealous type.
+Somehow, Yui-san sulking like this felt unbearably endearing, and my cheeks softened despite myself. I never would have pegged her as the jealous type.
 
-"...Well, I suppose I won't know until I meet them, though."
+"...Well, but I guess I won't really know for sure until I actually meet him."
 
-Since she's always being mean to me, I might as well get my own back for once. With that, she pulls me even tighter and tighter.\
-I like the gentle Yui-san, but I also like these arms that occasionally pull me close like this – though that's still a secret.
+Since she's always the one teasing me, I figured — time for a little payback, just this once. The moment I said it, the arms around me tightened, harder still.\
+I love gentle Yui-san too, but I secretly love it, sometimes, when she holds me this tight, this forceful. That part, still a secret.
 
-"I absolutely won't give you to Yuki-nii."
+"I'm never handing you over to Yuki-nii."
 
 "...Since when did I become yours, Yui-san?"
 
-"From the very start. From the moment you came to this house."
+"Since the very beginning. Since the day you moved into this house."
 
-I laugh at the absurdity. But then I realise I don't dislike this forceful side of Yui-san either. Perhaps I'm rather soft on her.
+*How unreasonable*, I laughed. But finding myself thinking that even this pushy, unreasonable side of Yui-san isn't something I dislike — I'm probably far too soft on her, by now, for my own good.

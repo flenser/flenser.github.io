@@ -1,177 +1,182 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 4
 parent: First-year university student, autumn
 sequence: 24
-title: "Episode 24: It's Happier to Stay Forever Behind"
+title: "Episode Twenty-Four: Better to Never Catch Up At All"
 ---
-Episode 24: It's Happier to Stay Forever Behind
+## Episode Twenty-Four: Better to Never Catch Up At All
 
-Come to think of it, this might be the first time I've ever wanted to celebrate someone's birthday so earnestly.
+\
+Thinking back, this might be the first time I've ever wanted to celebrate someone's birthday this seriously.
 
-We're not lovers. Friends — well, not quite that either. The relationship between Yui-san and me is impossible to describe in a single word.
+Not a lover. Not quite a friend, either. What Yui-san and I are to each other really can't be summed up in a single word.
 
-　Our fathers were friends. We were senior and junior in the same faculty at the same university. To outsiders, we were simply people living under the same roof.
+Our fathers are friends. Senior and junior, same university, same faculty. From the outside, it probably just looks like two people sharing a roof.
 
-Unless my family returned to Japan before I graduated, this cohabitation would continue for the next four years.
+Unless my family suddenly moves back to Japan sometime in the four years before I graduate, this shared life is going to keep going as it is.
 
-Yui-san is now in her third year of university, with just over a year left until graduation. Thinking about that made me feel a little lonely.
+Right now, Yui-san's a third-year, with barely a year left until she graduates. Thinking about that stirs up a small ache of loneliness in me.
 
-　Standing in the kitchen, I listened to the clink of the stirrer against the ice in the glass, staring at its clear, golden liquid.
+Standing in the kitchen, listening to the clink of the muddler and ice against the glass, I stared at the clear, golden liquid inside.
 
-After graduation, Yui-san is set to join the company her father runs.\
-Even if she doesn't have to job hunt, she'll likely be busy once she starts, and the time she has to spare for me might decrease.
+Once she graduates, it's already decided — Yui-san will join the company her father runs.
 
-　Lost in thought, I suddenly snapped back to reality as my hand stirring the highball was covered from above.
+Even without job hunting to worry about, she'll surely get busier once she's actually working there, and the time she spends with me now might shrink.
 
-"...Kanata, if you stir it that much, you'll lose all the fizz."
+Lost in thought, I startled when a hand suddenly closed over mine from above, stopping me mid-stir.
 
-Yui-san, who had come into the kitchen unnoticed, said this with a half-smile. Glancing hurriedly at the wall clock, I saw the hands were almost pointing to midnight.
+"...Kanata, stir it that hard and you'll lose all the carbonation."
 
-　Tonight is the ninth. Tomorrow is Yui-san's birthday. While we're planning to celebrate properly tomorrow evening, it was me who asked her to stay in the living room until midnight.
+Yui-san, who'd apparently wandered into the kitchen without my noticing, said it, half-laughing. I glanced, startled, at the wall clock — the hands were almost at the very top.
 
-Because I wanted to be the first to say 'Happy Birthday' to Yui-san.
+Tonight is the ninth. Tomorrow is Yui-san's birthday. Of course, the proper celebration is planned for tomorrow night, but it was me who'd asked her to stay in the living room until the date actually changed.
 
-"I was lost in thought, sorry."
+Because I wanted to be the very first person to say happy birthday to her.
 
-Even though I was the one who asked her to stay, look at me now. I feel a little ashamed for getting so absorbed I forgot the time.
+"Sorry, I was just thinking about something."
 
-"What's wrong? Did something happen?"
+I'm the one who'd asked her to be here, and here I was, completely checked out. A little embarrassed, I realized I'd lost track of time entirely, caught up in my own head.
 
-Asked gently, her fingertips softly tucked my hair behind my ear.
+"What's up, something happen?"
 
-She never complains about the highball I've stirred too much, ruining it, and just says, "Thank you for making it." I can't help but wish those gentle eyes would stay fixed on me forever.
+Asked so gently, her fingertips gently tucked my hair behind my ear.
 
-"It's nothing, really. Just..."
+Not a single complaint about the highball I'd over-stirred into flatness, just a simple *thanks for making this* — and I couldn't help wishing, desperately, that those kind eyes would stay fixed on me, and only me, forever.
 
-"Hmm?"
+"It's nothing, just..."
 
-"I'm just feeling a bit sad that Yui-san is turning twenty-one."
+"Mm?"
 
-To be honest, I'm a little bothered that Yui-san used to date an older woman.\
-She tells me I'm special, that she likes me, but the fact she dated someone older than her in the past was completely unexpected.
+"It makes me sad, that you're turning twenty-one, Yui-san."
 
-It might be conceited, but I'd always assumed Yui-san preferred younger partners.
+Honestly, the fact that Yui-san once dated an older woman still bothers me a little.\
+Calling me special, saying she liked me, and then it turns out her past girlfriend was older than her — I hadn't expected that at all.
 
-"Age gaps are troublesome, aren't they? You can never quite catch up."
+Maybe it's vanity on my part, but I'd assumed, without question, that Yui-san had a thing for younger girls.
 
-"Really? ...Catching up would be lonely too. It's happier to never quite catch up."
+"Age gaps are a pain, right? You can never catch up."
 
-Yui gave a faint, lonely smile. I didn't immediately grasp what she meant.
+"You think? ...Catching up would be lonely too, in its own way. Better to never catch up at all."
 
-Staring back into those eyes, deep as the night sea, I belatedly understood the true meaning of her words.
+Yui-san smiled, faintly wistful. I didn't grasp, right away, what she meant by that.
 
-　Soon, the long and short hands of the clock were about to overlap.
+Staring back into those endlessly deep eyes, like a midnight sea, I only understood the real meaning of her words a beat too late.
 
-I see. Yui-san lost her mother at a young age. The dead don't age. The age gap only ever gets smaller.
+Right about then, the clock's long and short hands were about to align.
 
-In the not-too-distant future, she would catch up to her mother's age. How would Yui-san feel then?
+Ah. Right — Yui-san lost her mother young. The dead don't age. The gap in years only ever keeps shrinking.
 
-　If Yui-san felt lonely about it, then at that moment, I wanted to be by her side, and no one else.
+Before too long, she'll catch up to the age her own mother was. How will Yui-san feel, when that day comes?
 
-With the click of the clock's hands, I leaned in close, almost rubbing against Yui-san's shoulder.
+If she finds that lonely, when it happens, I want to be the one beside her. Not anyone else.
 
-"...Yui-san, happy birthday."
+Right as the clock ticked over with a small click, I leaned in, pressing close against her shoulder.
 
-A little later, the sound of Yui-san's smartphone, which must have been left on the coffee table, vibrated repeatedly.
+"...Happy birthday, Yui-san."
 
-Still as popular as ever, I couldn't help but smile wryly.\
-I'm glad we live together. A slight sense of superiority that I could tell her before anyone else.\
-Right now, I'm the only one who has Yui-san all to myself.
+A moment later, Yui-san's phone, left forgotten on the coffee table, buzzed repeatedly.
+
+*Still as popular as ever*, I couldn't help thinking, with a small wry smile.\
+Glad we live together. A small thrill of superiority, getting to say it before anyone else.\
+Right now, I'm the only one who gets to have Yui-san all to myself.
 
 "Thanks."
 
-An arm gently wrapped around my waist, pulling me close. As our bodies pressed tightly together, I could tell Yui-san chuckled softly.
+An arm wound gently around my waist, pulling me into an embrace. Pressed close together, I could tell Yui-san was smiling, soft, against me.
 
-"Ah well, I wish I could have celebrated your birthday too, Kanata."
+"Ahh, I wish I could've celebrated your birthday too, Kanata."
 
-"It's coming soon, you know. April's just around the corner."
+"It's coming up soon. April, and all."
 
-Yes, April would surely be here in the blink of an eye.
+That's true — April will be here in no time.
 
-Half a year had passed since I started living with Yui-san. That meant one-eighth of our time living together had already gone by.
+Six months have already passed since I started living with Yui-san. Which means an eighth of our shared life together has already gone by.
 
-　Yui doesn't have girlfriends. If she sticks to that principle, at least for the next three birthdays, I'll be the first to celebrate hers.
+Yui-san doesn't do girlfriends. If she keeps holding to that, at least for the three birthdays she has left, I'll be the only one who gets to say it first.
 
-That's fine. Even without labelling our relationship, she's definitely here beside me now.
+That's enough. Even without a name for what we are, right now, she's genuinely here, beside me.
 
-What more could I possibly ask of Yui? My heart just keeps wavering.
+What more could I possibly ask of Yui-san, beyond that? My heart just keeps wavering, endlessly, unable to settle.
 
-Tomorrow, I'll buy two shortcakes from our regular bakery and wait for Yui.
+Tomorrow, I'll buy two shortcakes from our usual cake shop and wait for her to come home.
 
-　I don't know if Yui-san will be able to eat them with her stomach full, but I'm not good with words, so I thought I'd try to show her how I feel in a tangible way.
+I don't know if she'll even have room for it after a full dinner, but since I'm no good with words, I wanted to convey my feelings to her in some tangible form, as best I could.
 
 ＊＊＊
 
-The next day. University was closed, so Yui-san started getting ready to go out in the afternoon.\
-It was a meal with her father, yet she looked somewhat reluctant, which worried me a little, but I didn't press her further.
+The next day. No classes, so Yui-san started getting ready to go out in the early afternoon.\
+Even though it was supposed to be dinner with her father, she looked oddly reluctant about it, which nagged at me a little, though I didn't push.
 
-"Right then, I'll be back by nine."
+"Alright, I'll be back by nine."
 
-Yui-san said this while checking her watch. I nodded silently, hugging Shachi on the sofa. She smiled and peered at my face.
+Yui-san said it, fastening her watch, and I nodded silently from the sofa, hugging the orca plushie, and she laughed, peering into my face.
 
-"Are you... sulking?"
+"...Are you sulking, by any chance?"
 
-She pointed it out with amusement, which I found anything but amusing.
+Called out on it, amused, which only annoyed me more.
 
-"Not at all, I'm not sulking..."
+"I'm not sulking, or anything..."
 
-"I'll be back as soon as I can."
+"I'll come home as fast as I can."
 
-As if she knew my stubborn streak inside out, she gently stroked my head before leaving.
+Gently stroking my head, like she could see right through my stubborn streak, Yui-san left.
 
-Not the place for kissing, I thought, dangling my legs sulkily on the sofa now empty of its owner.
+*No kiss, huh*, I thought, sulky, kicking my legs idly on the sofa now that the house's owner was gone.
 
-The vast house fell silent. Yui-san had lived in this huge place all this time — all alone.
+The quiet, spacious house. Yui-san's lived in a house this big — this whole time, alone.
 
-　I felt I understood, somehow, why Yui-san loved films.
+I felt like I finally, vaguely understood why she loves movies so much.
 
-In the evening, Ritsu-san arrived as promised, bearing champagne. I gratefully accepted it, but she wouldn't take payment for the crucial part.
+In the evening, Ritsu-san showed up with the champagne, exactly as promised. Grateful, I accepted it, but she wouldn't take any money for it at all.
 
-Apparently, the gift wasn't just the dried salmon. I'd had a little yesterday too, and it was so delicious I'd genuinely thought that was all for Yui-san.
+Apparently the salmon jerky hadn't been her only gift after all. I'd gotten a small taste of it yesterday too, and it had been genuinely delicious, so I'd honestly assumed that alone was her whole present for Yui-san.
 
-　I wanted to talk a little longer, but Ritsu said she had things to do and left rather abruptly, so I'm waiting for nightfall alone once more.
+I wanted to talk more, but Ritsu-san said she had somewhere to be and left quickly, and once again I was left waiting out the night alone.
 
-Is she coming back yet? I wish she'd hurry home.
+Not yet, huh. Wish she'd come home soon.
 
-The more I think about it, the more impatient I grow. The two shortcakes I bought from my favourite patisserie are waiting, waiting for that moment.
+The more I thought about it, the longer the wait stretched. The two shortcakes from our usual shop sat waiting, ready for their moment.
 
-　I killed time pacing around the house, doing chores I wouldn't normally bother with, polishing every single glass in sight.
+I wandered the house, tried cleaning things I never normally bother with, polished every glass in the place one by one, killing time.
 
-For dinner, I ordered something simple via a delivery app. That's what eating alone is like. Afterwards, I was lounging on the sofa when I suddenly realised I'd fallen asleep.
+Dinner was something simple from a delivery app. Eating alone really is like this. Sprawled on the sofa afterward, before I knew it, I'd drifted off to sleep.
 
-The sound of the doorbell ringing woke me. I glanced at the clock. It wasn't even nine yet. True to her word, she'd come back early after all.
+*
 
-Rubbing my sleepy eyes, I got up. Had Yui-san forgotten her keys? It was unusual for such a dependable person. Come to think of it, I remembered she'd taken a different bag than usual.
+The chime of the intercom woke me. I glanced at the clock, startled. Not quite nine yet. Just as promised, she'd really come home early.
 
-Without even putting on the slippers probably discarded under the sofa, I padded down the hallway.
+Rubbing sleepy eyes, I sat up. Did Yui-san forget her key? Unusual, for someone normally so on top of things. Come to think of it, she'd taken a different bag than usual today.
 
-Suppressing my eager feelings, I hurriedly turned the key and flung the door open.
+Without even bothering with the slippers kicked off somewhere under the sofa, I padded down the hallway, bare feet slapping the floor.
 
-"Yui-san, welcome home—"
+Holding back my eagerness, I fumbled the lock open and threw the door wide.
 
-My eyes met those of the tall man standing directly in front of the door. He held a large bouquet of flowers in his hands.
+"Welcome home, Yui-sa..."
 
-Perhaps startled by the force of the door opening, I recognised the colour of his irises.
+My eyes met those of a tall man standing right in front of the door. A large bouquet of flowers in his arms.
 
-　Deep, deep, like the night sea, those gentle black eyes. Over his well-defined features, a familiar likeness overlapped.
+Startled, maybe by the door swinging open so fast, his eyes widened — and I recognized that color instantly.
 
-This person, surely not—
+Deep, deep, gentle black eyes, like a midnight sea. Familiar features, layered over a face I already knew well.
 
-"Oh, wait, is Yui out?"
+This person, could it be—
 
-Suddenly asked that, I reflexively nodded before he could introduce himself.
+"Oh, is Yui... out somewhere, by any chance?"
 
-"Should've checked her schedule, my bad. Ah, you must be Kanata-chan... right?"
+Caught off guard by the sudden question, I nodded on reflex, before I'd even managed to introduce myself.
+
+"Should've checked her schedule first, my mistake. Ah, you're Kanata-chan... right?"
 
 "...Ah, um, yes, nice to meet you..."
 
-"Pleased to meet you. I'm Yukiya Ichinose, Yui's older brother."
+"Nice to meet you. I'm Yui's brother, Ichinose Yukiya."
 
-His smiling expression gave me a sense of déjà vu. Ah, I thought, just as I suspected.
+Something about that bright smile struck me with a jolt of recognition. *Ah, I knew it*, I thought.
 
 There was no mistaking it.
 
-That smile was so very similar.
+That smile was almost identical.
 
-The older brother of Yui-san was really standing right there.
+The real Yukiya-san, Yui-san's brother, stood right there in front of me.

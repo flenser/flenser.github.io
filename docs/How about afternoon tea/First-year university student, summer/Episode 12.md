@@ -33,7 +33,7 @@ The voice, bright and energetic, belonged to Ritsu-san, her long pink-ash hair p
 
 "Ritsu-san, it's been a while."
 
-The last time I saw Ritsu-san was during the whole Yui-san-getting-drunk incident.
+The last time I saw Ritsu-san was during the whole Yui-san-getting-drunk incident.\
 Why had she gone out of her way to come to the shop today? I showed her to a counter seat and handed over the menu.
 
 "...Um, I really am sorry for all the trouble that time."
@@ -52,14 +52,14 @@ When Yui-san showed up at Yuuri's place, she'd looked so composed. Ritsu-san fli
 
 I couldn't picture it. Knowing she'd worried that much left me feeling oddly warm inside. But that was probably a face she only shows to Ritsu-san, and it stung, just a little, with envy.
 
-There's a real bond between the two of them. So then, what exactly is there between me and Yui-san?
+There's a real bond between the two of them. So then, what exactly is there between me and Yui-san?\
 I've already laid bare every weak, pathetic part of myself to Yui-san. So it'd be nice if she showed me a little more of her own weak side too.
 
 "Oh, this looks good. I'll get the iced coffee and cake set."
 
 "Coming right up."
 
-This shop's cold-brew coffee is crisp and delicious.
+This shop's cold-brew coffee is crisp and delicious.\
 Yui-san likes coffee too, so I found myself thinking I should serve her some next time she comes by, when I noticed Ritsu-san studying me intently over the counter.
 
 "You know, Kanata-chan, you can really throw down when it counts. I'm impressed."
@@ -196,7 +196,7 @@ At that, her thumb went still. Yui-san's eyes went round, looking at me, puzzled
 
 "You're that hungry?"
 
-Asked that, I nodded, small. It wasn't just hunger — I found myself wanting, badly, to eat something Yui-san had actually made.
+Asked that, I nodded, small. It wasn't just hunger — I found myself wanting, badly, to eat something Yui-san had actually made.\
 Having said it out loud, I figured she'd probably turn me down. She'd just gotten home, she must be tired, and this was probably too selfish a request even for me to make.
 
 "Got it, sure."
@@ -239,7 +239,7 @@ I did as told and set the lemon in. Handing her the glass, carrying a faintly gr
 
 "Alright, cheers~"
 
-She held her glass out to me, but I had nothing in hand to toast with, and grabbed the measuring cup sitting nearby in a panic, clinking it against her glass.
+She held her glass out to me, but I had nothing in hand to toast with, and grabbed the measuring cup sitting nearby in a panic, clinking it against her glass.\
 Watching the pale line of her throat move each time she drank, gulp after gulp, I thought it looked oddly alluring.
 
 "Is it really that good, that drink?"
@@ -278,7 +278,7 @@ The pasta was more than enough, honestly. Hungry as I was, I polished off the wh
 
 "...Exams end next Friday, right? Let's go to the aquarium on Saturday."
 
-I'd been looking forward to it for so long that I nodded without a second's hesitation.
+I'd been looking forward to it for so long that I nodded without a second's hesitation.\
 Going to the zoo with Hayakawa-kun had never made my heart race like this. And now, my chest was fluttering, so much.
 
 *Please let it be sunny.* I couldn't help but wish for it.

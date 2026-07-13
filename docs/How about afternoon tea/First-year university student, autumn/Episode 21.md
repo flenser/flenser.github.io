@@ -1,286 +1,288 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 1
 parent: First-year university student, autumn
 sequence: 21
-title: 'Episode 21: I Want to See High School Yui'
+title: "Episode Twenty-One: I Want to See High-School Yui-san"
 ---
-Episode 21: I Want to See High School Yui
+## Episode Twenty-One: I Want to See High-School Yui-san
 
-The midsummer heat had completely subsided, and a pleasant breeze blew through on this autumn day.
+\
+The height of summer had finally quieted down, and now, on an autumn day with a pleasant breeze cutting through, hot coffee in hand, I scanned the crowded university cafeteria, looking around.
 
-Hot coffee in hand, I walked around the campus cafeteria, glancing around as people bustled about.
+I couldn't find the person who'd called me here. The chat app said she'd be somewhere around this area.
 
-The person who'd called me out was nowhere to be seen. They should have messaged me via chat app saying they were around here.
+"Kanata-chan! Over here, over here!"
 
-"Kanata-chaaaan! Over here, over here!"
+I spotted a waving figure in the distance and waved back. The long, fluffy hair that had been dyed pink-ash all spring and summer had turned milk-tea brown.
 
-Spotting a waving figure in the distance, I waved back. That long, fluffy hair, dyed a pink ash shade from spring through summer, had changed to a milky tea brown.
+"Ritsu-san, I didn't recognize you with your hair changed..."
 
-"Ritsu-san, I didn't recognise you with your hair colour changed..."
+Hurrying over, I noticed a familiar head of blonde hair sitting beside her.
 
-As I ran towards her, I noticed a familiar head of blonde hair sitting beside her.
+"Wait... why is Yuuri here with Ritsu-san?"
 
-"Eh... why is Yuri with Ritsu-san?"
+Slurping cup ramen, Yuuri raised a hand in greeting.
 
-Slurping her cup noodles, she raised one hand in a 'yo' gesture.
+Yuuri, eating seafood noodles again. No question, this was my friend Azumi Yuuri. My closest friend at university, and the one whose place I'd taken refuge at when I fought with Yui-san and ran away from home.
 
-Yuri, eating seafood noodles again.
+But I couldn't work out any connection for why these two would be together, and tilted my head, confused.
 
-　It was undoubtedly my friend, Azumi Yuri. She was my closest friend at university and had even been my refuge when I ran away from home after a fight with Yui-san.
+Noticing my puzzled look, Ritsu-san grinned.
 
-But why these two were together, I couldn't fathom. I tilted my head in confusion.
+"We got close after that whole thing, right?"
 
-Noticing my puzzled expression, Ritsu-san smiled brightly.
+*After that* — meaning the running-away incident. Ritsu-san, with her absurdly wide social circle, had tracked down where I was hiding through some chain of connections, and gotten Yuuri's contact info in the process.\
+Apparently that was how the two of them had started talking.
 
-"We've become friends since then, you know."
+"Yuuri, you never said a word about this to me..."
 
-"Since then" — she meant that runaway incident. Ritsu, with her incredibly wide circle of acquaintances, had used every trick in the book to track down my hiding place and obtain Yuri's contact details.\
-That seemed to be how the two had started interacting.
+"Well, you never asked."
 
-"Yuri never said a word to me about this..."
+My shoulders slumped. Apparently Yuuri's chat app icon or background had featured the logo of some rock band Ritsu-san also liked, and they'd hit it off from there, going to concerts together and everything.
 
-"Well, you didn't ask."
+"...So, why did you call me out here today?"
 
-The weight drained from my shoulders. Apparently, when asked, Yuri's chat app icon or background was the logo of a rock band Ritsu also liked. They hit it off from there and became friends who went to gigs together.
+"Yui's birthday's next month, right?"
 
-"...So, why did you call me out today?"
+"That's right."
 
-"Next month is Yui's birthday, right?"
+"Yui's popular, you know. She gets a ridiculous number of presents every year."
 
-"Yes, it is."
+"I... imagine so."
 
-"Yui's popular, isn't she? She gets loads of presents, that one."
+I could easily picture Yui-san with her arms full of gifts.
 
-"I suppose... she does."
+"Every year, right around this time, all the girls who like Yui start asking me what she'd actually be happy to get."
 
-It was easy to picture Yui-san, her arms full of presents.
+Ritsu-san said it with a heartfelt sigh, sounding thoroughly fed up with the whole thing.
 
-"It happens every year, but around this time, girls who like Yui start asking me what she'd like as a present."
+"What does that have to do with me...?"
 
-Ritsu sighed, looking thoroughly fed up.
+"I figured I'd ask you ahead of time what you're planning to get her, and steer everyone else away from picking the same thing."
 
-"And how does that relate to me...?"
-
-"I was thinking I could ask Kanata-chan beforehand what she's getting Yui, and steer things so we don't end up with duplicates."
-
-Hearing that, I was taken aback. Why would she go to such lengths? Admittedly, it would be nice if the presents didn't overlap.
+I blinked at that. Why go to that much trouble? Sure, it's nice when gifts don't overlap, but still.
 
 "But I haven't decided what to get her yet."
 
-"Well, let me know when you have. Until then, I'll just tell the others something Yui probably wouldn't want."
+"Then let me know once you have. Until then I'll just point the other girls toward stuff Yui probably doesn't need."
 
-"Um... why are you doing this for me?"
+"Um... why are you doing this for me specifically?"
 
-"Hm? Because that way, she'll be happier, won't she?"
+"Hm? Well, that way he — I mean, she'll be happier, right?"
 
-I understood that getting multiple copies of the same thing wouldn't be pleasant. But why was Ritsu-san being considerate only towards me? As I tilted my head, Ritsu-san gave a meaningful smile.
+It's true, getting five of the same thing wouldn't exactly be exciting. But why was Ritsu-san bothering to look out for me specifically like this? I tilted my head, and Ritsu-san smiled, meaningfully.
 
-"...So, Yuri, why are you with Ritsu-san?"
+"...So, why is Yuuri here with you, Ritsu-san?"
 
-"I was just making plans with Ritsu-san for our next expedition. I've got no business with Kanata."
+"I was just working out our next trip with Ritsu-san. Nothing to do with you, Kanata~"
 
-On the cafeteria table lay a Hokkaido tourist guidebook. When I asked, "What's an expedition?", it seemed they were chasing their favourite rock band all the way to Hokkaido to see their live show. They'd be doing some sightseeing together while they were at it.
+A Hokkaido travel guide sat on the cafeteria table. When I asked what "trip" meant, apparently they were planning to travel all the way to Hokkaido to catch a concert by some rock band they both liked, sightseeing on the side.
 
-"...Somehow, it feels like Ritsu-san's taken Yuri away from me. It's complicated."
+"...Feels weirdly complicated, like Ritsu-san stole Yuuri from me."
 
-Yuri was my closest friend at university, yet here she was making travel plans with Ritsu-san. And I hadn't even been on a trip with her yet.
+Yuuri was supposed to be my closest friend at university, and here she was, already planning trips with Ritsu-san. I hadn't even gone on a single trip with her myself yet.
 
-As I muttered this, Ritsu-san laughed out loud.
+Muttering that, Ritsu-san burst out laughing.
 
-"I'll give that line right back to you, Kanata-chan. The reason Yui's been hard to get hold of lately is because of you, isn't it?"
+"I could say the exact same thing right back at you, Kanata-chan. Lately Yui's been terrible about hanging out — and that's because of you, isn't it?"
 
-Hearing this, I flinched.
+Caught off guard, I flinched.
 
-"...What are you talking about?"
+"...What do you mean?"
 
-"Nothing much?"
+"Oh, nothing~"
 
-She dodged the question, but I knew she'd hit a sore spot. Ritsu-san is very perceptive.
+She deflected, but I could tell — she'd hit a nerve. Ritsu-san really does watch people closely.
 
-It was true. Ever since that day I begged her not to go, Yui-san's nights out had visibly decreased.
+It's true, actually. Ever since that day I'd begged her not to go, the frequency of Yui-san's nights out had visibly dropped.
 
-After that, she stopped staying out overnight. Even if she was out late, she'd come home.
+She hadn't stayed out overnight once since then. Even on nights she came home late, she always came home.
 
-　That didn't mean she'd stopped going out altogether, though. There were definitely nights when I wondered if she'd been meeting up with other women.
+Not that she'd given up going out entirely — there were still nights I found myself wondering, suspiciously, whether she'd been meeting some woman.
 
-I couldn't restrict her actions that much. We weren't lovers, after all.
+But I couldn't go so far as to actually restrict her. We're not dating.
 
-If there was one thing that bothered me... it was that she hadn't kissed me once since then.
+If there's one thing that's been nagging at me, it's this: since that night, she hasn't kissed me even once.
 
-I didn't know if it was because I'd been startled when she slipped her tongue in and, in my panic, had bitten down. Or if her feelings had changed.
+Whether it's because I bit her, startled by the tongue, or because something in her feelings actually shifted, I have no idea.
 
-　Yui-san hasn't said anything. But I can tell she clearly prioritises me.
+Yui-san hasn't said anything about it either way. But it's clear, at least, that she's been prioritizing me.
 
 For now, that was enough.
 
-I feel that if I give it just a little more time, I might be able to glimpse into the depths of her heart.
+Given just a little more time, I felt like I might finally be able to glimpse the very bottom of her heart.
 
-The reason she "doesn't make lovers" must surely lie beyond that.
+The reason behind her "no girlfriends" rule — it has to be somewhere back there.
 
-I also wanted to take the time to properly sort out what I wanted to become with her.
+I wanted to take my time properly sorting out, too, what I actually wanted to become to her.
 
-　After parting ways with the two of them, I headed home. Thinking I might enjoy afternoon tea for the first time in ages, I bought a roll cake from the patisserie near the station. Yui-san had mentioned she’d be late tonight due to a dinner gathering.
+*
 
-Next month, on the tenth of October, is Yui-san’s twenty-first birthday.
+Parting ways with the two of them, I headed home. Feeling like some proper afternoon tea for the first time in a while, I stopped by the cake shop near the station and bought a single roll cake. Yui-san had said she had a dinner tonight and would be late.
 
-What should I get her? It’s not easy to think of something that would delight her – someone who can get anything she wants.
+October tenth, next month, is Yui-san's twenty-first birthday.
 
-　That expensive-looking single-stone diamond necklace she always wears. Was that really a gift from someone?
+What should I get her. Someone who can have anything she wants, whenever she wants it — nothing that would actually make her happy came easily to mind.
 
-It looks lovely against her pale neckline.
+That expensive-looking single-diamond necklace Yui-san always wears. Was that a gift from someone, after all?
 
-But she changes her nails and accessories constantly – why does she keep wearing just that one thing?
+It suits her pale collarbone beautifully, and I think it's lovely.
 
-　Getting home, I peek into her jewellery tray in the living room.
+But — for someone who changes her nail polish and accessories constantly, why does she keep wearing that one thing, and only that thing, without ever switching it out?
 
-I knew it, but that necklace isn't there.\
-I work part-time too, so I could buy her jewellery if I wanted to, but honestly, I wasn't confident I could find anything better than that.
+Back home, I peeked into the accessory tray sitting in the living room.
 
-"...Maybe I should just ask her directly..."
+I already knew what I'd find. That necklace wasn't there.\
+I have my part-time job, so I could technically afford to get her jewelry too, but honestly, I had no confidence I could prepare something that could top that.
 
-Knowing her, she'd probably just smile and say she'd be happy with anything.
+"...Guess I should just ask her directly, after all..."
 
-"I'm home."
+Knowing her, she'd probably just laugh and say she'd be happy with anything at all, whatever I gave her.
 
-Yui-san returned after nine. "Tired," she sighed, plopping down onto the sofa.
+*
 
-"Welcome home."
+"I'm home~"
 
-As if to say I've been waiting, I settled down beside her. Peeking out from beneath her thin knit top, that necklace was indeed gleaming.
+Yui-san got back a little past nine. *Exhausted*, she sighed, dropping heavily onto the sofa.
+
+"Welcome back."
+
+I settled in right beside her, as if I'd been waiting. Peeking through the thin knit sweater at her collarbone, that same necklace glinted, sure enough.
 
 "Yui-san."
 
-"Hmm?"
+"Hm?"
 
-She turned to me, removing the silver studs peeking from beneath her black hair.
+She turned to look at me while pulling a silver earring free from her black hair.
 
-"Next month is your birthday, right? Is there anything you'd like?"
+"Your birthday's next month, right? Is there anything you want?"
 
-Rather than giving her something she didn't need, I wanted to give her something she did. Since I couldn't manage thoughtful gestures like Yui-san, my conclusion was the utterly simple method of "asking directly".
+I'd rather give her something she actually needs than something unnecessary. I don't have Yui-san's knack for thoughtful gestures, so the conclusion I'd landed on was the simplest possible method: just ask directly.
 
-"Eh? It's fine. Besides, I didn't do anything for your birthday, Kanata."
+"Eh? You don't have to. I never even did anything for your birthday, after all."
 
-Hearing her say that so casually made me bristle. My birthday was in April, and at the time, Yui-san hadn't known about it.
+Said so easily, it irritated me. My birthday's in April, and Yui-san hadn't known about it back then.
 
-But I know her birthday now, and I want to celebrate it for her.
+But I know her birthday now, and I want to celebrate it properly.
 
-It's not pleasant to be denied that.
+Having that dismissed outright wasn't something I could just let go.
 
-"...It doesn't matter. Surely you could let me celebrate her birthday?"
+"...That's not the point. Can't you just let me celebrate your birthday? Is that so much to ask?"
 
-When I said that, Yui-san smiled and gently stroked my head. Her kind eyes looked at me.
+At that, Yui-san laughed and gently stroked my head. Kind eyes watched me.
 
-"That sentiment alone is quite enough."
+"The feeling alone is already more than enough."
 
-"Don't you want anything? Anything at all?"
+"Isn't there anything you want? Anything's fine."
 
-"Hmm, let me see..."
+"Hmm, let's see..."
 
-Yui-san seemed to ponder for a moment. Then, as if struck by an idea, she exclaimed, "Ah!"
+She thought it over for a moment, then, as if something had just occurred to her, made a small sound of realization.
 
-"Perfume. A new one. You choose it, Kanata."
+"Perfume. A new bottle. You pick it out, Kanata."
 
-She added, "Just choosing it is fine." What on earth, I thought, feeling the tension drain from my shoulders.
+*Just pick it out, that's all*, she added. What kind of request is that, I thought, my shoulders sagging.
 
-"...Just choosing? Isn't that hardly a present?"
+"...Just picking it out doesn't really count as a present, does it?"
 
-"You should spend your part-time wages on yourself."
+"You should spend your paycheck on yourself instead."
 
-My gaze fell on the bottle of Yui's favourite perfume sitting on the tray.\
-It was certainly running low. I'd always thought the ribbon on that pink bottle was rather cute.
+I glanced toward the bottle of perfume she always uses, sitting on the edge of the tray.\
+It really did look like it was running low. I'd always thought the ribbon tied around that pink bottle was cute.
 
 But still.
 
-"...I don't want to give perfume. You mustn't change it."
+"...I don't want you to change your perfume."
 
-"Eh? Why?"
+"Eh, why not?"
 
-"Because I like the way Yui-san smells right now."
+"I like how you smell right now, Yui-san."
 
-I like that sweet scent, the blend of that perfume and the gentle fragrance from her long hair. That's why I don't want her to change it. Quite seriously.
+I love the sweet scent, that mix of her perfume and the gentle fragrance from her long hair. That's exactly why I don't want it to change. I meant it, more seriously than not.
 
-"You like this scent? Well then, shall we both wear the same one?"
+"You like this smell? Then, want to wear the same one, Kanata?"
 
-"No, thank you. I wouldn't want to lose the scent of Yui-san."
+"No thanks. I don't want to lose track of what you actually smell like."
 
-If I were to wear that fragrance myself, I'd lose the scent of her.
+If I started wearing that scent myself, I wouldn't be able to tell her smell apart from my own anymore.
 
-What I love is Yui-san's scent; it's not just the perfume itself I like.\
-When I stubbornly refused, Yui-san smiled happily and said, "Then I won't change it."
+What I like is Yui-san's scent — not simply the perfume itself.\
+Insisting firmly that I didn't want that, Yui-san smiled, pleased. "Then I won't change it."
 
-"Well then, I can't think of anything else I'd like..."
+"In that case, I really can't think of anything I want..."
 
-　The diamond glinted on her chest, reflecting the light. Intrigued, my fingers reached out of their own accord.
+The diamond at her collarbone caught the light as she thought it over, glittering. Curious, my fingers reached out on their own.
 
-Careful not to touch the stone, I gently tugged the chain with my fingertips.
+Careful not to touch the stone itself, I gently tugged at the chain with my fingertips.
 
-"...This necklace. You always wear it, don't you? Was it a present from someone?"
+"...This necklace. You always wear it. Is it a gift from someone?"
 
-Yui's eyes widened at the sudden question.
+At the sudden question, Yui-san's eyes went round.
 
-"This? I bought it myself when I started university."
+"This? I bought it myself, when I started college."
 
-"Yourself...?"
+"You bought it yourself...?"
 
-　Really? I looked at her doubtfully, and Yui gave a mischievous smile. The kind she gives when teasing me.
+*Really?* I asked, skeptical, and Yui-san smiled, mischievous. The exact smile she wears whenever she's teasing me.
 
-"What on earth were you imagining? Were you jealous, perhaps?"
+"What were you imagining, exactly? Were you jealous, by any chance?"
 
-I pushed her shoulders back as she leaned in closer, peering at my face.
+She leaned in close, and I pushed her shoulder back.
 
-"I wasn't jealous. I just thought it might be a memento from an ex-girlfriend. A pair of necklaces, maybe..."
+"I'm not jealous. I just thought it might be something sentimental, from an ex. Like, maybe a matching necklace..."
 
-"Ahaha, she couldn't afford that as a high schooler, surely."
+"Ahaha, no way a high schooler could afford this, obviously."
 
-So it really is incredibly expensive, then. Because it clearly sparkles differently.
+Which meant it really was that expensive, then. The way it caught the light was clearly different from anything ordinary.
 
-"...Right. It's just that it's so beautiful, I couldn't help wondering."
+"...I see. It's just, it's so lovely, I got curious, that's all."
 
-Honestly, I felt relieved. To avoid her reading my jealousy and relief, I hurriedly looked away from her.
+Honestly, I felt relieved. Careful not to let the jealousy and the relief both show on my face, I hurried to look away from her.
 
-"Oh? Well then, I'll buy you the same one, Kanata."
+"Yeah? Then I'll buy you the same one."
 
-"Eh? I-I couldn't possibly accept something so expensive. Besides, we're talking about a present for Yui-san right now. What would you do with one for me?"
+"Huh? N-no, I can't accept something that expensive. Besides, we're talking about your present right now. Why would you give one to me?"
 
-"Getting matching ones as a present, sort of?"
+"Matching sets count as a present too, don't they?"
 
-"I was the one who brought it up, but let's just leave the necklace aside for now. I only asked because I wondered if you treasured it because it was a pair with your ex-girlfriend..."
+"I'm the one who brought it up, but can we get off the necklace topic for a second? I just wondered if you kept it because it's paired with something your ex has..."
 
-"Hey, why are you bringing up my ex-girlfriend all of a sudden? Do I look like I'm still hung up on her?"
+"Hey, why do you keep bringing up my ex? Do I really seem like I'm still hung up on her?"
 
-　Asked so casually, I almost nodded honestly and said yes.
+Asked so plainly, I nearly nodded, honestly, without thinking.
 
-Because, this person who claimed to be "devoted" deciding never to have a lover again must mean something serious.
+Because someone who supposedly went "all in, completely," by her own admission, deciding to never date anyone again — that has to mean something serious happened.
 
-And the fact she's stuck to that decision since her first year of university suggests something truly shocking must have happened.
+And the fact that she's kept that resolve, unchanged, ever since her first year of college — that's got to point to something genuinely shocking.
 
-Was she really that adorable? More than me? Honestly, just thinking about it makes me furious.
+Was she really that cute, this girl? Cuter than me? Just thinking about it made me genuinely angry.
 
-When I fell silent, unsure how to reply, Yui burst out laughing.
+Stuck for an answer, I stayed quiet, and Yui-san burst out laughing.
 
-"I really am over it, so don't make that face."
+"I really am not hung up on her, so don't make that face."
 
-That face, she said. Had I really looked that dissatisfied? I couldn't tell if those words were just a cover-up or her true feelings.
+*That face* — had I really been making such a displeased expression? I couldn't tell whether her words were deflection or the honest truth.
 
 "...Hey, Yui-san."
 
-"Hmm?"
+"Hm?"
 
-"Let me see your graduation album. I want to see you as a high school student."
+"Show me your graduation album. I want to see high-school Yui-san."
 
-When I said that, her eyes widened. Perhaps taken aback by such an unexpected request, she froze in surprise.
+At that, her eyes went round. Caught off guard by the sudden, out-of-nowhere request, she froze.
 
-"Eh, now?"
+"Eh, right now?"
 
-"Now."
+"Right now."
 
-I stared intently into her eyes. If she'd dated classmates back then, her ex-girlfriend should be in there.
+I stared, steady, into her eyes. If she'd dated a classmate, her ex should be right there in it.
 
-　Her long lashes fluttered repeatedly. When I urged her on, Yui scratched her cheek, looking troubled.
+Her long lashes fluttered, blinking rapidly. I pressed her — *hurry up* — and Yui-san scratched her cheek, looking troubled.
 
-I'd see for myself just how cute she was.
+I was going to see, with my own eyes, exactly how cute this girl was.
 
-I didn't know how much Yui had loved her.
+I don't know how much Yui-san actually loved her.
 
-But right now, I thought, I wouldn't be satisfied unless I made Yui say I was cuter.
+But right now, I felt like I wouldn't be able to settle for anything less than making Yui-san admit, plainly, that I'm cuter.

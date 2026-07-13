@@ -1,189 +1,197 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 6
 parent: First-year university student, autumn
 sequence: 26
-title: "Episode 26: Next year, and the year after that, I'll make the same request again"
+title: "Episode Twenty-Six: Next Year, and the Year After That Too, I'll Keep Making the Same Wish"
 ---
-Episode 26: Next year, and the year after that, I'll make the same request again
+## Episode Twenty-Six: Next Year, and the Year After That Too, I'll Keep Making the Same Wish
 
-The living room fell silent, just the two of us.
+\
+Alone together now, in the quiet living room.
 
-"Um, Yui-san—"
+"Um, Yui-san."
 
-I called out to her retreating figure after seeing Yukiyasu-san off. Yui-san turned around, her brow visibly furrowing.
+I called out to her back, watching Yukiya-san off. She turned, and her brows drew together, sharp and obvious.
 
 "Kanata."
 
-Hearing my name, she closed the distance.
+Called by name, she closed the distance.
 
 "...Why did you unlock the door?"
 
-"Eh?"
+"Huh?"
 
-"Did you properly check the monitor? You shouldn't just trust some unknown man and open the door."
+"Did you actually check the monitor? You can't just trust some man you don't know and open the door like that."
 
-I hadn't checked the monitor. I'd just woken up, and I thought it was Yui-san. It was undeniably a valid point; I couldn't argue.
+I hadn't checked the monitor. Because I'd just woken up, and I'd assumed it was her. A completely fair point, honestly, and I had nothing to say back.
 
-"...I'm sorry. I thought it was Yui-san coming home."
+"...Sorry. I thought you were home."
 
-　She gently pulled me close to her chest. I could smell Yui-san's sweet scent. It was the reassuring, beloved fragrance I loved.
+Gently, I was pulled into her chest. That sweet scent of hers. The smell that always puts me at ease, the one I love most.
 
-"It's Yuki-nii's fault, but there were men's shoes by the door, so I was a bit startled."
+"It's Yuki-nii's fault too, but seeing a man's shoes at the entrance startled me a little."
 
-"I'll make sure to check properly next time."
+"I'll check properly next time."
 
-"Mm, absolutely."
+"Mm, you'd better."
 
-Yui-san hugged me tightly, refusing to let go, and rubbed her face against the back of my neck, tickling me a little.
+Holding me tight, refusing to let go, Yui-san nuzzled her face into my neck, and it tickled, just a little.
 
-"Yui-san, really, let go of me. I bought cake, shall we eat it together?"
+"Yui-san, come on, let go already. I bought cake, let's eat it together."
 
-"Before that, there's something I want to ask you."
+"Before that, there's something I want to ask."
 
 "What is it?"
 
 "...How was meeting Yuki-nii? Did you fall for him?"
 
-She says it sulkily, making me chuckle softly. She must know I'm not the type to fall for someone so easily.
+Asked with a faintly sulky edge, and I couldn't help a small laugh. She should know perfectly well I'm not the type to fall for someone that easily.
 
-"He was more handsome than I imagined, which surprised me... but I'm not the flighty type. Come on, let's cheer up and celebrate. Ritsu-san bought champagne for you, Yui-san."
+"He was more handsome than I expected, honestly, but... I'm not really the type to have my head turned that easily. Come on, let's put that aside and celebrate. Ritsu-san bought champagne for you, you know."
 
-Yui-san smiled, looking relieved, then gently took my chin. Before I could react, a soft touch graced my lips, and I let her give me a gentle kiss that barely touched.
+Visibly relieved, Yui-san smiled and gently took my chin. Before I even registered it, something soft pressed against my lips, and I let myself accept the light, gentle kiss.
 
-Lately, Yui-san really has no inhibitions. And I suppose I'm the one accepting it, but still.
+Lately, Yui-san really has stopped holding back at all. Though I suppose I'm just as much at fault, letting myself accept it.
 
-"Um... Yui?"
+"Um... Yui-san?"
 
-"...I've been wanting to come back for so long. I thought so many times I should have refused today. I wanted to see Kanata."
+"...I wanted to come home this whole time. Kept thinking, over and over, I should've just turned tonight down. I wanted to see you."
 
-Hearing her voice of vulnerability for the first time nearly took my breath away.
+Hearing her admit weakness for the first time, my breath nearly caught.
 
-Being looked at so directly and told that felt like being plunged to the bottom of a deep sea where I couldn't breathe.
+Looked at that directly, told something like that, it felt like being pushed down into some deep, bottomless sea.
 
-　No matter how much I struggled, no matter how much I struggled, it seemed utterly impossible to surface alone.
+No matter how much I struggled, I don't think I could ever surface again on my own.
 
-I too had waited and waited for Yui-san to return. I longed to see her, I longed to see her so terribly.
+I'd been waiting for her to come home too, this whole time. Wanting to see her, wanting to see her, unbearably.
 
-Overcome by tenderness, I pulled Yui-san tightly back into my embrace.\
-I was so happy we could spend this important day together. I couldn't help but pray from the bottom of my heart that she would have a happier year than anyone else in the world.
+Giving in to that fondness, I hugged her back, tight.\
+I'm glad we got to spend this important day together. I couldn't help praying, from the bottom of my heart, that she'd have a happier year ahead than anyone else in the world.
 
-　Two champagne glasses lined up on the coffee table, and two slices of shortcake. Of course, my glass contained ginger ale. Next year we'll be able to drink the same thing, so this year I'll endure.
+*
 
-"So... what is it you want, Yui?"
+Two champagne glasses lined up on the coffee table, and two shortcakes. Mine's ginger ale, of course. Next year, I'll finally be able to drink the same thing — so I'll hold off for this year.
 
-She said she'd tell me on the day itself. What could it be? I wanted her to tell me quickly. Staring intently at Yui sitting beside me, her gentle eyes softened and narrowed.
+"So... what is it you actually want, Yui-san?"
 
-"Since it's such a special occasion, why don't you try guessing?"
+She'd said she'd tell me on the day itself — what could it possibly be? Wanting to hear it already, I stared at her, sitting beside me, and her kind eyes softened, narrowing gently.
 
-"No way. I mean, I've been thinking about it forever, but I really haven't the foggiest."
+"Since we've come this far, why don't you guess?"
 
-I resented the fact that this meant I hadn't prepared anything. I knew it was pointless to feel jealous of the faint blue paper bag catching the corner of my eye, but I couldn't help it.
+"No fair, none of that. I've been thinking about it this whole time and genuinely have no idea."
 
-　Noticing my sulk, Yui-san smiled. Then her hand reached out, circled the back of my neck, and pulled me closer.
+I was still a little frustrated I hadn't been able to prepare anything because of it. Jealous of the pale blue paper bag sitting at the edge of my vision — I know it's pointless, but I still don't like it.
 
-It was a habit I'd learned from kissing Yui-san several times before – the way she kissed. Feeling the forceful grip of her arm, holding me firmly so I couldn't escape, made my chest burn.
+Noticing my sulking, Yui-san laughed. Her hand reached out, curling around the back of my neck, pulling me close.
 
-As expected, she silenced my complaints by pressing her lips against mine.
+I've learned, from kissing her a handful of times now, this is her habit. The forcefulness of that arm, fixing my body in place so I can't run, sent a warmth flaring deep in my chest.
 
-The fact she does this so readily makes me think Yui probably enjoys kissing. It’s a little infuriating how skilled she is, how her experience shows through.
+Sure enough, right as I opened my mouth to complain, she sealed my lips shut with her own.
 
-It’s frustrating, but kissing Yui feels good. That’s why I can’t refuse her.
+Doing this so often, I think Yui-san genuinely just likes kissing. Genuinely too practiced at it, her experience showing through in a way that irritates me, just a little.
 
-　It's incomparable to anyone I've been with before. I'm always completely at the mercy of those lips.
+Frustrating as it is, kissing Yui-san feels good. That's exactly why I can't refuse her.
 
-When our lips parted, Yui stared intently into my eyes and said,
+Nothing like anyone I've dated before. I'm always, completely, at the mercy of her lips.
 
-"Do you really want to know what I desire?"
+When our lips parted, Yui-san stared straight into my eyes and said it.
 
-"...I do."
+"Do you really want to know what I want?"
 
-I nodded. Yui gently traced my damp lips with her thumb.
+"...I want to know."
 
-"...I want all of you."
+I nodded, small, and Yui-san gently traced my wet lips with her thumb.
 
-"Eh...?"
+"...I want all of you, Kanata."
 
-All of me? What does that even mean?
+"Eh...!?"
 
-I could feel my face burning. I couldn't comprehend the words. What did that mean? My mind spun in confusion.
+All of me — what does that even mean?
 
-She took my hand, kissed the back of it softly, and looked at me with mischievous eyes.
+I could feel my face heating up. I couldn't process the meaning of the words. What did that mean? My head spun, dizzy with confusion.
 
-"Is that not alright?"
+She took my hand, pressing a small kiss to the back of it, her mischievous eyes fixed on me.
 
-I was pushed down onto the sofa without warning.
+"Not allowed?"
 
-No way, wait, seriously? Did you mean to do this from the start? I don't understand. I mean, I haven't even had a bath yet, but that's not the point.
+My body was pushed back, easily, sinking into the sofa.
 
-What should I do? We're not even dating, I shouldn't be doing this. Honestly, I don't understand Yui at all anymore.
+Wait, no way, hold on, is she serious? Was this her plan from the very start? I don't understand. I haven't even showered yet — no, that's not the point.
 
-　Without waiting for my reply, I felt her lips pressed against my neck. After lightly biting down, she sucked with a soft popping sound.
+What do I do, we're not even dating, this isn't something we should be doing. I don't understand Yui-san at all anymore, not one bit.
+
+Without waiting for my answer, I felt her lips press against my neck. After a light graze of teeth, she sucked, a soft, wet sound.
 
 "...Yui-san... w-wait...!"
 
-All I could manage was this feeble, mosquito-like whisper. I squeezed my eyes shut and turned my face away from Yui-san.
+Weak, barely more than a whisper, that was all I managed to force out. I squeezed my eyes shut and turned my face away from her.
 
-　As I desperately pushed away the hands that had somehow become intertwined with mine, I heard Yui-san chuckle softly. Timidly, I opened my eyes.
+Our hands, laced together at some point without my noticing, I pushed back against desperately, and heard Yui-san laugh, soft, and, wary, I opened my eyes.
 
-She was leaning over me, smiling amusedly.
+Looming over me, she was smiling, clearly entertained.
 
-"...You want me to wait until you're mentally prepared? Well then, I'll wait as long as it takes."
+"...You want me to wait until you're ready? I can wait as long as it takes."
 
-Hearing her point that out, I felt my face flush bright red like a boiled octopus. You idiot, why didn't you say "stop" instead of "wait"?
+Called out on it like that, I could feel my face flushing scarlet, like a boiled octopus. Idiot, me — why did I say *wait* instead of *stop*?
 
-"...Yui, you idiot. This sort of thing is no good. It's against the rules..."
+"...You idiot, Yui-san. You can't do this kind of thing. It's against the rules..."
 
-When I said that in a trembling voice, Yui burst out laughing.\
-"Sorry, sorry, I startled you, didn't I?" she said, pulling my hand and helping me up.
+I said it, voice shaking, and Yui-san burst out laughing.\
+*Sorry, sorry, that must've startled you*, she said, and pulled our joined hands to help me sit back up.
 
-"You're being mean, teasing me like that..."
+"That was mean, teasing me like that..."
 
-　If I'd just accepted it then, what would Yui-san have done?\
-I don't know. But I'm sure that look in her eyes wasn't a joke.\
-I think she sensed I'd chickened out and pulled back... probably, anyway.
+If I'd just accepted it back there, what exactly had Yui-san been planning to do?\
+I don't know. But I don't think that look in her eyes had been a joke, not really.\
+I think she'd noticed me getting scared, and pulled back because of it, that's all... probably, anyway.
 
-Yui-san gently stroked my puffed-out cheeks. "Sorry, was it scary?" she apologised again. I shook my head side to side.
+Yui-san gently stroked my puffed-out cheek. *Sorry, did I scare you?* she asked again, and I shook my head, side to side — no, that's not it.
 
-"I truly want to celebrate with you... I mean it. Please tell me properly. What do you want?"
+"I really do want to celebrate properly. Not as a joke — please, just tell me. What do you actually want?"
 
-"...Then, let's start afresh. Will you listen to my real request?"
+"...Then, properly this time. Will you listen to my real request?"
 
-Just as I thought she'd gently taken my hand, she softly intertwined our little fingers. I thought her smooth, rounded bordeaux nails were incredibly alluring.
+She took my hand gently, and I felt her curl her pinky around mine. Her smoothly rounded, burgundy-polished nails looked strangely alluring.
 
-"If it's something I can do..."
+"If it's something I can actually do."
 
-Still trying to calm my pounding heart, I met her earnest gaze.
+Still working to calm my racing heart, I looked back into her serious eyes.
 
-"I want you to promise me."
+"I want you to promise me something."
 
-"Promise? It's not a gift?"
+"A promise? Not a thing?"
 
-"Yes."
+"Yeah."
 
-Ah, so that's why she said I didn't need to prepare anything.
+Ah — so that's why she'd said I didn't need to prepare anything.
 
-"...Promise me you'll celebrate my birthday next year too. I'll ask the same thing next year, and the year after that... Promise me each time. No matter what happens, I want you to be the first to say 'Happy Birthday' on this day."
+"...Promise me you'll celebrate my birthday again next year. And I'll ask the same thing the year after, and every year after that... promise me again, each time. No matter what happens, on this one day, I want you to be the first person to say happy birthday to me."
 
-I was taken aback, never expecting that Yui-san would make such a heartfelt request.
+I was thrown, completely — I never expected Yui-san to make a wish this earnest, this vulnerable.
 
-"...Is that... really all it takes?"
+"...Is something that simple really all you want?"
 
-"Yes."
+"Yeah."
 
-Seeing Yui smile contentedly, I felt an inexplicable pang of sadness, as if my chest were being squeezed. Why did she want to make such a promise?
+Watching her smile, satisfied, something in my chest tightened, painfully, for reasons I couldn't quite place. Why would she want a promise like this so badly?
 
-　It was as if she believed this relationship would crumble unless she made such promises going forward.
+—It almost felt like she believed that without a promise like this, this relationship between us would eventually just come apart.
 
-"...I promise. Next year too, I'll be the first to celebrate your birthday, Yui."
+"...I promise. Next year too, I'll be the first to celebrate your birthday, Yui-san."
 
-As if to dispel my own unease, I met her gaze directly and declared it, refusing to be outdone.\
-Yui smiled with genuine happiness and pressed her lips to our linked little fingers.
+Trying to chase away that unease, I looked back into her eyes, just as steady, refusing to lose ground, and said it.\
+Yui-san smiled, genuinely happy, and pressed her lips to our linked pinkies.
 
 "...It's a promise, Kanata."
 
-At that moment, with our little fingers entwined, I believed without a shadow of a doubt that I could keep that promise forever — next year, the year after, and far beyond, for as long as she wished.
+---
 
-I should have told her properly.
+In that moment, our pinkies linked together, I believed — without a shred of doubt — that whether it was next year, or the year after, or long after that, for as long as she kept wanting it, I would keep that promise, forever.
 
-That night, you said you wanted all of me, but all along, all of me had already been yours alone.
+*
+
+I wish I'd told her properly, back then.
+
+That night, you said you wanted all of me — but the truth is, from long before that, every part of me already belonged to you, and no one else.
