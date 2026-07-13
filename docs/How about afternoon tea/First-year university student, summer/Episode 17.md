@@ -49,7 +49,7 @@ Touched in places that almost never get touched normally, my body reacted more t
 
 "No, that's not allowed. I've been looking forward to watching together this whole time."
 
-Noticing me struggling to pry the arm off my waist, Yui-san let the teasing drop, easily, almost too easily.
+Noticing me struggling to pry the arm off my waist, Yui-san let the teasing drop, easily, almost too easily.\
 I felt her chin settle onto my shoulder, and finally, I could relax and let my weight sink back against her.
 
 "Then why are you doing this in the first place..."
@@ -164,7 +164,7 @@ There was so much I wanted to do before summer ended.
 
 Summer comes again every year, sure, but this exact summer, spent together like this — it will never come again.
 
-I grabbed the remote and picked out a movie myself, without bothering to ask her opinion.
+I grabbed the remote and picked out a movie myself, without bothering to ask her opinion.\
 Wrapped up together in a blanket, trading opinions back and forth about whatever we were watching — I love this quiet, unhurried time.
 
 "About what I said earlier... Kanata."
@@ -173,7 +173,7 @@ Wrapped up together in a blanket, trading opinions back and forth about whatever
 
 "Would you be okay with it, if I had a girlfriend?"
 
-The question dropped like a bomb, and I thought, *ah, I think I might actually die.*
+The question dropped like a bomb, and I thought, *ah, I think I might actually die.*\
 My heart clenched that painfully, and I thought, honestly, what a cruel thing for this person to ask.
 
 I'm the one who just said relationships between women should be taken seriously, and here I was, terrified of her feelings tipping toward someone else.

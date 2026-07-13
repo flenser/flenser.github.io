@@ -225,7 +225,7 @@ I know she doesn't want a woman like that.
 
 "...What's wrong? Did something happen with Hayakawa-kun?"
 
-Noticing my bad mood, Yui-san stepped closer, suddenly looking worried.
+Noticing my bad mood, Yui-san stepped closer, suddenly looking worried.\
 She stroked my downcast cheek and gently tried to catch my eye.
 
 Nothing happened with Hayakawa-kun. I turned my face away, evasive, and Yui-san let out a small, troubled sigh.
@@ -266,7 +266,7 @@ It was the first time she'd asked so directly.
 
 *
 
-What an unfair person. She's the one who packs so many different meanings into the word "like" whenever she uses it herself.
+What an unfair person. She's the one who packs so many different meanings into the word "like" whenever she uses it herself.\
 And here she was, calmly asking me, point blank, whether I liked her "as more than friends."
 
 Asked that so plainly, I didn't know what to say.
@@ -299,7 +299,7 @@ Startled, I froze, my body trying to pull back on instinct, but an arm wound aro
 
 "Mnn...!"
 
-Not the gentle, barely-there kiss from the night of the fireworks.
+Not the gentle, barely-there kiss from the night of the fireworks.\
 Through the thin gap of my parted lips, gasping for air, something slid in, smooth and wet.
 
 Only a beat late did I understand — that was her tongue, brushing softly against mine.
@@ -314,7 +314,7 @@ Yui-san jerked her face away, breaking the kiss, and released me so abruptly I n
 
 I honestly didn't even know, myself, what I'd just done to her.
 
-Looking closer, Yui-san had a hand pressed over her mouth.
+Looking closer, Yui-san had a hand pressed over her mouth.\
 Her eyes, glaring at me with something like accusation, were faintly welling with tears.
 
 "You didn't have to bite...!"

@@ -197,7 +197,7 @@ Kind, considerate, almost goddess-like on the surface — and yet the more I lea
 
 The problem is exactly that she doesn't want anything from me at all — why can't she see that?
 
-Yui-san surely expects nothing from me.
+Yui-san surely expects nothing from me.\
 Not one single thing in return, for anything she does for me.
 
 She probably still doesn't realize —

@@ -25,8 +25,8 @@ To distract myself, I hugged the orca plushie by my pillow tight. I really was g
 
 *
 
-A while after waking, still lounging around without breakfast, a knock sounded at my door, and my father's face poked around it.
-His hair, usually slicked back, wasn't today. Must be his day off.
+A while after waking, still lounging around without breakfast, a knock sounded at my door, and my father's face poked around it.\
+His hair, usually slicked back, wasn't today. Must be his day off.\
 Ever since summer break started, I'd completely lost track of what day of the week it even was.
 
 "Let's have lunch together."

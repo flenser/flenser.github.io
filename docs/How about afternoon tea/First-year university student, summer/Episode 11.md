@@ -269,14 +269,14 @@ Deep in those dark eyes — she was laughing. Ah, I understood then, she was tea
 
 "So if I said I could, you'd let me? You don't seem like the type to sleep casually with someone you're not dating."
 
-That's true, I think. To begin with, I've never once wanted sex with someone myself, even while dating men, so I don't feel any need to build a body-only relationship on purpose.
+That's true, I think. To begin with, I've never once wanted sex with someone myself, even while dating men, so I don't feel any need to build a body-only relationship on purpose.\
 If we were actually dating, maybe, but enduring something painful for someone I'm not even with — I can't do that.
 
 Watching me fall silent, Yui-san laughed and said it.
 
 "See? Who's the one teasing who, really."
 
-I think what I actually wanted was for Yui-san to say she could sleep with me. But wanting to hear it was all it was — I'm not ready, not right now, to actually do that with her.
+I think what I actually wanted was for Yui-san to say she could sleep with me. But wanting to hear it was all it was — I'm not ready, not right now, to actually do that with her.\
 I'm still scared, honestly. Regardless of gender, I think I'd only end up disappointing her. I don't have any confidence. The fear of disappointing her is far stronger than anything else.
 
 Probably, understanding all of that, Yui-san's answer was — that she couldn't sleep with me, is what I ended up thinking.

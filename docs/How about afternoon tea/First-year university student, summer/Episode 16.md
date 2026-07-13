@@ -35,7 +35,7 @@ No amount of thinking was going to produce an answer on my own, so I just let my
 
 If only I had someone to talk this through with. But it felt like putting it into words would actually change something, for real.
 
-By the time we landed on the runway lit gold by the setting sun, I was thoroughly worn out. Sitting still for over twelve hours takes its toll.
+By the time we landed on the runway lit gold by the setting sun, I was thoroughly worn out. Sitting still for over twelve hours takes its toll.\
 Once device restrictions lifted, I switched off airplane mode, and a message came through.
 
 *Waiting by the clock tower* — such a simple message, and it pulled a smile out of me without my even meaning it to.
@@ -68,7 +68,7 @@ Her arms loosened, gently, and when I pulled back to look up at her, those kind 
 
 "You must be hungry, let's grab something to eat on the way home."
 
-I nodded, and Yui-san picked up the handle of the suitcase I'd abandoned, then caught my free hand with hers, and I squeezed back, hard.
+I nodded, and Yui-san picked up the handle of the suitcase I'd abandoned, then caught my free hand with hers, and I squeezed back, hard.\
 I'd thought, flying out, that Narita would've been better. Coming home, though, I was glad it had been Haneda after all — that was the kind of night it turned into.
 
 The moment we got back to Yui-san's house, three weeks apart finally over, I didn't even make it to the living room before my arm was pulled and I was pulled into an embrace.
@@ -89,7 +89,7 @@ Whispered right against my ear, and a small shiver ran down my spine. Pinned aga
 
 My voice shook trying to say her name, because I'd felt her lips press against the edge of my ear.
 
-My body reacted before my mind could catch up, and the arm I'd raised to push her shoulder back was caught, effortlessly, and pinned to the wall.
+My body reacted before my mind could catch up, and the arm I'd raised to push her shoulder back was caught, effortlessly, and pinned to the wall.\
 The instant she nipped gently at my earlobe, an indescribable shiver raced through me.
 
 I meant to say *stop*, but a helpless, needy sound nearly slipped out instead, and I bit down on my lower lip and squeezed my eyes shut.
@@ -100,7 +100,7 @@ My overreacting body flinched at the sound. Don't whisper that close to my ear. 
 
 "Look at me."
 
-Her voice, sweet and soft, rang through my ear and dulled my thinking. If I turned to face her at this distance, our eyes would meet.
+Her voice, sweet and soft, rang through my ear and dulled my thinking. If I turned to face her at this distance, our eyes would meet.\
 And if that happened, I felt like I'd end up accepting everything, no resistance left at all. I was scared that whatever I'd been agonizing over would suddenly get a name, too easily.
 
 I took a deep breath, trying to keep my voice from shaking.
@@ -149,7 +149,7 @@ Her well-shaped brows drew together, faintly annoyed. Even irritated, she was st
 
 "It's not a lie, that part's true."
 
-Before she could ask *then why*, I looped my arms up around her neck instead, the way you'd cling to someone taller than you, needy.
+Before she could ask *then why*, I looped my arms up around her neck instead, the way you'd cling to someone taller than you, needy.\
 Yui-san might know I'm weak to being pushed. But I know her weak spot too.
 
 This person is weak to being spoiled, to being needed.

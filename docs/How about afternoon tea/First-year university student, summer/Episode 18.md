@@ -149,7 +149,7 @@ She laughed, mischievous. This was absolutely intentional, no question. I pinche
 
 "What?"
 
-I caught her arm and pulled her down slightly, and, as if sharing a secret, brought my lips close to her ear, glinting with an earring.
+I caught her arm and pulled her down slightly, and, as if sharing a secret, brought my lips close to her ear, glinting with an earring.\
 There had to be security cameras even in the elevator... though whether there was audio too, I had no idea. I kept my voice as low as I could.
 
 "...Does that mean you want to do something dirty...?"
@@ -184,7 +184,7 @@ I lifted my left wrist, showing her the watch. Ten minutes until the show starte
 
 "...Even after the fireworks, no. I don't do that kind of thing with someone I'm not dating."
 
-Said it plainly, and Yui-san pulled back from me, looking genuinely disappointed. I really can't figure out how this person's mind works.
+Said it plainly, and Yui-san pulled back from me, looking genuinely disappointed. I really can't figure out how this person's mind works.\
 When I'd pushed her, point blank, on whether she could actually sleep with me, she'd dodged the question so smoothly.
 
 "...Too bad. Alright, I'll behave and just watch the fireworks."
@@ -275,7 +275,7 @@ A faint sound as our lips parted. Held under that steady gaze, I knew I should b
 
 "Sorry, I couldn't help it. You're too cute."
 
-Yui-san said it, looking genuinely apologetic, her brows drawn down. Faced with an expression like that, I couldn't say anything back at all.
+Yui-san said it, looking genuinely apologetic, her brows drawn down. Faced with an expression like that, I couldn't say anything back at all.\
 The arm around my shoulder stayed exactly where it was, and her other hand gently wiped at my lips. As if she could see straight through my worry about being pushed down further, Yui-san smiled, gentle.
 
 "I don't do that kind of thing with anyone except a boyfriend or girlfriend..."
