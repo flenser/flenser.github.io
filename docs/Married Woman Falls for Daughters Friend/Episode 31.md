@@ -64,7 +64,7 @@ I wanted to keep Kai's situation hidden if at all possible. Once it got out, the
 Kai came back with her bag and peered up at my face with something mischievous in her expression.\
 "Worrying that much about me, do you like me?"\
 "Oh sure, love you, love you tons. Let's get going."\
-I brushed past her fishing for a reaction and hurried us both out of the room. Walking side by side, I noticed the height difference between us again, as I always did. She really was small, thin enough that touching her felt like it required hesitation. And yet the presence of that yellow-green glow in her profile was breathtakingly loud. Did everyone else really go about their lives seeing those eyes and feeling nothing. Was I the only one being pulled in this hard.\
+I brushed past her fishing for a reaction and hurried us both out of the room. Walking side by side, I noticed the height difference between us again, as I always did. She really was small, thin enough that touching her felt like it required hesitation. And yet the presence of that yellow-green glow in her profile was breathtakingly loud. Did everyone else really go about their lives seeing those eyes and feeling nothing? Was I the only one being pulled in this hard?\
 "Something wrong?"\
 Kai looked up, apparently sensing my gaze. There was no way to admit I'd been caught staring at her eyes, so I deflected.\
 "Did you have breakfast?"\
