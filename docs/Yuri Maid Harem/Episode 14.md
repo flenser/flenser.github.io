@@ -82,7 +82,7 @@ Even with my phone contract cut off, if there's Wi-Fi, there's still plenty I ca
 
 "Are you an idiot, Ruri?"\
 "...M-my only redeeming quality is my face..."\
-"Wow, that's almost refreshing how honest you are."
+"Wow, it's almost refreshing how honest you are."
 
 Geez, Sora-san laughed, and pulled up a selfie app for me.
 
