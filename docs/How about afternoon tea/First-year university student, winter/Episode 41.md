@@ -1,242 +1,248 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 10
 parent: First-year university student, winter
 sequence: 41
-title: 'Episode 41: Whenever We Meet'
+title: 'Episode Forty-One: Whenever We Might Have Met'
 ---
-Episode 41: Whenever We Meet
+## Episode Forty-One: Whenever We Might Have Met
 
-While warming the instant rice porridge bought from the supermarket in a pot, I pressed the blade of a fruit knife against the side of an apple.
+\
+Warming the instant rice porridge from the supermarket in a pot, I pressed the paring knife against the side of an apple.
 
-Nervously handling the unfamiliar knife, I managed to peel the apple, albeit rather clumsily.
+Nervous with the unfamiliar knife, I managed, somehow, clumsily, to peel it anyway.
 
-It struck me anew. Thinking things like 'they'll do it for me' just won't do. Since we live together, I need to pull myself together so we can help each other out.
+I found myself thinking, all over again — relying on "she'll just do it for me" isn't good enough. We live together, so I need to actually pull my own weight, be someone who can help out in return.
 
-　Why hadn't I realised such an obvious thing until now?
+Why hadn't something this basic ever occurred to me before now.
 
-Even after a whole year. Even though there were countless chances to try.
+A whole year had already passed. I'd had endless chances to try.
 
-I stared blankly at the pot bubbling and boiling.
+*
 
-Yui-san said she'd been almost alone since high school. She must have had times like this, when she felt unwell.
+I stared, blank, at the pot bubbling and foaming away.
 
-Did she manage on her own each time? Or did she look after her? She, an adult four years older than Yui-san.
+Yui-san said she'd been mostly on her own since high school. There must have been times, like this, when she got sick too.
 
-The timer beeped. I scooped the retort pouch rice porridge, rescued from the boiling water, into a bowl.
+Did she always manage on her own, each time? Or did that girlfriend of hers take care of her — the one four years older, already a proper adult?
 
-Placed a pickled plum on top, making it look somewhat presentable.
+The timer beeped, sharp. I rescued the instant porridge from the boiling water and tipped it into a bowl.
 
-I'm sorry. Next time, I'll definitely learn to make it properly. I vowed firmly within my chest.
+Topped with a pickled plum, it at least came together into something passable.
 
-Placed it on a tray and headed towards Yui-san's room. I hope she can eat at least a little.
+*Sorry, next time I'll actually manage to cook something properly*, I vowed to myself, firmly.
+
+I carried it on a tray to Yui-san's room. I hoped she could eat at least a little of it.
 
 "Yui-san, I'm coming in."
 
-I called out, opening the door. Her room was dim, lit only by the bedside lamp.
+I called out and opened the door. Her room, lit only by the bedside lamp, was dim.
 
-"May I turn on the light?"
+"Can I turn the light on?"
 
-"Mm... yes."
+"Nn... yeah."
 
-Her voice sounded a little strained. She sat up, then looked at me, wide-eyed and puzzled.
+Her voice sounded faintly strained. She pushed herself upright, then blinked at me, blank, puzzled.
 
 "What's that...?"
 
-"It's rice porridge. ...Please eat as much as you can manage."
+"Rice porridge. ...Just eat as much as you can manage."
 
-I placed the tray on the side table, sat down on the edge of the bed, and turned to face Yui-san.
+I set the tray on the side table and sat on the edge of the bed, turning to face her.
 
 "Thank you... I'm really happy."
 
 "It's just instant, though."
 
-"That doesn't matter. You did it for me, didn't you?"
+"That doesn't matter. You made it for me, didn't you?"
 
-I hadn't expected her to be so pleased, and to hide my embarrassment, I scooped up some porridge with the spoon. I checked the temperature earlier, so it shouldn't be too hot.
+I hadn't expected her to be this happy, and, hiding my embarrassment, I scooped up a spoonful of porridge. I'd already checked the temperature earlier, so it shouldn't be too hot.
 
-"Here, open wide."
+"Here, say ahh."
 
-When I offered it to her mouth, Yui smiled shyly.
+Held out toward her mouth, Yui-san laughed, faintly embarrassed.
 
-"I, I can manage it myself."
+"I-I can feed myself, you know."
 
-"Why are you blushing? You fed me when I had a cold, didn't you?"
+"Why are you embarrassed? You're the one who fed me, back when I had a cold."
 
-"Did I?"
+"Was I?"
 
-"You did."
+"You were."
 
-She eats with her mouth open, though she seems a bit shy about it. Yui-san blushes too. It's rather cute.
+Bashful, she still opened her mouth and ate anyway. Yui-san gets embarrassed too, apparently. A little cute.
 
-"It's delicious."
+"Good."
 
-"It's shop-bought, so the taste is guaranteed. Don't force yourself, just eat what you can manage. There's an apple after the meal too."
+"It's store-bought, so the taste is a sure thing. Don't push yourself, just eat what you can. There's apple after, too."
 
-Speaking of which, Yui-san's gaze falls on the awkwardly shaped apple sitting on the side table.
+At that, Yui-san glanced toward the clumsily peeled apple sitting on the side table.
 
-"Did you peel the apple too? Did you hurt yourself? Are you alright?"
+"You peeled that too? Did you get hurt? Are you okay?"
 
-Perhaps because she rarely saw me holding a knife, Yui-san looked worriedly at my left hand.
+She's rarely ever seen me holding a knife, so she looked at my left hand, worried.
 
-So, to show I hadn't hurt myself anywhere, I waved my left hand about.
+I waved my left hand, side to side, showing her there wasn't a mark on it.
 
-"I'm fine. I didn't hurt myself. I didn't peel it perfectly though..."
+"I'm fine. No injuries. Couldn't get it perfectly clean, but..."
 
-Hearing that, Yui-san smiled.
+At that, Yui-san laughed.
 
-"I'm really glad. Thank you."
+"I really am happy. Thank you."
 
-I hoped she hadn't forced herself, but Yui polished off the rice porridge in no time.
+I hoped she wasn't pushing herself too hard, but Yui-san finished the whole bowl of porridge.
 
-Seeing her eat the apple I'd peeled with such a happy smile, I felt I understood just a little of why Yui always stared intently when I ate.
+Watching her eat the apple I'd peeled, smiling, so clearly happy, I felt like I finally understood, just a little, that feeling Yui-san always gets, watching me eat.
 
-"I also bought some cut fruit and ice cream, so just say if you fancy some anytime. Also, here. Make sure you take your temperature properly."
+"I got cut fruit and ice cream too, so tell me anytime if you want some. And here, take your temperature properly."
 
-Saying that, I handed her the thermometer, which Yui reluctantly accepted.
+I handed her the thermometer, and, reluctant, she took it.
 
-"Kanata, you're so thoughtful. Have you ever nursed a boyfriend before?"
+"You're really thoughtful, Kanata. Have you nursed a boyfriend through a cold before, by any chance?"
 
-"Of course not. ...Actually, I rang Ritsu and asked what to do."
+"No way. ...Honestly, I called Ritsu-san and asked her what to do."
 
-Resignedly spilling the beans, Yui smiled with relief.
+Giving in, admitting the truth behind it, Yui-san laughed, relieved.
 
-"Ritsu, huh? She probably is the right person to ask."
+"Ritsu, huh. Fair, she probably was the right person to ask."
 
-"She said to wrap a spring onion around your neck. What do you reckon? Shall I try it?"
+"She told me to wrap a scallion around your neck. What do you want to do? Want to try it?"
 
-"...Nah, I'll pass. I'd definitely not be able to sleep with that smell."
+"...No thanks, I'll pass. I'd never be able to sleep with that smell."
 
-"True, it would probably fill the whole room."
+"True, it'd probably fill the whole room."
 
-We exchanged glances and laughed. Ritsu really is an interesting person, isn't she? Caring, thoughtful, kind.
+We caught each other's eyes and laughed. Ritsu-san really is a genuinely fun person. Caring, quick-witted, kind.
 
-　It's a relief Ritsu-san is completely heterosexual. If she were a rival, honestly, I'd have no chance at all.
+I'm glad Ritsu-san's completely straight. If she were a rival, honestly, I don't think I'd stand a chance at all.
 
-"But it's good. I was starting to feel a bit jealous."
+"But I'm glad. I was starting to get a little jealous."
 
-"And you say that, Yui-san? Who looked after you before? Your ex-girlfriend?"
+"You're one to talk. Who used to take care of you, before this? Your ex-girlfriend?"
 
-She's older than me, and surely much more thoughtful, probably someone who could peel an apple beautifully too. Thinking that stirs up my inferiority complex.
+Older, surely far more capable than me, probably someone who could peel an apple perfectly clean. Thinking that stirred up a stab of inferiority in me.
 
-"No way. We didn't live together, I was always on my own."
+"No way. We never lived together. I was always on my own."
 
 "Hmm..."
 
-"Oh? You don't believe me?"
+"Eh, you don't believe me?"
 
-"But you were together for three years, weren't you?"
+"I mean, you dated for three years."
 
-This is no good. This isn't good. Yui-san is unwell right now. I know I shouldn't be jealous and saying accusatory things.
+I'm no good, aren't I. This isn't okay. Yui-san's not feeling well right now. I know I shouldn't be saying jealous, accusing things like this.
 
-The thermometer beeped. Peering at it, I saw it was over thirty-eight degrees. That must be awful.
+The thermometer beeped, sharp. I glanced at it — past thirty-eight degrees. That must be rough.
 
-"They say it's best to let a fever run its course, but are you alright? Shall I get you some paracetamol?"
+"They say it's better to let a fever run its course, but are you okay? Want to take something for it?"
 
-When I asked, Yui-san shook her head from side to side.
+Asked that, Yui-san shook her head, side to side.
 
-"I'm fine. I can endure it a little longer."
+"I'm fine, I can hold out a bit longer."
 
-I urged her to lie down and covered her with the futon. Then, Yui-san stared intently at me.
+I urged her to lie down and pulled the blanket over her. Then Yui-san looked at me, steady.
 
-"...Kanata, you seem to care a lot about my ex-girlfriend..."
+"...Kanata, you know, you keep worrying about my ex..."
 
-She took my hand. Her palm was noticeably hotter than usual.
+My hand was taken. Her palm was noticeably hotter than usual.
 
-"Even though I said we dated for three years, we only met twice a week. But with Kanata, we've been together every single day for the past year, haven't we?"
+"I said we dated for three years, but we only actually saw each other twice a week. But with you, this whole past year, we've been together every single day."
 
 "...That's true."
 
-"So, those three years? We've already surpassed that by a long shot."
+"So, honestly, we've already blown right past those three years, a long time ago."
 
-"The number of times we actually saw each other might be true... but Yui, you really loved her, didn't you?"
+"The number of times you actually saw each other might be true, but... you loved her, didn't you, Yui-san?"
 
-In terms of the number of days we spent together in daily life, perhaps I do have the edge. But that's beside the point. What I'm talking about is feelings.
+If we're counting shared, everyday time, maybe I actually come out ahead. But that's a separate question entirely. What I want to know is about feelings.
 
-Because Yui-san was 'dating' her. She never once said to me, 'I want to date you'.
+Because Yui-san "dated" her. Properly. And she's never once said she wants to "date" me.
 
-Didn't you actually like your ex more? More than me?
+Maybe you really did love her more than me.
 
-Because I couldn't even become Yui-san's girlfriend. From that point, we weren't even on the same playing field.
+Because I can't even become your girlfriend. On that count alone, I'm not even standing on the same ground.
 
-"I loved her dearly. I always wanted to be with her forever. I never thought we'd break up."
+"I loved her so much. I wanted to be with her forever. Never once thought we'd break up."
 
-My heart feels like it's tearing apart. Even if it's in the past tense, I didn't want to hear about someone else you loved.
+My heart ached like it might crack open. Even in past tense, I didn't want to hear about someone else you'd loved.
 
-Is it because you're weak from the fever? Normally, you'd dodge the question, but today you're unusually talkative.
+Maybe it was the fever weakening her, but unlike usual, when she always deflects and refuses to answer, today she was unusually talkative.
 
-A jumble of emotions — wanting to hear it, yet not wanting to hear it — is churning and swirling inside my chest.
+A tangled, contradictory feeling — wanting to hear it, and not wanting to hear it — churned, swirling, in my chest.
 
-I never thought I could meet anyone I could love more than her. I was just a child.
+"I thought there was no way I'd ever meet anyone I could love more than her. I was a kid, though."
 
-A warm palm reached out and stroked my cheek. Those dark eyes stared intently into mine, brimming with tears.
+Her hot palm reached out, stroking my cheek. Those black eyes stared steadily at me, at my eyes threatening to spill over.
 
-"But you know... adolescent love and adult love seem completely different. I don't remember my ex-girlfriend even a millimetre now. I'm completely smitten with you."
+"But... it seems like love in your teens and love as an adult are completely different things. I don't think about my ex anymore, not even for a second. I'm completely absorbed in you, Kanata."
 
-　The hand that had been caressing my cheek gently traced down my neck and touched the necklace at my throat.
+The palm stroking my cheek slid gently down my neck, coming to rest against the necklace at my collarbone.
 
-"Yui..."
+"Yui-san..."
 
-"...There's something I need to tell Kanata. I'm sorry. I wasn't ready to tell you. Because Kanata is so kind, because you don't press me, because I've been taking advantage of that for so very long..."
+"...There's something I have to tell you. I'm sorry. I couldn't work up the resolve to say it, and you're so kind, letting me get away without asking — I've been leaning on that, this whole time, over and over."
 
-"...Is it really that difficult to say?"
+"...Is it really that hard to say?"
 
-"If I could, I wouldn't say it. Because I want you to stay by my side forever."
+"If I could avoid it, I would. Because I want you by my side forever."
 
-Why does she put it like that? It's as if she thinks that once she tells me, I'll leave her.
+Why would she say it like that. Like she believes that if she actually told me, I'd leave.
 
-Hearing her say that makes me afraid to ask, too.
+Hearing her say that made even me afraid to ask any further.
 
-"...It's alright. Whenever you feel ready to tell me, Yui-san. I'll wait forever."
+"...It's fine. Whenever you feel ready to tell me. I'll wait, as long as it takes."
 
-I gaze at her, looking more fragile than ever. My affection for her deepens. I gently placed my hand over hers, pressed against the necklace at my throat.
+I looked at her, weaker than I'd ever seen her. Fondness welled up in me, overflowing. I laid my own hand gently over the palm still pressed against the necklace at my chest.
 
-Yui smiled, as if relieved. Yet that smile held a certain sadness, tightening my chest.
+Yui-san smiled, relieved. But that smile carried something aching underneath it, and it squeezed at my chest.
 
-"I don't want to graduate from university. Maybe I'll repeat a year."
+"I don't want to graduate. Maybe I should just fail a year on purpose."
 
-"Repeat a year? That'd be a waste of tuition fees."
+"Fail a year? That'd be a waste of tuition."
 
-"I wish we'd met sooner. Our fathers are friends, so why did it take us this long to meet?"
+"I wish we'd met sooner. Our fathers are friends — why didn't we ever meet before now?"
 
-"I suppose so. But I might not want to meet a Yui-san with a girlfriend."
+"True. Though, honestly, I might not have wanted to meet a Yui-san who already had a girlfriend."
 
-Because you're devoted, aren't you? If you had a girlfriend, you definitely wouldn't have given me a second glance.
+Because you're devoted, aren't you. If you'd had a girlfriend, I'm sure you never would have so much as glanced my way.
 
-I don't want to see you being kind to another woman.
+I don't want to watch you be gentle to some other woman.
 
-"I... think I would have fallen for you no matter when we met. Thinking that, maybe this timing was good? When you didn't have a boyfriend..."
+"I think... whenever we'd met, I would have fallen for you regardless. Thinking that, maybe this timing really was the right one. A moment when you didn't have a boyfriend..."
 
-　Closing her eyes softly, looking sleepy, I squeezed Yui-san's hand and gently guided it back onto the futon.
+Growing drowsy, her eyes drifted closed gently, and I took her hand, tucking it back under the blanket.
 
-I won't say it, but I feel the same.
+I never said it, but I feel exactly the same.
 
-Whenever we'd met, I'm certain I would have fallen for you.
+Whenever we'd met, I'm sure I would have fallen in love with you.
 
-Even if this love remains unrequited, I'll never regret having fallen for Yui-san.
+Even if this love never gets its happy ending, I don't think I'll ever regret falling in love with you, Yui-san.
 
-Before long, I heard her breathing become steady and regular, so I gently withdrew my hand.
+Before long, the even rhythm of sleep reached me, and I gently let go of her hand.
 
-Then, careful not to wake her, I brought my lips to hers.
+And then, careful not to wake her, I brought my lips to hers.
 
-"...Goodnight, Yui-san."
+"...Good night, Yui-san."
 
-After a kiss that barely touched her, I slipped out of the room, careful not to make a sound.
+After that light, brief kiss, I stepped out of the room, careful not to make a sound.
 
-I might catch her cold, but even if I did, it would be alright. I knew Yui-san would nurse me back to health with tender care.
+I might catch her cold. But even if I do, it's fine. I know she'll take good care of me, thoroughly, in return.
 
-　Looking back now, I realise that from this moment — no, from long before this — Yui-san had been struggling, suffering.
+*
 
-No matter how much I ponder it, I can't find an answer. But I believe it's true that she loved me.
+Looking back on it now, I think — starting from that night, no, probably long before that even, Yui-san had already been struggling, quietly suffering, torn apart inside.
 
-Perhaps the reason she couldn't tell me was that, even feeling guilty about keeping it hidden, she still wanted to be with me.
+No matter how much I turn it over, I never arrive at an answer. But I can still believe, at least, that being loved by her was never a lie.
 
-Now, I'll never know.
+The reason she could never bring herself to tell me — maybe it was because, even carrying the guilt of keeping something hidden, she still wanted, desperately, to stay by my side.
 
-　It was my first real love. Perhaps I was still too immature to fully embrace everything about her.
+I don't know anymore. Not now.
 
-The memory, piercing deep within my chest, remains unfaded, still bleeding even now.
+That was the first time I'd ever loved someone for real. Maybe I was still too young, back then, to hold the whole of her.
 
-When winter ends, a second spring will come.
+The memory lodged deep in my chest hasn't faded at all, even now — it's still bleeding, even now.
 
-The last season I spent with her.
+Once winter ends, a second spring will come.
+
+The last season I ever spent with her.
