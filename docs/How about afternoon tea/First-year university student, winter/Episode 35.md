@@ -1,188 +1,194 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 4
 parent: First-year university student, winter
 sequence: 35
-title: 'Episode 35: For me, kissing Kanata is what matters most'
+title: 'Episode Thirty-Five: Kissing You Matters More to Me, Kanata'
 ---
-Episode 35: For me, kissing Kanata is what matters most
+## Episode Thirty-Five: Kissing You Matters More to Me, Kanata
 
-Once Christmas was over, the time until New Year's Eve truly flew by. Before I knew it, it was morning on the first of January.
+\
+Once Christmas passed, the days leading up to New Year's flew by in a blink. Before I knew it, here it was — the morning of January first.
 
-My parents had told me to come back, but using the excuse that my exams weren't finished yet, I decided to stay in Japan for New Year's this year.
+My parents had suggested I come home for it, but I used unfinished exams as an excuse and decided to stay in Japan for the new year this time.
 
-Thanks to that, I was able to welcome the New Year with Yui-san, and today we've promised to go to the first shrine visit together.
+Thanks to that, I got to ring in the new year with Yui-san, and today we'd promised to go to our first shrine visit of the year together.
 
-　Ever since Yui-san opened a large bag of sliced mochi in the kitchen for breakfast, I couldn't stop feeling excited. Apparently, you can toast mochi in a toaster.
+Ever since Yui-san opened a big bag of mochi cakes in the kitchen for breakfast, I hadn't been able to stop feeling giddy. Apparently you can just toast mochi in the toaster.
 
-It was my first time eating sliced mochi seasoned with the sweet-salty flavour of sugar and soy sauce. The savoury aroma of toasted nori and soy sauce made me smile.
+This was my first time eating mochi with that sweet-salty soy sauce and sugar seasoning. The toasted seaweed and soy sauce smelled so good it pulled a smile right out of me.
 
-"Is it tasty?"
+"Good?"
 
-"It's delicious. I'd like another one."
+"So good. I want another one."
 
-Just a few minutes earlier, when asked how many I wanted, I'd said one was fine. Pretending to have forgotten, I said that again. Yui-san laughed and said, "Alright," then stood up.
+Just minutes ago, when she'd asked how many I wanted, I'd been the one who said one was fine. Pretending to forget that now, Yui-san laughed and stood up anyway. *Sure.*
 
-After Christmas, there was one day when Yui-san said she had a dinner party and wasn't home. The next day, beside the pale blue paper bag that had been placed next to the accessory tray, another paper bag had appeared.
+Since Christmas, there'd been exactly one day when Yui-san said she had a dinner engagement and left the house. The next day, beside the pale blue paper bag still sitting by the accessory tray, a second bag had appeared.
 
-　That person, I thought, feeling a vague sense of unease.
+*Him again*, I thought, an unpleasant feeling settling in.
 
-When I asked Yui-san if she received a Christmas present from Kitakami-san every year, she said she didn't remember. But judging by this feeling, she probably receives presents every year without fail, for her birthday and Christmas.
+When I'd asked whether Kitagami-san gave her a Christmas present every year, Yui-san had said she didn't remember — but going by this pattern, he probably sends one without fail, every single birthday and Christmas.
 
-Yui-san says nothing. So I ask nothing either.
+Yui-san never says anything about it. So I don't ask, either.
 
-　It's alright, he's a man. There's nothing to worry about. I repeated those words in my mind, as if to convince myself.
+He's a man, so it's fine. Nothing to worry about. I repeated that to myself, over and over, like convincing myself of something.
 
 "Kanata, the mochi's ready."
 
-She offered me the delicious-looking mochi with a gentle gaze.
+*Here you go*, she said, holding out the delicious-looking mochi, her eyes gentle.
 
-Yui-san will do anything I ask. That makes me unbearably happy. Pampered, I find myself becoming more and more selfish.
+Yui-san will do anything for me, if I just ask. That makes me unbearably happy. Spoiled like this, I can feel myself growing more and more selfish by the day.
 
-　This must be a privilege granted only to me. So it's alright.
+This is a privilege only I get. So it's fine.
 
 "Thank you."
 
-The mochi I bit into was delicious, as expected, and my cheeks split into a smile. Yui-san watched me across the table, beaming.
+The bite of mochi was delicious, sure enough, and my cheeks softened. Yui-san watched me from across the table, smiling, happy.
 
-Whenever I'm eating something delicious, Yui-san always looks at me with such obvious delight.
+Whenever I'm eating something delicious, Yui-san always looks at me like that, so pleased.
 
-I liked that about Yui. That look of hers, making me feel as though she might like me, might love me, always set my heart aflame deep within.
+I love that about her. That look of hers, the one that makes me feel like maybe she likes me, maybe she loves me — it always sets something warm burning deep in my chest.
 
-　After breakfast, I'd change clothes and finish getting ready to go out.
+*
 
-When I fumbled fastening the necklace around the back of my neck, Yui-san would gently help me.
+After breakfast, I got changed and finished getting ready to head out.
 
-"You're surprisingly clumsy, Kanata. You always take ages taking it off too."
+Fumbling with the clasp of the necklace behind my neck, Yui-san gently stepped in to help.
 
-Saying that, Yui-san giggled softly, so I turned around, feeling a bit put out. But I'd never really worn jewellery much before, so I thought it was only natural.
+"You're surprisingly clumsy, Kanata. You always fumble taking it off too."
 
-"...I'm just not used to it yet. I'll manage on my own eventually."
+She said it, laughing, and I turned back, faintly annoyed. I've just never worn much jewelry before, so it can't be helped.
 
-"I'll do it for you every day, so it doesn't matter if you can't."
+"...I'm just not used to it yet. I'll be able to do it myself eventually."
 
-She said it so casually that my heart skipped a beat. I almost asked, 'Every day until when?'
+"I'll do it for you every day, so it's fine if you never can."
 
-That's how Yui-san always lets me get away with anything I can't do. Being around someone like you makes me feel like I'm falling apart, and it scares me.
+Said so easily, and it made my heart flutter despite myself. I nearly asked — *every day, until when, exactly?*
 
-　I fall into this illusion that I couldn't possibly live without Yui-san anymore.
+Yui-san forgives absolutely anything I can't do, just like that. Being close to someone like her scares me sometimes, like I might slowly turn hopeless because of it.
 
-"Right then, Kanata, you do mine too."
+It's starting to feel like an illusion I can't shake — that I might not be able to live without her anymore.
 
-Saying that, Yui-san smiled and handed me her scarf. The one I, "Santa Claus", gave her for Christmas.
+"Okay, now you do me."
 
-Looking down at me with a beaming smile, I understood what she was about to say and felt my cheeks grow slightly warm.
+She said it, laughing, and handed me a scarf. The one "Santa," meaning me, had given her for Christmas.
+
+Watching her smile down at me, so pleased, I understood exactly what she was asking for, and my cheeks warmed, just slightly.
 
 "...You can wrap it yourself, can't you?"
 
-Embarrassed, I clutched the scarf tightly and retorted with a flippant remark. Accustomed to my unattractive behaviour, she tilted her head slightly and stared intently at me.
+Embarrassed, I gripped the scarf tight and shot back a small jab instead. Well used to my less-than-cute attitude by now, she just tilted her head slightly, watching me steadily.
 
-"I did it for you, didn't I? You do it for me too."
+"I did it for you, didn't I. Your turn."
 
-"...Are you the type who wants someone to tie your tie for you, Yui?"
+"...Are you the type who wants someone to tie your tie for you, Yui-san?"
 
-"I don't wear ties."
+"I never wear a tie."
 
-"...Your high school uniform had a tie, right? You've definitely had your ex-girlfriend tie it for you, haven't you?"
+"...Your high school uniform had a tie, didn't it. I bet your ex tied it for you at some point."
 
-Even as I said it, imagining it made me feel irritated. I can't tie a tie myself. I've never even done my dad's.
+Even as I said it myself, imagining it made me irritated all over again. I can't even tie a tie myself. Never done it for my own father, either.
 
-"I don't remember something from back then. Come on, hurry up. We'll be late getting out."
+"I don't remember something that old. C'mon, hurry, we'll be late heading out."
 
-Even if you say 'back then', you couldn't possibly have forgotten something from just a few years ago. But there's no point getting upset over something like this, so I'll let Yui-san win for now, seeing her smiling so cheerfully.
+*That old* — as if she could actually forget something from just a few years back. But getting worked up over something this small wouldn't get me anywhere, so I let myself lose, just this once, to her smiling face.
 
-"...Oh well. Then, could you bend down a little?"
+"...Can't be helped. Bend down a little."
 
-Yui-san is about ten centimetres taller than me, so she has to bend down for me to reach.
+Yui-san's about ten centimeters taller than me, so she needs to bend down for me to reach.
 
-　I raised my hand to spread out the scarf and drape it around her neck, but Yui gently bent down and pulled me close around the waist.
+I spread the scarf and lifted my hands to loop it around her neck, and Yui-san bent down, gently, and pulled me in by the waist at the same moment.
 
-Just as I thought, 'Huh?', her perfectly shaped face was right there, and her lips gently pressed against mine. Lately, Yui keeps kissing me like this, out of the blue. My lipstick — I'd only just put it on — is going to come off.
+Startled, before I could even register it, her perfectly composed face was right there, and our lips met, soft. Lately she's taken to ambushing me with kisses like this. My lipstick, freshly applied, always ends up smudged because of it.
 
-　Even as I thought that, each time our lips touched at different angles, an indescribable pleasure overwhelmed my senses.
+Even thinking that, every time our lips brushed together, tilting, meeting again from a different angle, some indescribable, mind-numbing pleasure took over my head.
 
-Our lips parted, and our eyes met at point-blank range. Her eyes narrowed mischievously, and I felt thoroughly outmanoeuvred, blushing as I looked away.
+Our lips parted, and our eyes met at close range. Caught in that mischievous, narrowed gaze, feeling like I'd been thoroughly played, I looked away, embarrassed.
 
-"Didn't you want me to wrap the scarf around you...?"
+"...Weren't you the one who wanted the scarf wrapped...?"
 
-"Yes, wrap it on quickly."
+"Yeah, hurry up and wrap it."
 
-Her gentle voice tickled my heart. Yui-san's ability to sense when I'm about to get upset is frighteningly sharp. Though I suppose it's just me being me, easily cheered up again with a kiss like this.
+Her gentle voice tickled at my heart. Yui-san's sense for exactly when my mood's about to sour is frighteningly sharp. Though I suppose it says something about me too, that a kiss like that is enough to talk me right back into a good mood.
 
-　When I wrapped the scarf around her, Yui-san smiled happily.
+Once I'd wrapped the scarf around her, Yui-san smiled, pleased.
 
-"Kanata, I'll reapply your lipstick for you."
+"Kanata, let me fix your lipstick."
 
-Saying that, she wiped away my smudged lipstick and picked up the one she favoured.
+She said it, wiping away my smudged lipstick, and picked up the lip color she uses herself.
 
-"Why, yours...?"
+"Why... Yui-san's...?"
 
-"Hmm? I thought if it was the same colour, maybe we could kiss."
+"Hm? Figured if it's the same color, kissing you would be fine."
 
-Her matter-of-fact tone made my face flush.
+Said so casually that my face nearly caught fire.
 
-"We're going to the shrine for the first visit of the year... If you keep thinking such naughty thoughts, the gods won't grant your wishes."
+"We're going to the shrine... if you keep thinking such lewd thoughts, the gods won't grant your wish, you know."
 
-At that, Yui laughed. She gently lifted my chin and pressed her lips softly against mine. The colour of Yui's lips. The taste of Yui's lips. Why? My heart was pounding.
+At that, Yui-san laughed. Gently tilting my chin up, her lips, in her own color, pressed softly against mine. The taste of Yui-san's lips. Why, I don't know, but my heart won't stop racing.
 
-"It's fine. The gods have never granted a single one of my wishes anyway. Kissing you is far more important to me."
+"That's fine, honestly. The gods have never once granted my wishes anyway. Kissing you matters more to me, Kanata."
 
-To say her wishes had never come true... what a lonely thing to say. It felt like my heart was being squeezed tight.
+*My wishes never come true* — what a lonely thing to say. Something in my chest clenched, tight.
 
-I don't know how many wishes there were before. What on earth was Yui-san's wish that went unheard?
+I don't know how many wishes she's made, all this time. What could they possibly have been, all those wishes of hers that never got answered?
 
-What could she have wished for? Such a selfless person.
+What would someone this free of desire even wish for?
 
-Holding hands, chatting about trivial things on the way to the first shrine visit of the year, I kept thinking about that.
+Hand in hand, trading idle chatter on the way to the shrine, I kept thinking about that the whole walk there.
 
 ＊＊＊
 
-　Ah, that’s right — this is what New Year in Japan is like, isn’t it? The first shrine visit. Quite crowded, with food stalls, and the occasional person in kimono.
+Ah, right — this is what Japanese New Year's, the first shrine visit of the year, actually looks like. Packed with people, food stalls scattered around, here and there someone in a kimono.
 
-"...Yui, I want to go to the stalls later."
+"...Yui-san, I want to go check out the stalls later."
 
 "Yeah, sure."
 
-I clasped Yui’s hand tightly, careful not to get separated in the throng.
+Careful not to get swept apart by the crowd, I gripped Yui-san's hand tight.
 
-"I heard Ritsu is here today too. Do you think we'll bump into her?"
+"Ritsu's apparently here today too, wonder if we'll run into her."
 
-"So Ritsu-san didn't go home for the holidays?"
+"Ritsu-san didn't go home for the holidays either?"
 
-"Same reason as Kanata. She said she didn't go back because she wanted to study."
+"Same reason as you. Said she stayed to study."
 
-My reason for not going home was because I wanted to be with Yui-san. Studying wasn't really the reason.
+The real reason I stayed wasn't studying at all — it was wanting to be with Yui-san.
 
-　I wonder who she came to the shrine with. Come to think of it, there's something I've been curious about for a while.
+Who's Ritsu-san here with, I wonder. Actually, there's something I've been curious about for a while now.
 
 "...Does Ritsu-san have a boyfriend?"
 
-"Ah, not at the moment. Ritsu isn't really the type to stick with someone long-term."
+"Ah, not right now. Ritsu's not really the type whose relationships last long."
 
-"Is that so? Somehow, she seems so dependable, you wouldn't think so."
+"Really? She seems so caring, I wouldn't have guessed that."
 
-"That's the problem with being so considerate. You treat everyone equally, don't you, Ritsu? Apparently, it makes boyfriends feel neglected."
+"That caring nature's exactly the problem. She treats everyone equally, Ritsu does. Lonely, for whoever's dating her."
 
 "...I see."
 
-I suppose even if I dated someone, Ritsu-san would probably stay exactly the same. Admittedly, that might be lonely.
+I imagine, even dating someone, Ritsu-san probably wouldn't change a bit. That would be lonely, I suppose.
 
-I'm the type who wants the person I like to think of me first, so I understand that feeling. There's no doubt Yui-san is the reason I feel that way now.
+I understand the feeling — I'm the type who wants to be someone's number one too, once I love them. Though I've undoubtedly become that way entirely because of Yui-san.
 
-"I'd like to see her, Ritsu."
+"I'd like to see Ritsu-san."
 
-"After we finish the New Year shrine visit, shall we give her a call?"
+"Once we're done here, want to give her a call?"
 
-Grabbing every last coin from my purse, I tossed them into the offering box. Clinking the bells, I clapped my hands firmly, hoping my wish would be heard.
+*
 
-Closing my eyes. May this year bring Yui happiness.
+I gathered up every last coin in my wallet and tossed them into the offering box. Rang the bell, clapped my hands firmly, hoping my wish would be heard.
 
-　I earnestly wished for that. It was probably the first time I'd ever prayed for someone else's happiness.
+I closed my eyes. *Please, let Yui-san be happy this whole year.*
 
-After finishing my prayer, I quietly glanced at Yui beside me. Her eyes were lowered.
+I prayed for that, seriously, with everything I had. This might be the first time I've ever prayed for someone else's happiness before my own.
 
-What was she wishing for? I wanted to know what Yui desired. Was it something that couldn't be granted without divine intervention?
+Once I'd finished, I glanced over at Yui-san beside me. Her eyes, lowered.
 
-If that was the case, then please, may that wish be granted this year at last.
+What is she wishing for? I want to know what she wants. Is it something that can only be granted by praying to the gods?
 
-I closed my eyes once more and prayed from the bottom of my heart.
+If that's true, then please, let this be the year her wish finally comes true.
+
+I closed my eyes once more and prayed, with everything in my heart.

@@ -1,218 +1,223 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 9
 parent: First-year university student, winter
 sequence: 40
-title: "Episode 40: Don't Forget to Tie a Leek Around Your Neck"
+title: "Episode Forty: Don't Forget to Wrap a Scallion Around Your Neck Either"
 ---
-Episode 40: Don't Forget to Tie a Leek Around Your Neck
+## Episode Forty: Don't Forget to Wrap a Scallion Around Your Neck Either
 
-Before me stood a cake stand. Then, amber-coloured royal milk tea.
+\
+A cake stand set before me. Amber-colored royal milk tea beside it.
 
-'Hotel afternoon tea really is something else,' I marvelled, reaching for a sandwich.
+Hotel afternoon tea really is a different world, I thought, marveling as I reached for a sandwich.
 
-We'd been shown to a window seat by the glass panes, where Yuri's silver hair sparkled, dazzlingly reflecting the sunlight.
+We'd been shown to a table by a floor-to-ceiling window, and Yuuri's silver hair caught the sunlight, glittering, almost too bright to look at.
 
-Unlike me, who was already about to start eating, Yuri hesitated, her hand hovering uncertainly.
+Unlike me, already reaching to dig in, Yuuri hesitated, her hand hovering uncertainly.
 
-"Um, what should I eat first?"
+"Um, what am I supposed to eat first?"
 
-"From the bottom up... but I reckon you should just eat whatever takes your fancy? We're in Japan, and it's just the two of us."
+"Bottom up, technically... but I think whatever order you actually want is fine. We're in Japan, and it's just the two of us."
 
-Saying that, I took a bite of a bite-sized sandwich. Yuri followed suit and reached for one too.
+I said it and bit into a bite-sized sandwich, and Yuuri followed my lead, reaching for one herself.
 
-I recalled Yui-san saying something similar when she took me to a hotel dinner before.
+I remembered Yui-san saying something almost identical, once, when she'd taken me to a hotel dinner.
 
-　Since we're friends, it's fine as long as it tastes good and we're having fun. Honestly, I doubt many of the girls here for afternoon tea are worrying about such things.
+Since it's just friends together, all that matters is whether it's delicious, whether it's fun. Really, most of the girls who come here for afternoon tea probably don't worry about the "proper" order at all.
 
-Today, I'd come shopping with Yuri, and I'd suggested we go for afternoon tea in the afternoon.
+Today I'd gone shopping with Yuuri, and I'd suggested afternoon tea for the afternoon.
 
-Making tea at home is nice, but occasionally enjoying it at a hotel is rather lovely too, I thought.
+Brewing tea at home is nice too, but I figured, once in a while, enjoying it at a hotel like this isn't bad either.
 
-　Yui-san mentioned today was her monthly dinner gathering, so she'd be home late.\
-So I'd arranged to hang out with Yuri today, trying to distract myself somehow.
+Yui-san had said she had her usual monthly dinner today, so she'd probably be home late.
 
-Yuri, who'd been happily tucking into her sandwich, suddenly looked up at me as if remembering something.
+Which is exactly why I'd asked Yuuri to keep me company today, trying, one way or another, to distract myself.
 
-"Come to think of it... Kanata, are you going back to England after you graduate?"
+Relieved, biting into another sandwich, Yuuri suddenly looked up at me, like something had just occurred to her.
 
-The question was so sudden it startled me a little.
+"Come to think of it... are you going back to England after graduation, Kanata?"
 
-"Eh? No, I'm not going back. I plan to find work in Japan. Besides, who knows when my family will return to Japan? Why?"
+The question came so out of nowhere that it caught me a little off guard.
 
-The reason my family lives in England now is because my father is posted there for work. Depending on his job situation, the family might return to Japan someday.
+"Eh? No, I'm not going back. I'm planning to get a job here in Japan. My family might come back to Japan themselves at some point too, who knows. Why do you ask?"
 
-"Well, Ritsu mentioned she ought to start preparing for job hunting soon, so I just wondered..."
+The reason my family currently lives in England is my father's work posting. Depending on how that goes, they might end up back in Japan eventually too.
 
-Job hunting... Right. It's that time already. We'll be second-year students next month. Which means Yui and Ritsu are fourth-years.
+"Ritsu-san mentioned it's about time to start job-hunting prep, so it just crossed my mind."
 
-Yui's final year of university, then.
+Job hunting... right. Already at that point, huh. We're moving up to second year next month. Which means Yui-san and Ritsu-san will be fourth-years.
 
-"That's right. This is her last year. I really ought to get better at things like housework this year too..."
+Yui-san's final year of college.
 
-Yui-san already has a job lined up from the start, so she doesn't need to job hunt. Still, once she becomes a working adult, her life won't be as relaxed as it is now, with all this free time.
+"That's right. This year's the last one, huh. I should probably... actually learn to do housework properly, this year, at least."
 
-When that happens, it really wouldn't do to remain a useless burden who can't even manage basic housework.
+Yui-san already has her job lined up, so she doesn't need to job-hunt, but once she's actually working, she surely won't have this much free time anymore, the way things are now.
 
-As I sighed and said this, Yuri narrowed her eyes and smiled.
+Staying nothing but dead weight, useless at even basic housework, when that happens — that's not going to fly.
 
-"So, you mean you haven't been doing any housework at all?"
+I said it with a sigh, and Yuuri narrowed her eyes, laughing.
 
-"W-well... mostly Yui-san does it for me..."
+"Wait, are you seriously not doing any housework at all?"
 
-It was true, but being called out on it made me feel rather uncomfortable.
+"I-I mean... Yui-san handles almost all of it..."
 
-"Huh. Don't say I didn't warn you if you get kicked out of the house one day?"
+True, but pointed out like that, it felt uncomfortably exposed.
 
-"Yui-san wouldn't do that! Probably..."
+"Huh. Wouldn't blame her if she kicked you out eventually."
 
-"Senpai, you spoil Kanata a bit too much, don't you."
+"Yui-san would never do that! ...Probably."
 
-I was aware of that myself, so I had no retort.
+"Your senior really spoils you a little too much, huh~"
 
-"Still, it was a bit surprising. So you're the type to go all out for your girlfriend, huh?"
+I'm well aware of that myself, so I had no comeback.
+
+"But it's a little surprising, honestly. Didn't expect your senior to be the devoted type with a girlfriend."
 
 "Girlfriend?"
 
-I tilted my head, wondering what she meant, when Yuri narrowed her eyes and gave a mischievous smile.
+Confused about what she meant, I tilted my head, and Yuuri narrowed her eyes, grinning, mischievous.
 
-"You're seeing someone, aren't you?"
+"You two are dating, right?"
 
 "Wh-what are you talking about!?"
 
 Startled, I nearly spat out my tea.
 
-"You don't need to hide it. It's obvious to anyone who sees you. You adore her."
+"You don't have to hide it. It's obvious just watching you. You're crazy about her."
 
-It was the first time someone had pointed it out so objectively. Did I really look like that? Embarrassment made my face flush.
+That was the first time anyone had ever said that to me, so plainly, from the outside. Do I really look that way? Embarrassed, my face started heating up.
 
-"And Valentine's Day? You were agonising over it so seriously, weren't you? It made me think... love is rather lovely, isn't it?"
+"You were agonizing so hard over Valentine's chocolate too, remember? Made me think, huh, love's kind of nice."
 
-Yuri didn't seem prejudiced, but I felt a little uneasy nonetheless.
+Yuuri doesn't seem to have any real prejudice, but it left me, just slightly, worried anyway.
 
-　What must I look like to someone who isn't like that? Me, being in love with a woman.
+What does someone in love with a woman look like, to someone who isn't?
 
-"...Do you think it's weird, us being girls?"
+"...Is it weird, do you think? Two women?"
 
-A woman falling for another woman... in Japan today, it's not something you can say too loudly. I don't feel ashamed of it now, but I do wonder what those close to me think.
+Women falling for women isn't exactly something you can say loudly, not in Japan right now. I'm not ashamed of it at this point, but how people close to me see it still matters, at least a little.
 
-"Why on earth? There's nothing weird about it, is there? I think falling for someone is absolutely wonderful. Gender doesn't matter."
+"Why would it be? Nothing weird about it at all. Falling for someone is a wonderful thing, I think. Doesn't matter what gender they are."
 
-Yuri smiled without a care. Ah, I truly am blessed with good friends, I thought sincerely. My heart felt just a little lighter.
+Yuuri laughed, easy, unburdened. I really am blessed with good friends, I thought, genuinely. Something in my chest felt just a little lighter.
 
-"...But we really aren't dating, you know."
+"...But we're really not dating, okay."
 
-"Oh? But Ritsu-san said it was only a matter of time for those two."
+"Really? Ritsu-san said it's just a matter of time for you two."
 
-I couldn't help but give a wry smile. So that's how it was. Ritsu-san had noticed my feelings too, it seemed.
+I couldn't help a wry laugh. So Ritsu-san's noticed my feelings too, then.
 
-Embarrassed, I instinctively covered my face with both hands, only to hear Yuri's teasing laughter.
+Embarrassed, I covered my face with both hands, and heard Yuuri's teasing laughter.
 
-After enjoying shopping and afternoon tea, I parted ways with Yuri and set off for home.
+*
 
-She'd mentioned there was a dinner party tonight, so Yui-san must already be out. Waiting until evening would be tedious, but I told myself it couldn't be helped.
+After enjoying shopping and afternoon tea, I parted ways with Yuuri and headed home.
 
-　Unlocking the door and stepping inside, I noticed the light was on in the living room.
+She'd mentioned a dinner today, so Yui-san was probably already out. Waiting until night sounded boring, but I told myself there was nothing to be done about it.
 
-It was already past seven. Perhaps Yui hadn't gone out after all?
+Unlocking the door and stepping inside, I noticed the living room light was already on.
 
-As I walked down the hallway and reached for the living room door, I heard voices. Yui's voice. Was she talking to someone?
+It was already past seven — could Yui-san not have left yet?
 
-I quietly opened the door. Yui seemed to be on the phone with someone in the kitchen. Her voice sounded a little hoarser than usual.
+Walking down the hallway, hand on the living room door, I heard voices talking. Yui-san's voice. Talking to someone?
 
-"...Sorry about today. Yes, yes, thank you. Right then."
+Quietly opening the door, I found Yui-san apparently on a call in the kitchen. Her voice sounded a little rougher than usual, somehow.
 
-The moment she ended the call, Yui seemed to notice I'd come home.
+"...Sorry about today. Yeah, yeah, thank you. Alright then."
+
+Right as she ended the call, Yui-san seemed to notice I was home.
 
 "Ah, welcome back, Kanata."
 
-Yui gave a slight cough. She seemed a bit under the weather.
+Coughing lightly, Yui-san looked a little unwell.
 
-"Yui, wasn't there a dinner meeting today?"
+"Yui-san, wasn't today the dinner?"
 
-"Hmm, yes. I was supposed to, but I felt a bit feverish. I rang my dad and cancelled for today."
+"Mm, yeah. It was supposed to be, but I started feeling feverish. Called Dad and canceled for today."
 
-Now that she mentioned it, her cheeks did seem redder than usual. I tossed my bag onto the sofa and hurried over to her.
+Now that she'd said it, her cheeks really did look flushed, more than usual. I tossed my bag onto the sofa and rushed over to her.
 
 "Did you take your temperature?"
 
-"No, I didn't. I reckoned it'd just make me feel worse."
+"No, haven't. Feel like it'd only make me feel worse if I checked."
 
-　I get the feeling, but when I had a cold before, you were the first one to insist on taking my temperature.
+I understood the feeling, but she's the one who'd made me check my temperature first thing, back when I had a cold.
 
 "Have you eaten?"
 
-I'd assumed Yui-san had gone to the dinner party, so I'd eaten and come home.
+I'd assumed she was out at the dinner, so I'd already eaten before heading home.
 
-I wish I could look after her like she did for me before, but I can't cook, so I inevitably have to buy something.
+I wished I could take care of her the way she'd taken care of me before, but since I can't cook, buying something ready-made was really the only option.
 
-"I've no appetite, so I'll skip it. I don't want to pass it on to Kanata, so I'm just going to sleep in my room."
+"No appetite, so I'll skip it. Don't want to pass it to you, so I'll just sleep in my room."
 
-Hearing that, I hurriedly grabbed Yui-san's hand as she staggered unsteadily towards her room.
+She said it, wobbling unsteadily toward her room, and I scrambled to catch her hand and stop her.
 
-"What on earth are you saying now? You can't take your medicine without eating. I can't cook for you, but I can at least go and buy something."
+"What are you even saying, this late in the game. You can't take medicine without eating something first, can you. I can't cook for you, but I can at least go buy something."
 
-"It's alright, really. I'll be fine if I just sleep. I'd rather not pass it on to Kanata."
+"It's fine, really. Sleep'll fix it. I'd hate it more, giving it to you."
 
-It might be a bit late, but I think I've realised something. Could it be that Yui-san is actually really bad at being clingy?
+A little late, but I think I might have just figured something out. Is Yui-san, by any chance, terrible at being taken care of?
 
-Generally speaking, little sisters are supposed to be good at being clingy, but that doesn't seem to apply to Yui-san.
+Generally, younger siblings are supposed to be good at leaning on people, or so the stereotype goes — but apparently that doesn't apply to Yui-san at all.
 
-"Right then, Yui, you can just stay in bed for now."
+"Then just go lie down for now, okay?"
 
-Saying that, I pushed her back into her room. After watching her stagger and collapse onto the bed as if drawn to it, I grabbed the bag I'd flung onto the sofa again.
+I said it, steering her back toward her room. Once I'd watched her, unsteady, drawn toward the bed like a magnet, lie down, I grabbed the bag I'd tossed on the sofa again.
 
-There's a supermarket nearby. It's within walking distance from here.
+There's a supermarket nearby. Walking distance from here.
 
-At times like this, I truly curse myself from the bottom of my heart for never having done housework before.\
-　If only I were the sort of woman who could whip up a simple bowl of rice porridge. But regretting it now won't make me capable overnight.
+At times like this, I curse myself, genuinely, from the bottom of my heart, for never having bothered learning housework.\
+I wish I were the kind of woman who could whip up a simple bowl of rice porridge without a second thought. Regretting it now wouldn't make that skill appear overnight, though.
 
-Anyway, I had to do what I could.
+Whatever I can actually do right now, I need to do it.
 
-I pulled my phone from my coat pocket and tapped the contacts app.
+I pulled my phone out of my coat pocket and tapped my contacts.
 
-Honestly, I had absolutely no idea what to buy for her. But even someone like me had a powerful ally.
+Honestly, I had no idea what I should even buy. But I do have one powerful ally, even someone as helpless as me.
 
 The call connected after just a few rings.
 
-‘Hellooo? Hello? It’s Ritsu!’
+*"Heeey, hello? Ritsu here."*
 
-A delightfully cheerful voice came through the phone.
+A relentlessly bright voice came through the phone.
 
-‘It’s Kanata. Sorry to bother you, but I need your help.’
+"It's Kanata, sorry to bother you. I need your help."
 
-‘Eh? What’s up? What happened?’
+*"Eh, what, what happened?"*
 
-‘Yui-san seems to have caught a cold and has a fever, but I’ve no idea what to buy for her.’
+"Yui-san caught a cold, she seems to have a fever, but I have no idea what to buy for her."
 
-　Swallowing my pride, I had no choice but to ask for help. There really was no other way.
+Swallowing my pride, I had no choice but to ask for help. This much, at least, really couldn't be helped.
 
-It made me realise just how useless I truly was. I couldn't even properly look after someone I liked when they had a cold.
+I really am realizing, all over again, just how little I can do. Can't even properly take care of the person I love when she's sick.
 
-'Ah, where are you heading now?'
+*"Ah, where are you headed right now?"*
 
-"The local supermarket..."
+"The nearby supermarket..."
 
-'Hmm, you'll find everything you need there. You can't cook, can you, Kanata-chan?'
+*"Okay, that'll have everything. Kanata-chan, you can't cook, right?"*
 
-"No..."
+"Right..."
 
-'It's alright. They've got instant rice porridge and such. Just warm it up in a pot. Grab a few on your way back. Also, if the fever's bad, get some oral rehydration solution... Well, sports drinks would do too, I suppose. Then, apples, fruit, ice cream? Something easy to eat, I guess. And don't forget to wrap a spring onion around their neck.'
+*"You'll be fine. They've got instant rice porridge, just heat it in a pot, grab a few of those. Also, if the fever's bad, oral rehydration solution, or... well, sports drinks work fine too. And apples, or fruit, ice cream? Whatever seems easy to eat. Oh, and don't forget to wrap a scallion around her neck either."*
 
-The last bit made me burst out laughing. It felt like the slight tension in my heart had eased a little.
+That last line pulled a laugh out of me before I could stop it. Something in me, faintly tense until now, eased.
 
-"Fufu, spring onions? Do you really think that'll work?"
+"Ha, a scallion? Does that actually work?"
 
-『What's that supposed to mean? My old granny back in the sticks said so, so it must be true. Just try it and see, even if you think I'm pulling your leg.』
+*"Hey now, my grandma back home swore by it, so it's got to be true. Just trust me and try it."*
 
-There it was again, "my old granny back in the sticks". I could swear Ritsu-san said something similar when I gave her those black eggs as a souvenir before.
+There it is again, "grandma back home." I feel like Ritsu-san said something similar last time, when I gave her those black eggs as a souvenir.
 
-"...Thank you. That's a real help. If Yui doesn't mind, I'll give it a go."
+"...Thank you. This really helps. If Yui-san doesn't mind, I'll give it a try."
 
-'You're welcome. Give me a ring anytime if you're stuck.'
+*"You're welcome. Call anytime you need me."*
 
-She really is dependable. I'm so glad I got on well with Ritsu. Truly, it's no wonder Yui trusts her so much.
+She's really so dependable. I'm genuinely glad Ritsu-san and I have gotten close. No wonder Yui-san trusts her so much.
 
-　By the time I finished the call, I'd arrived at the supermarket just in time.
+I reached the supermarket right as the call ended.
 
-I picked up a shopping basket, repeating the "things to buy" Ritsu-san had told me over and over in my head, determined not to forget a single one.
+Repeating the list of "things to buy" from Ritsu-san over and over in my head, making sure not to forget a single one, I grabbed a shopping basket.

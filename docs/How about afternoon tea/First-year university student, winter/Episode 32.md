@@ -1,215 +1,219 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 1
 parent: First-year university student, winter
 sequence: 32
 title: 'Episode 32: Was I a Good Girl?'
 ---
-Episode 32: Was I a Good Girl?
+## Episode Thirty-Two: Was I a Good Girl?
 
-Once December arrived, autumn vanished in the blink of an eye, and mornings and evenings grew thoroughly chilly.
+\
+December arrived, and autumn had slipped past in the blink of an eye — mornings and evenings had turned properly cold now.
 
-I placed the small Christmas tree I'd bought at the general store on the living room counter.
+I set up a small Christmas tree, bought from a home goods shop, on the living room counter.
 
-Yui-san's home was tidy, simple, and contained few possessions, so even that little tree, perched there, added a touch of seasonal feeling.
+Yui-san's house is tidy and simple, minimal in every way, so even a tiny tree perched there does plenty of work bringing in a sense of the season.
 
-　Truthfully, I'd have preferred a larger tree, but as a lodger, I couldn't really complain.
+I'd honestly wanted a bigger one, but staying here as a guest, I couldn't exactly get greedy about it.
 
-"That's lovely. Where did you get it?"
+"That's cute. Where'd you get it?"
 
-Yui-san asked as she arranged today's main dish on the dining table.
+Yui-san asked, laying out tonight's main dish on the dining table.
 
-"From a little shop near my part-time job."
+"A home goods shop near my job."
 
-"Oh? I didn't know there was a shop like that."
+"Huh, there's a shop like that around there?"
 
-"Yui-san, do you not usually put up things like Christmas trees or wreaths?"
+"Yui-san, do you not usually decorate for Christmas? Trees, wreaths, anything like that?"
 
-"I've never decorated. Is that normal?"
+"Never have. Is that normal, decorating?"
 
-I didn't know what 'normal' was, but in the Aosawa household, my mother liked that sort of thing, so we decorated.\
-So I'd assumed most ordinary households did the same.
+I don't know if it's "normal," but at the Aozawa house, my mother loved that sort of thing, so we always decorated.\
+Because of that, I'd just assumed every ordinary household did the same.
 
-"I don't know. We did decorate at my place."
+"I don't know about normal. We always did, at home."
 
-While Yui-san ladled out the soup, I went into the kitchen to serve rice into bowls.
+While Yui-san portioned out the soup, I went to the kitchen too and scooped rice into bowls.
 
-　That lovely smell had been wafting through the air for ages, and my stomach had been rumbling non-stop.
+Something had been smelling wonderful this whole time, and my stomach kept growling, unstoppable.
 
-"...Well, Santa did come to our house too, at least until primary school."
+"...I did get Santa, actually, up through elementary school."
 
-Yui-san said, giggling softly.
+Yui-san said it, laughing softly.
 
-"Oh, really? How long did you believe, Yui-san?"
+"Oh yeah? How long did you believe in him?"
 
-I pictured a young Yui-san. She must have been absolutely adorable.
+I tried picturing a young Yui-san. She must have been unbearably cute.
 
-"I knew from the start it was Dad, but I kept quiet about it. Then, when I was in fourth year, I think? I got up in the middle of the night to use the loo and bumped into Dad dressed as Santa in the hallway."
+"I already knew from the start it was Dad, but I kept quiet about it forever. Then, around fourth grade, I think — I got up in the middle of the night to use the bathroom and ran straight into Dad in the hallway, dressed as Santa."
 
-"Eh?"
+"What?!"
 
-"He was the type to go all out, I suppose. He even had a beard on. And I just couldn't help but laugh."
+"He was the type who commits to the costume, apparently. Even had a fake beard on. I couldn't help it, I burst out laughing."
 
-　I couldn't help imagining it and laughing too. Yui-san's father, who looks like a Doberman, doing something like that.
+I couldn't help imagining it either, and laughed too. That Doberman-like father of hers, doing something like that.
 
-"After that, Father Christmas stopped coming."
+"Santa never came after that."
 
-I think Yui-san's father must be a clumsy but deeply affectionate person.
+Yui-san's father really must be a clumsy, but deeply loving person, I think.
 
-But thinking about it that way makes it even more baffling. Why did Yukiyasu-san and his father fall out?
+But thinking about that only deepens the mystery further. Why did he and Yukiya-san ever end up on such bad terms?
 
-　When I clasped my hands together and said, "Let's eat," she'd reply, "Enjoy your meal."
+*
 
-Perhaps because I've been home more lately, Yui-san has been cooking dinner for me more often.
+I pressed my hands together — *itadakimasu* — and got *dig in* back.
 
-Everything Yui-san cooks is delicious. Sitting together at the table, sharing stories about our day – this time had become precious to me.
+Lately, probably because she's been staying home more, Yui-san's been cooking dinner more often too.
 
-My gaze drifted to the small decorated tree. Christmas was approaching soon.
+Everything Yui-san makes is delicious. This time, sitting across the table, talking about our day — it's become something genuinely precious to me.
 
-　I wonder what Yui-san will do. Spend it with family? Or perhaps go out drinking?
+I glanced toward the little tree. Christmas is coming soon.
 
-This will be our first Christmas together since meeting. I wonder how Yui-san has spent this day until now.
+What will Yui-san do? Spend it with family? Or go out drinking, maybe?
 
-"...Yui-san. What did you always do on Christmas?"
+This would be the first Christmas since meeting Yui-san. How has she spent this day, all this time before me?
 
-"Eh? Stayed at home, every year."
+"...Yui-san. What do you usually do for Christmas?"
 
-"Really? You'd think you'd get invited out by all sorts of girls..."
+"Eh? I stay home. Every year."
 
-"Well, you'd have to choose just one, wouldn't you? It'd be unfair to get their hopes up for no reason."
+"Really? I'd have thought all kinds of girls would be inviting you out..."
 
-True. Spending Christmas together feels quite special, and if you don't intend to reciprocate their feelings, Yui-san's choice makes sense.
+"Well, I'd have to pick just one, right? No point getting someone's hopes up over nothing."
 
-But — hearing her say that makes it a bit awkward to say. That I want to spend Christmas together.
+Fair, I suppose. Spending Christmas together carries a certain weight of its own, and if she has no intention of returning anyone's feelings, that choice makes sense.
+
+But — hearing her say that made it a little harder to bring up what I wanted to say. That I wanted to spend Christmas with her too.
 
 "Hmm... I see."
 
-"What about you, Kanata? You wouldn't say you're going on a date with Hayakawa-kun, would you?"
+"What about you? Don't tell me you're planning a date with Hayakawa-kun."
 
-Across the table, those dark eyes fixed on me.
+Black eyes, watching me steadily from across the table.
 
-I still hadn't told Yui-san that I'd properly turned down Hayakawa-kun's confession. The main reason was that I wasn't confident I could smoothly dodge questions about why.
+I still hadn't told Yui-san that I'd properly turned Hayakawa-kun down. Mostly because I had zero confidence I could deflect smoothly if she asked why.
 
 "No way. I don't have any plans."
 
-Shaking my head from side to side as I said that, Yui-san suddenly broke into a smile.
+I shook my head, side to side, and Yui-san's face broke into a bright smile.
 
-"Well then, since we're here, why don't we go on a date?"
+"Then, since we're both free, let's go on a date."
 
-"A date, you say?"
+"A date...?"
 
-Hadn't you just said it was pointless to get my hopes up about spending Christmas with a girl? So does that mean I can hope after all? The words rose to my throat, but I swallowed them back.
+Didn't you just say you don't spend Christmas with girls, no point getting anyone's hopes up? Does that mean I'm allowed to hope, then? I swallowed the words back down before they could climb all the way up my throat.
 
-"Let's go buy a Christmas present. I'll buy you a lovely necklace."
+"Let's go buy Christmas presents. I'll get you a cute necklace."
 
-Yui-san said that and smiled brightly. She must have remembered me saying how lovely the necklace she always wore was.
+Yui-san said it, smiling bright. Apparently she'd remembered me saying, once, that the necklace she always wears is lovely.
 
-"Well then, what would you like, Yui-san?"
+"Then, what do you want, Yui-san?"
 
-If that's the case, I want to give Yui-san a present too. I couldn't give her one for her birthday after all, so Christmas is the time.
+If that's how it's going, I want to give her a present too. I never managed to give her one for her birthday, so Christmas, at least—
 
-"I'm fine without one."
+"I don't need anything."
 
-Her casual reply made me bristle. Yui-san was always like this.
+Said so easily that it irritated me. Yui-san's always like this.
 
-She did everything for me and was so kind, yet she hardly ever expected anything in return.
+Kind, doing anything for me without a second thought, and never expecting anything back from me in return, not even a little.
 
-"...I work part-time too, so I can afford a present."
+"...I have a part-time job too, you know. I can afford to get you a present."
 
-The hourly wage at the café where I worked wasn't bad. I was on the roster quite a lot and had saved up a decent amount.
+The café I work at pays decently. I've been picking up plenty of shifts, and I've managed to save a fair amount.
 
-"Spend your wages on yourself. You've been a good girl all year, Kanata, so you've earned the right to receive a present."
+"Spend your paycheck on yourself. You've been a good girl all year, Kanata, you've earned the right to receive a present."
 
-"If you're going to say that, then Yui-san too..."
+"If you're going to say that, then you too, Yui-san..."
 
-"A good girl? Me?"
+"Was I a good girl? Me?"
 
-"Well... that's... debatable."
+"That's... a little iffy."
 
-When I said it honestly, Yui-san chuckled. I don't think Yui-san is a good girl. If anything, she was a bad girl. In many ways.
+Said honestly, Yui-san burst out laughing. I don't think Yui-san counts as a "good girl." If anything, more of a bad one. In every sense of the word.
 
-"Once we've finished shopping, shall we grab a bite somewhere before heading home?"
+"Once we're done shopping, want to grab dinner somewhere before heading home?"
 
-Knowing Yui, she'd undoubtedly arrange some ridiculously expensive hotel dinner or something.
+Knowing Yui-san, she'd probably arrange some absurdly expensive hotel dinner without blinking.
 
-Thinking that, I shook my head at the suggestion.
+Figuring that, I shook my head at the suggestion.
 
-"I'd like to eat cake at home. And... shall we cook dinner together?"
+"I want cake at home. And... want to cook dinner together?"
 
-I've never really cooked before, and Yui always makes everything for me, but I'd like to try cooking together sometime.
+I've never really cooked before, always just letting Yui-san handle it, but I want to try making something together, just once.
 
-　It's Christmas after all, and a party at home would be fun too.
+It's Christmas, after all, and a party at home sounds fun too.
 
-When I said that, Yui-san smiled gently.
+Hearing that, Yui-san smiled, gentle.
 
-"Alright. I'll reserve a delicious cake then. Think about what you'd like to eat."
+"Sure. I'll book us a good cake, then. Think about what you want to eat."
 
-I'm glad we could make plans for Christmas.
+I'm glad we got Christmas settled.
 
-Yui-san says she doesn't want a present, but I'll just go ahead and get one anyway.
+Yui-san says she doesn't need a present, but I'll just go ahead and prepare one anyway, without asking.
 
-Even if I can't afford anything too fancy, I'm sure Yui-san will be happy with whatever I give her.
+Even if it's nothing especially luxurious, I'm sure Yui-san would be happy with whatever I give her.
 
-　The pale blue bag sitting beside the accessory tray still had its ribbon tied around the handle.
+Sitting right beside the accessory tray, that pale blue bag still sat there, the ribbon still tied around its handle, untouched.
 
-The one Yui-san received for her birthday. Probably jewellery, but she didn't seem inclined to wear it, or even open the box.
+The one Yukiya-san had received on Yui-san's behalf, from that birthday visit. Some kind of accessory, probably, but she doesn't look the least bit interested in wearing it, or even opening the box.
 
-Considering the feelings of the person who sent the present — 'Kitakami-san' — I felt a bit sorry for them. But I was genuinely relieved that sender was a man.
+Thinking of the feelings of the person who sent it — "Kitagami-san" — I do feel a little sorry for him, but honestly, from the bottom of my heart, I'm relieved the sender was a man.
 
-　Had the sender been a woman, I might not have stood a chance.
+If it had been a woman, I might not have stood a chance.
 
-"...The person who gave that present... Kitakami-san, was it?"
+"...The person who gave you that present — Kitagami-san, was it?"
 
-I muttered, staring at the untouched paper bag.
+I murmured it, staring at the untouched paper bag.
 
-I recall Yukiyasu-san mentioned him being his childhood friend, the son of the managing director at his father's company.
+Yukiya-san's childhood friend, if I remember right — the son of the managing director at her father's company.
 
-　If he's Yukiyasu-san's childhood friend, does that mean Yui-san has known him since she was little too?
+Being Yukiya-san's childhood friend, does that mean Yui-san's known him since they were kids too?
 
-Does he like Yui-san? She's beautiful and kind, and surely popular not just with women but with men too.
+Does he like Yui-san? She's beautiful, and kind — there's no way she isn't popular with men too, not just women.
 
-"Does he give you presents every Christmas too?"
+"Does he give you a present every Christmas too?"
 
-When I casually asked that, Yui-san's chopsticks stopped abruptly.
+I asked it, casual, and Yui-san's chopsticks went completely still.
 
-"...Why?"
+"...Why do you ask?"
 
-"I just wondered if that might be the case."
+"Just a feeling, I guess."
 
-It might be more accurate to call it a woman's intuition. Giving someone a high-end jewellery brand present for their birthday isn't something just anyone does.
+Woman's intuition might be the more accurate way to put it. Giving someone a luxury jewelry brand present for their birthday isn't something you do for just anyone.
 
-If that's the case, it seems natural to assume he does the same at Christmas.
+Which makes it natural to assume he'd do the same for Christmas too.
 
-"Hmm, I can't quite remember, I've forgotten."
+"Hmm, I wonder, I forget."
 
-Yui-san said it so casually, she really seemed uninterested in him, so I felt somewhat relieved and breathed a sigh of relief.
+Said so lightly, and Yui-san genuinely seemed completely uninterested in him, which put my mind at ease, and I let out a small, relieved breath.
 
-Even if someone fancied Yui-san, it shouldn't matter if she had no intention of reciprocating.
+It shouldn't matter who likes Yui-san, as long as she has no intention of returning their feelings.
 
-Especially a man who, from Yui-san's perspective, was 'not a romantic prospect'. He couldn't even be considered a rival.
+Especially since he's a man, and, from Yui-san's perspective, entirely outside the realm of romantic possibility. Not even a rival, really.
 
-Is it because he's a colleague that he doesn't know Yui-san is a lesbian?
+He's from the company — maybe he doesn't know Yui-san's gay?
 
-Is that why he keeps making advances? Or perhaps she finds it bothersome but can't refuse because he's a colleague?
+Is that why he keeps approaching her? Finding it a hassle, but unable to turn him down since he's connected to work?
 
-　The more I thought about it, the more puzzling it became.
+The more I think about it, the more the mystery deepens.
 
-There wasn't a single reason to worry. Yet, I couldn't stop thinking about 'Kitakami-san'.
+There's really nothing here worth worrying about. And yet, "Kitagami-san" wouldn't stop nagging at me.
 
-"Christmas, isn't it exciting?"
+"Christmas is going to be fun."
 
-Across the table, Yui-san smiled happily.
+Across the table, Yui-san smiled, happy.
 
-The fact she chose me for this special day meant I could at least assume I was her top priority right now.
+Being chosen by her, on a special day like this — at the very least, I think I'm allowed to believe I'm her favorite, right now.
 
-I stared intently at Yui-san, beaming away.
+I stared at her, smiling so warmly.
 
-　Oh dear. If only Yui-san weren't so beautiful. Then perhaps my troubles would be a little less.
+Ugh. If only Yui-san weren't this beautiful. My worries would probably be cut in half.
 
-"What is it? Why are you staring?"
+"What's wrong, staring like that?"
 
 "...Nothing."
 
-Well, it can't be helped when you fall for someone popular.
+Can't be helped, falling for someone this popular.
 
-I resolved in my heart that someday, I would absolutely make her say she only liked me, and swallowed the last bite of my dinner.
+Someday, without fail, I'll make her say she only loves me — resolving that firmly in my heart, I swallowed the last bite of dinner.

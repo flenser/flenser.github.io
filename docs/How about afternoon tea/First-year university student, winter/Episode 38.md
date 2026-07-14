@@ -1,286 +1,290 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 7
 parent: First-year university student, winter
 sequence: 38
-title: 'Episode 38: Will You Marry Me?'
+title: 'Episode Thirty-Eight: Will You Marry Me?'
 ---
-Episode 38: Will You Marry Me?
+## Episode Thirty-Eight: Will You Marry Me?
 
-Valentine's Day was fast approaching on a certain fine day.
+\
+Valentine's Day drawing close, on a bright, sunny day.
 
-I was at the department store's Valentine's Fair with Yuri. Naturally, I was the one who invited her. The purpose was to choose chocolates to give to Yui-san.
+I went with Yuuri to the department store's Valentine's fair. I was the one who'd invited her, of course. The goal: picking out chocolate to give Yui-san.
 
-We browsed each chocolate specialist stall in turn. I don't think Yui-san particularly likes things that sweet, so perhaps something a bit more sophisticated would suit her.
+We toured store after store of specialty chocolate shops. Since Yui-san isn't especially into sweets, I figured something a little more sophisticated, adult-leaning, might suit her better.
 
-"You're taking your time, aren't you?"
+"You're really agonizing over this, huh."
 
-Yuri grinned as she popped a sample chocolate into her mouth. Since winter, her trademark blonde hair had somehow turned silver. Apparently, she'd dyed it to match her favourite idol's hair colour.
+Yuuri said it, grinning, mouth full of a sample. Somewhere along the way this winter, her trademark blonde had quietly shifted to silver. Apparently to match some "favorite" she's into.
 
-"Aren't you giving any to anyone, Yuri?"
+"Aren't you getting anyone anything, Yuuri?"
 
-Though she'd come along with me, she didn't seem to be planning to buy anything herself. She was nibbling samples, but didn't look like she was seriously choosing anything.
+She'd come along with me, but showed zero intention of buying anything for herself. She kept picking at samples, but nothing about her looked like she was seriously choosing.
 
-"Well, I don't really have anyone I like, so I don't plan on giving any to anyone."
+"I mean, there's no one I like right now, so no plans to give anyone anything."
 
-"Eh? Then why did you come with me today?"
+"Eh, then why'd you even come with me today?"
 
-"Well, obviously because Kanata invited me. So? Why are you taking so long choosing chocolate for your senior?"
+"Obviously because you asked me to, Kanata. So? Why are you agonizing this hard over chocolate for your senior?"
 
-Caught off guard by her bluntness, I faltered. I hadn't even mentioned who I was choosing chocolate for, yet she'd seen right through me from the start.
+Asked so plainly, I got stuck for words. I hadn't even told her who I was picking chocolate for — had she known from the very start?
 
-　To hide my embarrassment, I cleared my throat with a cough.
+Embarrassed, I cleared my throat, hiding it.
 
-"...Well, Yui-san, you know, she gets chocolates from all sorts of people..."
+"...Well, you know, Yui-san gets chocolate from all kinds of people."
 
-"I'd heard rumours, but getting chocolates during spring break? That's quite something."
+"I've heard the rumors, but getting chocolate even during spring break — that's a whole different level."
 
-Yes, Yui-san was even more popular than the rumours suggested. At first, I'd thought spring break meant fewer chances to meet other girls.
+Right — Yui-san really is more popular than any rumor could capture. It's spring break, so I'd assumed, at first, there wouldn't be much chance for her to see other girls.
 
-"...Yui-san goes out drinking quite a lot, doesn't she? I reckon she gets them there. Even before Valentine's, she'd already brought home five."
+"...Yui-san goes out drinking a fair amount, you know. I think that's where she gets it. It's not even Valentine's yet and she's already brought home five."
 
-Even if her habit of staying out all night had calmed down, she hadn't completely stopped going out at night. Of course, the frequency had dropped dramatically compared to before, and since Ritsu-san was also at the drinking gatherings, it wasn't really a problem.
+Even though her habit of staying out overnight has mostly quieted down, going out at night hasn't disappeared entirely. Of course, it's dropped drastically compared to before, and Ritsu-san's usually there too, so it's not like I actually mind.
 
-　"That's quite something," Yuri chuckled. But it really wasn't a laughing matter. I ended up eating all the chocolates Yui-san brought home, but the problem was that every single one was a well-known, high-end brand.
+*Impressive*, Yuuri laughed. But honestly, it's not really something to laugh about. I ate every single piece of chocolate Yui-san brought home, but the problem is, every single one of them was from some recognizable luxury brand.
 
-So, I'm in a fix. I absolutely hate being lumped together with the masses.
+Which is exactly why I'm stuck. Being lumped in with everyone else, treated as just one more in the crowd — I hate that, more than I can say.
 
 "Why not just make some yourself?"
 
-"...I'm not very good at that sort of thing."
+"...I'm not really good at that kind of thing."
 
-Shop-bought chocolates are definitely tastier. Besides, if I were to make chocolates while living together, I reckon it'd be spotted in an instant.
+Store-bought is definitely more delicious anyway. And besides, living together like we do, if I tried making chocolate, she'd catch on in about two seconds.
 
-After all, I hardly ever set foot in the kitchen.
+Because I basically never set foot in the kitchen.
 
-"It'll be fine. She'll be happy with whatever you give her."
+"It'll be fine. Whatever you give her, she'll be happy."
 
-I know that. Yui-san would probably be delighted even with a box of Tirol chocolates. But still, just picking something random feels wrong. Valentine's Day is supposed to be the day you give chocolate to someone you like, after all.
+I know that already. Yui-san would probably be happy even with a cheap drugstore chocolate. But that doesn't mean picking something out carelessly feels right either. Valentine's Day is, at least nominally, the day you give chocolate to someone you love.
 
-Since I can't prepare homemade chocolates filled with my feelings, I at least want to choose something seriously.
+Since I can't manage a heartfelt homemade one, I want to at least choose seriously.
 
-"Hmm... I know, but—"
+"Ugh... yeah, I know, but..."
 
-　I groaned in frustration, and Yuri laughed, giving my shoulder a light pat.
+I groaned, agonizing, and Yuuri laughed and gave my shoulder a light pat.
 
-"Well, agonise over it all you like. Come on, let's do another lap. I'll spend the whole day with you, you lovesick girl."
+"Well, agonize away and pick something. C'mon, one more lap. I'll keep you company all day, lovestruck maiden."
 
-She teased me like that, but I'm sure Yuri would understand how I feel someday when she falls for someone too.
+She said it, teasing, but I think even Yuuri would understand this feeling, someday, once she falls for someone herself.
 
-Since she was going out of her way to help me pick chocolates, I couldn't really complain.
+Since she'd gone out of her way to come with me for this, I couldn't really complain, though.
 
-　In the end, after two more laps around the shop, I settled on chocolates wrapped in a cute red box.
+In the end, after two more laps around the floor, I settled on a chocolate wrapped in a cute red box.
 
-Since I’d be giving these to her on the day, I’d have to hide them somewhere Yui couldn’t see.
+Since I'm giving it to her on the actual day, I need to hide it somewhere Yui-san won't find it.
 
 ＊＊＊
 
-It was nine o’clock at night when I received a message from Yui, who’d been out drinking, saying she was on her way home. She opened the door just after ten.
+The message from Yui-san, out drinking, saying *heading home now*, came in at nine at night, and she actually opened the door a little past ten.
 
-　"Welcome home," I called, rushing over. "I'm home," she replied, wrapping one arm around me. I nuzzled her neck, inhaling deeply to confirm the scent of her perfume. This was a check. Good. The perfume hadn't faded, and no other scents mingled with it.
+*Welcome home*, I rushed over, and she said *I'm home* and hugged me with one arm. I nuzzled into her neck, breathing in, checking for her perfume. This is a routine confirmation, by now. Good — the perfume scent hadn't faded, and no other scent was mixed in.
 
-Yui was carrying two unfamiliar paper bags in one hand. My keen eyes immediately spotted that both contained chocolates.
+Yui-san was holding two unfamiliar paper bags in one hand, and, sharp-eyed as ever, I recognized instantly that both were chocolate.
 
-　Unaware of my gaze, Yui-san placed the chocolates on the coffee table and settled into her usual prime seat.
+Not noticing my staring at all, Yui-san set the chocolate down on the coffee table and settled into her usual spot.
 
-I followed suit, sitting down beside her.
+I sat down right beside her.
 
-I know because I went to the Valentine's Fair today. These are the really expensive ones.
+I know, having gone to the Valentine's fair myself today. This is expensive stuff.
 
-"...You were late today, weren't you?"
+"...You're late today."
 
-"Ah, I got held up on the way back, ended up taking longer than I thought."
+"Ah, got caught up on the way back, ran later than I meant to."
 
-I stare at Yui as she removes her piercing.
+I gave her a flat, unimpressed look as she pulled off her earrings.
 
-"Held up," she says. By what? She was invited out, wasn't she? To a hotel? Or a girl's place? I swallow hard, suppressing the urge to confront her.
+*Caught up* — caught up in what? Invited somewhere, obviously. A hotel? Or some girl's place? I swallowed down the urge to press her on it.
 
-　Even if she was invited, she properly turned it down and came home. Still, it was a bit annoying.
+Even if she was invited, she came home properly, turning it down. But it's still not exactly fun to hear.
 
-"...That makes seven, doesn't it?"
+"...That makes seven, then."
 
 "Eh?"
 
-I pointed at the one sitting proudly on the table. Yui-san looked at the chocolate, her expression shifting to one of understanding.
+I pointed at the chocolate sitting on the table. Yui-san glanced at it, *ah*, like she'd just remembered.
 
-"Honestly, Yui-san, you're really popular, aren't you?"
+"You really are popular, Yui-san."
 
-"Not at all. They're all just obligatory chocolates."
+"Not really. It's all obligation chocolate."
 
 "Hmm...?"
 
-"You can have it if you like?"
+"You can eat it, if you want."
 
-Yui probably thinks I've eaten all the chocolates she's received so far because I love chocolate.
+Yui-san probably thinks I ate all the chocolate she's brought home, up to now, just because I love chocolate.
 
-Well, if you put it like that. I took the wrapped pink box out of the paper bag. I picked up the small message card sandwiched between the brown ribbon and opened it.
+If she's going to say that, then. I pulled the pink wrapped box out of the paper bag. I picked up the small message card tucked in the brown ribbon and opened it.
 
 "Ah."
 
-"'To Yui-san, I love you. Let's hang out again sometime. I'm always waiting for you'... it says."
+"'To Yui-san, I love you so much. Let's play again sometime. I'll always be waiting'... it says."
 
-I waved the card flutteringly in front of Yui-san's eyes. That message card, covered in hearts, was definitely not the sort you'd attach to obligatory chocolates.
+I held the card up, dangling it, right in front of her face. A message card covered in hearts is not what you attach to obligation chocolate.
 
-She seemed to have not noticed the card was there at all, and I could tell she looked flustered as her gaze darted around.
+She apparently hadn't even noticed the card was tucked in there, and I watched her gaze skitter away, caught out.
 
-"This is obligatory? Hmm... Seems rather different from the obligatory chocolates I know."
+"This is obligation chocolate? Hmm... doesn't really match the obligation chocolate I know."
 
-"No, well... Kanata, this is..."
+"No, um... Kanata, this is..."
 
-"White Day's going to be tough, isn't it?"
+"Sounds rough, White Day's coming up."
 
-Smiling sweetly and delivering the sarcastic remark, Yui-san snatched the message card still in my hand and flung it onto the table. Then she gently took my hand, her dark eyes studying me as if gauging my mood.
+I said it with a bright smile, thoroughly sarcastic, and Yui-san took the card still in my hand and tossed it onto the table. Then she took my hand gently, watching me with eyes gauging my mood, cautious.
 
-"I won't give it back. I said that from the start."
+"I'm not returning anything on White Day. I've told them from the start."
 
 "...Hmm. Really?"
 
-"Really. I clearly said I couldn't reciprocate their feelings."
+"Really. I always make it clear I can't return their feelings."
 
-Hearing that, I briefly thought how shocking it would be if I'd given Yui-san chocolate and she'd said that to me.
+Hearing that, I found myself thinking, just slightly — if I ever gave Yui-san chocolate and got told that, it would genuinely hurt.
 
-I feel a little scared. There are moments when I wonder what if, to Yui-san, I'm just like those other girls.
+A small fear crept in. There are moments I can't help wondering — what if, to Yui-san, I'm really no different from any of those girls?
 
-So then, Yui-san, who exactly are you giving the chocolate to?
+So then, who does Yui-san actually give chocolate to?
 
-Just as I was about to say that, a name flashed through my mind. An image of someone I'd never even seen, purely imagined, appeared in my mind and wouldn't fade.
+Just as I started to ask that, a certain name crossed my mind. A face I'd never even seen, an imagined figure that refused to leave my head.
 
-"...Yui-san, are you giving the chocolate to Kitakami-san?"
+"...Yui-san, are you giving chocolate to Kitagami-san?"
 
-　The moment I blurted out that name, unable to hold back, Yui-san's eyes widened slightly in surprise.
+The instant I forced the name out, unable to hold it in any longer, Yui-san's eyes widened, faintly startled.
 
 "Eh? Why?"
 
-"Just a thought. Because you always get presents, don't you? I just wondered if, since it's someone of the opposite sex, you'd give something back at a time like this."
+"Just a feeling, I guess. I mean, you're always getting presents from him, aren't you. I figured, since it's that kind of relationship, opposite-sex and all, maybe you'd return the gesture."
 
-That person, who gives Yui-san expensive presents every time – on her birthday, at Christmas. Someone whose face I've never seen.
+Every birthday, every Christmas, that faceless person who keeps sending her expensive presents.
 
-　Valentine's Day inevitably feels like a romantic event... but would he give her something? If so, I'd hate it. Terribly.
+Valentine's Day, somehow, always carries this image of being a man-woman event... so maybe she does. If so, I'd hate it. Enormously.
 
-"I won't give him anything."
+"I'm not giving him anything."
 
-Yui shook her head from side to side, as if dismissing my worries. Thank goodness. I felt a little relieved. I'd been dreading what she might say if she did give me something.
+Yui-san shook her head, side to side, denying my worry outright. Good. I felt a small wave of relief. I'd been dreading what I'd do if she'd said yes.
 
-"...You've been really preoccupied with Shinji lately. Why?"
+"...You've been really preoccupied with Shinji lately, huh. Why?"
 
-"Eh? Do I seem preoccupied?"
+"Eh, does it show?"
 
-"Yeah, you do."
+"Yeah, it shows."
 
-She gently stroked our joined hands, her eyes fixed on me as if trying to see straight through my heart. I love Yui-san's eyes like this. Eyes like the night sea – calm, deep black. I adore these eyes that try to understand my heart, utterly and completely.
+Our joined hands, stroked gently, her eyes trying to see straight through to my heart. I love this gaze of Yui-san's. Deep, calm black, like a nighttime sea. I love, more than I can say, these eyes that always try to understand what's in my heart.
 
-Saying I wasn't concerned would be a lie. Why I was concerned? I didn't know. Probably just a woman's intuition. Nothing but instinct. So I couldn't explain the reason. But it was a definite sense of unease.
+Saying I'm not preoccupied with him would be a lie. I don't even know why it bothers me. Probably woman's intuition. Pure instinct, nothing more. I can't explain the reason. But it's a real, persistent unease all the same.
 
 "Hey, why? Tell me, Kanata."
 
-She called my name, urging an answer, but I wouldn't say. I wouldn't say, even though I had no reason to feel this way.
+Pressed for an answer, my name called like that, but I won't say it. Absolutely not. Being bothered by something with no real reason.
 
 "...Yui-san."
 
 "Hm?"
 
-"...I'm hungry. Make something."
+"...I'm hungry. Make me something."
 
-At my sudden, unexpected words, Yui-san's eyes widened in surprise.
+Thrown by the sudden non sequitur, Yui-san's eyes went round, surprised.
 
-"Eh? What's that? Kanata, aren't you terribly bad at covering things up?"
+"Eh? What's that. Kanata, you're really bad at deflecting, aren't you."
 
-I pulled her hand as she laughed out loud, "Ahaha". If she'd noticed I was trying to cover it up, I wish she wouldn't be so mean and just let me get away with it by staying silent.
+She laughed, out loud, and I tugged her hand. If she's already noticed I'm deflecting, she could at least be kind enough to just let herself be fooled quietly, instead of calling it out.
 
-"Just hurry up and make us a late-night snack."
+"Never mind that, hurry up, make me a late-night snack."
 
-"It's already ten o'clock, you know? Are you really that hungry?"
+"It's already ten, though? Are you actually hungry?"
 
-Those mischievous eyes peering into mine. She absolutely knows I'm jealous, yet she plays along.
+Her mischievous eyes peered into my face. She's definitely already noticed I'm jealous.
 
-"I am hungry. I want grilled rice balls. The ones you made for me before."
+"I'm hungry. Yakionigiri, please. The one you made before."
 
-"Oh, for heaven's sake... Fine then. But in return, make me a highball. I'm starting over with the drinks now."
+"Ugh... can't be helped, I guess. Then, in exchange, make me a highball. I'm drinking more tonight."
 
-　Yui-san smiled happily. So I stood up too, following her as she headed towards the kitchen.
+Yui-san laughed, pleased. So I stood too, and followed her toward the kitchen.
 
-I've never said it, but I actually like watching Yui-san like this, drinking a highball in the kitchen while making a late-night snack.
+I've never actually said this out loud, but I like watching Yui-san like this, sipping a highball while making a late-night snack in the kitchen.
 
-I love seeing her like that so much that I sometimes deliberately request a late-night snack just to see it. It's a side of you only I know, and I truly cherish it.
+I want to see that so badly that I sometimes make up excuses to request a late-night snack just for the chance — that's how much, deep down, I treasure this side of her that only I ever get to see.
 
-"It won't take long, you can sit down if you like?"
+"It'll be quick, you can sit down, you know?"
 
 "...I'll wait here."
 
-"You must have been really hungry."
+"Guess you really were hungry."
 
-That was part of it. But I wanted to keep watching. Because I was sure this was a side of her she only showed to me.
+That too, but also — I just want to keep watching. Because I think this is a side of her that only I ever get to see.
 
-"...The man who marries Yui-san will be very lucky."
+"...Whoever marries you is going to be happy, Yui-san."
 
-The words slipped out, my true feelings spilling from my lips. Yui-san's hand, which had been about to flip the rice ball, froze for just an instant.
+The honest thought slipped straight out, unbidden. Yui-san's hand, mid-flip of the rice ball, went still for just a beat.
 
-"...Why?"
+"...Why's that?"
 
-After a short pause, Yui-san said this without taking her eyes off the frying pan.
+After a small pause, still not looking away from the pan, Yui-san said it.
 
-"You're perfect at housework and cooking, beautiful, kind... the ideal wife, right?"
+"You're perfect at housework, cooking, gorgeous, kind — the ideal wife, basically."
 
-"Marriage, eh. I've never really wanted it."
+"Marriage, huh. Never really wanted that."
 
-"Eh? Why not?"
+"Eh, why not?"
 
-"...Well, I just can't fall for men."
+"...Because I can't fall in love with a man."
 
-Her profile looked so terribly lonely it made my chest ache. I hadn't meant to say it like that. True, same-sex marriage isn't possible in Japan right now, but still.
+Her profile looked so lonely just then that something in my chest clenched, painfully tight. I hadn't meant it that way at all. It's true that same-sex marriage isn't legal in Japan right now, but even so.
 
-"...Why assume you'd marry a man? Maybe in the future, women will be able to marry each other."
+"...Why do you assume it'd be a man? Maybe someday, women will be able to marry each other too."
 
-At that, Yui laughed out loud.
+At that, Yui-san laughed, out loud.
 
-"Ahaha, what on earth? Are you serious?"
+"Ahaha, what's that. Are you serious?"
 
-"I'm not joking... I really mean it. Someday, that future might come, couldn't it?"
+"Not joking... really. Someday, that future might actually come."
 
-The savoury aroma of burnt soy sauce filled the air. The flipped rice ball was a delicious, golden brown.
+The savory smell of toasted soy sauce filled the kitchen. The flipped rice ball had turned a beautifully crisp golden brown.
 
-Truly, I said it because I thought whoever marries Yui-san would be happy. It wasn't because I imagined her beside some other man.
+I'd said it because I genuinely thought whoever marries Yui-san would be happy. I never meant it as picturing her beside some man.
 
-I didn't want her to look so... lonely.
+I never wanted to put that lonely look on her face.
 
-"...Yes, I suppose so. That would be nice. So, if that future comes, will you marry me?"
+"...Yeah, that'd be nice, if it happened. So, if that future ever comes, will you marry me?"
 
 "Eh...?"
 
-Startled, I stared at Yui-san. Her gentle eyes were fixed on me.
+Startled, I looked up at her. Gentle eyes were watching me.
 
-"Because the woman who marries me will be happy, won't she? So I'll make you happy, Kanata."
+"I mean, whoever marries me is happy, right? Then I'll be the one to make you happy, Kanata."
 
-My heart pounded wildly. Wasn't this practically a proposal? My face grew hot. Could anyone hear something like this from the person they liked and not feel happy?
+My heart pounded, hard, thudding. Wasn't that basically a proposal? My face started heating up. Is there anyone alive who wouldn't be happy, hearing something like that from the person they love?
 
-"I... I don't think I'd make a good wife. I'm hopeless at housework and everything."
+"I don't think I'd make a very good wife. I can't do housework at all."
 
-"That's fine. You don't have to. Just being by my side is enough."
+"That's fine, you don't have to. Just being by my side is more than enough."
 
-"Well then... I'll... think about it..."
+"Then... I suppose... I'll think about it..."
 
-As I squeezed those words out, Yui laughed aloud again.
+I forced it out, and Yui-san laughed again, out loud.
 
-　I took a bite of the crispy, fragrant grilled rice ball. Across the dining table, Yui watched me with a smile, sipping her highball.
+*
+
+I bit into the crisp, savory yakionigiri. Across the dining table, Yui-san watched me, smiling, happy, sipping her highball.
 
 "Maybe I should become a politician."
 
-"Eh? Suddenly? What's that about?"
+"Eh, where's that coming from all of a sudden?"
 
-A politician? Why? A question mark flew above my head.
+A politician? Why? Question marks piled up over my head.
 
-"To change Japanese law. So I can marry you."
+"Change Japan's laws. So I can marry you, Kanata."
 
-She said it with a bright smile, but whether it was a joke or serious, Yui-san was still impossible to read.
+Said with a bright smile, but whether she's joking or serious, I really can never quite tell with Yui-san.
 
-"...If you ever cheat on me, I'll take compensation and divorce you."
+"...If you ever cheat on me, even once, I'm taking alimony and divorcing you."
 
-I said it to hide my embarrassment, and Yui-san laughed happily.
+I said it, hiding my embarrassment, and Yui-san laughed, delighted.
 
-"I won't cheat on you. I may look like this, but I'm actually very devoted. I'll always treasure you."
+"I won't cheat. I might not look it, but I'm actually really devoted. I'll treasure you, always."
 
-What a thing to say. But I hope that future really does come.
+The nerve of her, saying that. But I hope, genuinely, that future really does come someday.
 
-Then, just as we promised at Christmas, we'll definitely go on our honeymoon somewhere where the stars are beautiful.
+If it does, just like I promised at Christmas, our honeymoon is absolutely going somewhere the stars are beautiful.
 
-To a beautiful resort island surrounded by emerald green waters, floating in the Indian Ocean.
+To a gorgeous resort island, ringed in emerald green, floating somewhere in the Indian Ocean.

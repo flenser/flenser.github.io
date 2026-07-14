@@ -1,216 +1,218 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 6
 parent: First-year university student, winter
 sequence: 37
-title: "Episode 37: Don't You Want to Do Something Else?"
+title: "Episode Thirty-Seven: Don't You Want to Do Something Else?"
 ---
-Episode 37: Don't You Want to Do Something Else?
+## Episode Thirty-Seven: Don't You Want to Do Something Else?
 
-On the sofa, between her legs is my very own special seat. While watching films in Yui-san's arms, I idly hold her left hand, stroke it, and play with it.
+\
+Curled up on the sofa, in that spot between her legs that's mine and mine alone, movie playing, I toyed idly with Yui-san's left hand, holding it, stroking it, restless.
 
-The department store event hall bustles with chocolate this season. Valentine's Day is just around the corner.
+Department store event halls, packed with chocolate this time of year. Valentine's Day, not much further off now.
 
-　This major winter event, which should be a source of joy, has recently become a cause of worry for me.
+Something that should feel exciting, and yet lately, it's become one of my biggest sources of worry — this whole winter event, drawing steadily closer.
 
-This person, who is so popular she can't help it, will undoubtedly receive a huge amount of chocolate.
+Someone this endlessly, hopelessly popular is bound to come home with a mountain of chocolate.
 
-And I found that, deep down, thoroughly unpleasant.
+And thinking about that leaves me, genuinely, from the bottom of my heart, feeling anything but amused.
 
-White, long fingers. Short nails with colour. I trace my fingers along her smooth knuckles, as if to confirm.
+Pale, long fingers. Short nails, done in color. I trace my fingers over them one by one, down over the smooth back of her hand, confirming each detail.
 
-　Even though I've secured Yui-san's 'special' status – despite her public declaration of never having a lover – each time these events roll around, I'm reminded of how fragile it feels.
+Yui-san, who's openly declared she doesn't do girlfriends — I've managed to win her "special." But every time an event like this rolls around, it drives home, hard, exactly what that actually means.
 
-Right now, I might be her 'special' one. But how long that lasts, I have no idea.
+Right now, maybe I really am her "special." But how long that lasts, I have no way of knowing.
 
-I understand that becoming lovers doesn't guarantee the relationship will last forever.
+I know that becoming someone's girlfriend doesn't automatically mean the relationship lasts forever.
 
-　Breakups arrive unexpectedly anytime, and since same-sex marriage isn't permitted in Japan yet, this relationship will always run parallel.
+Breakups always come without warning, and in Japan right now, same-sex marriage isn't legally recognized, so no matter how far this relationship goes, it stays parallel lines that never quite meet.
 
-I wish I could say I'm happy just as things are, but there's no guarantee Yui-san won't change her mind.
+It'd be nice if I could just say I'm happy this way, as things stand. But there's no guarantee at all that Yui-san's feelings won't wander somewhere else.
 
-Oh dear. I wish Valentine's Day didn't exist.\
-Even if I gave her mine, it'd surely get buried under mountains of chocolates from other girls.
+Ugh. I wish Valentine's Day just didn't exist.\
+Even if I gave her chocolate myself, it'd surely get buried under a mountain of chocolate from every other girl.
 
-　I don't want her to accept any chocolates from anyone else...
+I don't want her accepting chocolate from anyone but me.
 
-If we were lovers, I could say it. "Please refuse them."
+If we were dating, I could say it. *Turn them all down.*
 
-Then I'd be the only one who could give you chocolates. Not just one among the crowd.
+Then I'd be the only one giving you chocolate. Not just one more among a crowd.
 
-I could never say such a thing, even if my mouth split open, but I wish Yui-san would always understand my selfishness.
+I could never say something like that out loud, not in a million years — and yet I still, always, wish Yui-san would understand that selfishness of mine anyway.
 
-　I want to say it's selfish because we're not lovers. And I want her to laugh and forgive me for it. With that gentle smile, like always.
+I want to voice the kind of selfishness only girlfriends get to say. And I want her to laugh and forgive it. With that same gentle smile she always has.
 
-Her hand clasped mine back tightly. "Kanata," a soft voice murmured in my ear, and I spun around, body and all.
+My hand was squeezed back, gently. *Kanata*, her voice said softly by my ear, and I turned my whole body toward her.
 
-Yui-san's palm caressed my cheek. Her eyes met mine directly. Her hand came around the back of my neck, pulling me closer. Knowing she was going to kiss me, I closed my eyes.
+Her palm, cupping my cheek. Eyes, looking straight at me. A hand slid to the back of my neck, drawing me in, and, understanding I was about to be kissed, I closed my eyes.
 
-Once, a gentle touch, then lips meeting again and again, shifting angles. Accepting her kisses had, at some point, become second nature.
+One gentle touch first, then, tilting, meeting again and again from different angles. Accepting her kisses like this had, somewhere along the way, become second nature.
 
-The film was probably at a crucial moment. Yet, as the fervent kisses repeated, I felt the arms around my waist tighten with growing intensity. Unable to bear it, I pushed her shoulders to create distance.
+The movie was probably at some important turning point, and yet, with each repeated, heated kiss, I could feel the arm around my waist tightening, and, unable to bear it any longer, I pushed at her shoulder to put some distance between us.
 
-"...Yui-san, this is taking a while..."
+"...Yui-san, that was... long..."
 
-My lips parted abruptly, yet the arms holding me close showed no intention of letting go. Those dark eyes stared at me, unfathomably deep.
+Our lips parted easily enough, but the arm around my waist showed no sign of letting go. Deep, bottomless black eyes stared straight at me.
 
-"Aren't you going to watch the film...?"
+"Aren't you watching the movie...?"
 
-Why had she suddenly kissed me? Just moments ago, Yui-san seemed completely absorbed in the film.
+Why the sudden kiss? Just a moment ago, Yui-san had seemed completely absorbed in it.
 
-"Well... you looked bored. Thought maybe we should do something else."
+"Mm, well, you looked bored. Figured maybe we should do something else instead."
 
-Hearing that, I flinched.
+Hearing that, something in me went cold.
 
-I wasn't bored. I'd been watching the film properly, bits and pieces. I understood the story, sort of.\
-I'd just been distracted by my own thoughts sometimes.
+I wasn't bored. I had been watching, in bits and pieces. I understood the story too, more or less.\
+I'd just been distracted, lost in thought, here and there.
 
-Did she think I wasn't interested because I started playing with her hand?
+Maybe, because I'd started playing with her hand, she'd assumed I wasn't interested.
 
-Yui-san really is perceptive. She immediately sees through me when I'm not concentrating.
+Yui-san really is frighteningly perceptive. She catches it instantly, whenever I'm not fully focused.
 
-But then again, her kissing me as that 'something else' is so typical of Yui-san, I suppose.
+But leave it to her to take that and turn "something else" into a kiss — so exactly like her, in a way.
 
-"It's not that I was bored..."
+"It's not that I'm bored..."
 
-"Oh? Then shall we watch something else?"
+"No? Want to watch something different, then?"
 
-Yui-san's left hand reached for the remote. I caught it, gripping it tightly to stop her.
+Yui-san's left hand reached for the remote. I caught it and gripped it tight, stopping her.
 
-It's not that I need to watch something else. Whatever we watch, I'll probably stay the same today.
+I don't need to watch something different. Whatever we watch, I'd probably stay exactly the same, today.
 
-Holding her hand, I looked straight into her eyes. Her long lashes fluttered repeatedly.
+Still holding her hand, I looked straight into her eyes, and her long lashes blinked, rapid, several times.
 
-Pulling Yui-san's startled hand, I fixed it once more on my waist.
+Puzzled, I pulled Yui-san's hand and fixed it back against my waist myself.
 
-I want to keep Yui-san away from Valentine's Day somehow. If only I could lock her in this house, isolate her from the other girls.
+I want, somehow, to keep her far away from Valentine's Day. I almost wish I could lock her up in this house, isolate her from every girl out there.
 
-　To do that, she’d have to like me more. I wanted her to become so utterly captivated by me that she’d have no room left to look at anyone else.
+For that, I need her to fall for me even harder. I want her so completely absorbed in me that she has no room left to look at anyone else.
 
-"...Actually, I’ll do something else."
+"...I do want to do something else, after all."
 
 "Eh?"
 
-Even though she’d said it herself. Yui froze for a moment, clearly not expecting me to say such a thing.
+I'd said it myself, and yet, apparently not expecting me to actually say something like that, Yui-san froze for a beat.
 
-Her gaze searched for the meaning behind my words. Perhaps I should have been more direct.
+Her gaze searched, trying to work out what I meant. Maybe I needed to say it more directly.
 
-I grabbed the front of her white hoodie, the one she wore around the house, and pulled it tight.
+I gripped the front of her white loungewear hoodie and pulled.
 
-"...Are you saying you want me to kiss you?"
+"...I'm saying, kiss me."
 
-When I said it clearly like that, she finally seemed to understand. Yui's eyes widened slightly, looking startled.
+Said plainly, clearly, and, finally understanding, Yui-san's eyes widened, faintly startled.
 
-Then, without a moment's pause, she flipped me over and pressed my back into the sofa.
+Then, without pause, my body was flipped, and my back sank into the sofa.
 
-　She bit down on my lips, and I clung to her, pulling her neck closer.
+Kissed like she meant to devour me, I pulled her in by the neck, clinging back just as hard.
 
-Just look at me. Promise me properly. Swear to God you won't love anyone but me, please.
+I want her looking only at me. I want a real promise. Swear it to God, please — that you'll never love anyone but me.
 
-Unlike the girls Yui-san plays with, I can't just compartmentalise things so easily.
+I can't be as easygoing about this as the girls Yui-san plays around with.
 
-　As the kiss stole my breath, sending shivers through my body and clouding my mind, a cold sensation on my stomach made me gasp and pull away.
+Somewhere in the middle of that breath-stealing kiss, my whole body shivering, my mind going hazy, I felt something cool graze my stomach, and, startled, I broke the kiss.
 
-"H-hold on, Yui-san...!"
+"W-wait, Yui-san...!"
 
-A mischievous hand was slipping beneath my loungewear. It was nearly at my chest when I frantically pushed it away.
+A mischievous hand had slipped under my loungewear. Just as it neared my chest, I scrambled to press it still.
 
-"What is this hand doing...!"
+"What is this hand...!"
 
-"...No?"
+"...No good?"
 
-If I loosened my grip, it would only encourage further intrusion. I clutched the hand tightly through my clothes.
+If I let go, even slightly, I felt certain it would push even further. I gripped it tight, through the fabric.
 
-"No. Absolutely not."
+"No good."
 
-"The film's boring, isn't it? Don't you want to do something else?"
+"The movie's boring, isn't it? Don't you want to do something else?"
 
-Just because the film was dull, how did that lead to suggesting sex?
+How does "the movie's boring" turn into "let's have sex" — what kind of logic is that.
 
-　Kissing was fine. I'd already allowed that far, so it couldn't be helped.
+Kissing's fine. I've already let that much slide, so there's nothing to be done about it now.
 
-But sex was out of the question. This was the last line of defence. We weren't even dating, so doing that... felt wrong.
+But sex is off-limits. That's my last line. We're not even dating — something like that just feels wrong.
 
-"I did say kiss me, but I didn't say I wanted you to go that far..."
+"I said kiss me, but I never said I wanted it to go that far..."
 
-When I said that, Yui frowned, looking distinctly displeased.
+At that, Yui-san's brows drew together, faintly displeased.
 
-"...Kanata, when you kiss like this, don't you ever feel like having sex?"
+"...Kissing like this, doesn't it ever make you want to have sex, Kanata?"
 
-Huh? I let out a startled gasp and froze. Asking if I ever feel like it? How could I possibly answer that?
+Huh? A startled, undignified sound slipped out of me, and I froze. As if I could possibly answer a question like that.
 
-　I do think kissing Yui-san feels good. It makes my stomach feel warm, even.
+Kissing Yui-san feels good, I think. Something warm kindles low in my stomach too, sometimes.
 
-I like you so much I can hardly stand it myself, so I know that sort of thing is a physiological reaction and can't be helped. But telling Yui-san that would be far too embarrassing.
+I love her, hopelessly, endlessly, so I suppose that's just a natural bodily response, nothing to be helped — but saying that to Yui-san is far too embarrassing.
 
-If I said I did feel like it, I genuinely feared she'd never stop.
+If I said *yes, it makes me want to* — I have a feeling she'd genuinely never stop, after that.
 
 "What about you, Yui-san?"
 
-Desperately, I replied with a question. Because I didn't know what else to say.
+Grasping at straws, I turned the question back on her. I had no idea what else to say.
 
-"I... I want to. I want to touch you more, Kanata."
+"I want to. I want to touch you more."
 
-Hearing her say that so simply, I couldn't look straight at her as she pressed herself against me. My whole body grew hot. I felt like I might burst into flames.
+Answered so easily, straight back at me, that I couldn't bring myself to look directly at her, looming over me. My whole body felt like it might catch fire.
 
-"...What kind of... feeling is that? Touching me doesn't make you feel good, does it, Yui-san?"
+"...What kind of feeling is that, exactly? Touching me — it's not like it feels good for you, right?"
 
-"A girl's body feels good just to touch. Especially if it's someone you like."
+"A girl's body feels good just from touching it. Even more so, if she's someone you like."
 
-If it's someone you like, huh. Right. The words of someone who's held someone they like. I couldn't help but feel annoyed. I know it's pointless to be jealous of someone from the past.
+*Someone you like* — I see. Spoken like someone with real experience holding a "someone she liked." Genuinely irritating. I know jealousy over someone from the past gets me nowhere, but still.
 
 "Hmm..."
 
-I stroked her silky black hair, tucking a stray strand behind her ear and tracing the edge of it with my fingertip.\
-After brushing against her earring, I pulled her close, wrapping my arms tightly around her neck, and pressed my lips to her ear.
+I stroked her smooth black hair, tucking a loose strand behind her ear, and, along the way, traced my fingertip along the curve of her ear.\
+After brushing over her earring, I pulled her in close by the neck and brought my lips right to her ear.
 
-"...You'd take any girl, wouldn't you? You idiot, Yui. You lecher. Womaniser."
+"...Any girl would do, wouldn't they. Yui-san, you idiot. Pervert. Skirt-chaser."
 
-Saying that, I bit down a little harder on her earlobe. I thought I heard her say "Ow!", but I immediately released the arms holding her close and pushed Yui's shoulders away.
+Then I bit down, just slightly hard, on her earlobe. I thought I heard a small *ow*, but I let go of the arms wrapped around her and pushed her shoulder back regardless.
 
-"No. I don't do that sort of thing with people I'm not dating."
+"No. I'm not doing that kind of thing with someone I'm not dating."
 
-After stating that clearly, Yui-san hung her head dejectedly. Reluctantly, she moved off me, though she didn't seem entirely convinced.
+Declared plainly, and Yui-san slumped, deflated. Reluctantly, she pulled back off me, though she clearly wasn't fully convinced.
 
-"...I don't actually think anyone will do, you know."
+"...It's not like just anyone would do, though."
 
-Yui-san sighed softly while stroking the ear I'd bitten.
+She said it, sighing, stroking the ear I'd just bitten.
 
-"...So does that mean all the girls you've been with until now were special?"
+"...So then, does that mean everyone you've slept with, up until now, was special to you?"
 
-That wasn't exactly flattering. I sat up abruptly, pouting as I said it, and Yui shook her head from side to side.
+That's not exactly fun to hear either. I pushed myself upright too, pouting, and Yui-san shook her head, side to side.
 
-"Of course not. I've never forced anyone I didn't like to sleep with me."
+"No way. I've never once let myself sleep with anyone I didn't actually like."
 
 "Really?"
 
 "Why would I lie about that?"
 
-True enough, but still.
+That's true, I suppose. But still.
 
-　Still, it really gets on my nerves that this person would get tempted by cute girls' invitations.
+It's still irritating, isn't it — someone who'd probably get swept right along by any cute girl's invitation.
 
-"...Valentine's Day. How many chocolates do you get every year, Yui-san?"
+"...Yui-san, how many chocolates do you usually get for Valentine's Day?"
 
-At this sudden question, Yui-san's eyes widened.
+Thrown by the sudden question, Yui-san's eyes went round.
 
-"Eh? Valentine's?"
+"Eh, Valentine's?"
 
-"Yui-san, how many chocolates did you get last year?"
+"How many chocolates did you get last year, Yui-san?"
 
-When I asked again, she let her gaze wander as if thinking, so it was easy to imagine she’d received more than she could recall offhand.
+I asked again, and her gaze wandered, thinking it over — clearly enough that I could easily imagine the number was too high to even guess at right away.
 
-That number of chocolates is probably the number of women you’ve been with, right?
+That number of chocolates is probably close to the number of women you've slept with, isn't it.
 
-"...I don’t think I’ve received that many."
+"...I don't think I got that many, honestly."
 
-Since she was lying so transparently, I reached out and gave her cheek a firm pinch.\
-　It hurts, Yui-san protested, but I didn't care.
+Lying so transparently that I reached out and pinched her cheek, hard.\
+*Ow*, Yui-san protested, but I didn't care.
 
-"Liar. You've received so many, you can't answer how many, can you?"
+"Liar. You got so many you can't even give me a number."
 
-Valentine's Day is just around the corner.
+Not much longer until Valentine's Day now.
 
-I vowed firmly within myself to eat every single chocolate Yui-san received.
+I made a firm vow to myself — whatever chocolate Yui-san brings home, I'm eating every single piece of it myself.
 
-Yui-san isn't that fond of sweets anyway, so just the chocolates from me will be plenty.
+Yui-san's not even that into sweets to begin with, so my chocolate alone should be plenty for her.

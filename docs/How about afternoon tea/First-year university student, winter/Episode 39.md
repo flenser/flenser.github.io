@@ -1,255 +1,263 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 8
 parent: First-year university student, winter
 sequence: 39
-title: 'Episode 39: No naughty things, now'
+title: 'Episode Thirty-Nine: No Naughty Business Allowed'
 ---
-Episode 39: No naughty things, now
+## Episode Thirty-Nine: No Naughty Business Allowed
 
-Long black hair swayed and fluttered in the breeze, a sweet scent tickling my nostrils. A back I knew well walked before me.
+\
+Long black hair, rustling gently in the wind, a sweet scent tickling at my nose. A back I know well, walking ahead of me.
 
-It smelled like Yui-san, whom I adored.
+That beloved scent of Yui-san's.
 
-——Yui-san, wait.
+*—Yui-san, wait.*
 
-　I called out from behind, quickening my pace to chase after her.
+I called out from behind, pushing my legs forward, chasing after her.
 
-But for some reason, the distance between us wouldn't close. No matter how fast I ran, her back grew ever more distant.
+But somehow the distance never closed at all — no matter how much I ran, and ran, her retreating figure only kept pulling further away.
 
-My legs felt heavy, as if weighed down. Though her figure was right before my eyes, my outstretched hand only sliced through the air.
+My legs felt heavy, dragging. Her back stayed right there in view, and yet my outstretched hand only ever grasped empty air.
 
-Breathless, utterly spent, I stopped, exhausted. That's when I realised: ah, so this is a dream.
+Breath ragged, exhausted, worn down, right when my legs finally gave out and stopped, I realized — ah, right, this is a dream.
 
-——Yui, please, wait.
+*—Yui-san, please, wait.*
 
-Even calling her name in a raspy voice, there was no sign she would turn back.
+Even calling her name in a cracked, straining voice, she didn't so much as glance back.
 
-Beside her stood someone else, not me. I couldn't see their form. But surely, Yui was smiling tenderly at that person, not me——.
+Someone else was beside her. Not me. I couldn't see their face. But unmistakably, Yui-san was smiling at that person, some other person, with a fondness I've never once seen aimed at me—
+
+*
 
 "Kanata."
 
-I awoke to someone shaking my shoulder. Startled, I sat up to find Yui standing there, still wearing her coat as if she'd just returned home.
+Shaken by the shoulder, I woke. Startled, I sat up, and found Yui-san standing there, still wearing her coat like she'd just gotten home.
 
-"Huh? Oh, I must have fallen asleep..."
+"Nn, huh, I fell asleep..."
 
-It seemed I'd dozed off on the sofa while waiting for Yui to come back. Glancing at the clock, it was just past eight in the evening.
+I must have dozed off on the sofa waiting for her to come home. Checking the clock, it was a little past eight in the evening.
 
-"What's wrong? Did you have a nightmare?"
+"What's wrong? Did you have a bad dream?"
 
-Saying that, Yui-san bent down to peer at my face. Her thumb brushed beneath my eyelids, and only then did I realise I'd been crying.
+She said it, crouching down to peer into my face. Her thumb brushed under my eye, and only then did I realize — I'd been crying.
 
-"Huh... I wonder why..."
+"Huh... what's going on..."
 
-I hurriedly wiped away my tears.
+I scrambled to wipe the tears away.
 
-"Are you alright?"
+"You okay?"
 
 "I'm fine... Welcome home, Yui-san."
 
-After taking a deep breath, I said this. Yui-san smiled, looking slightly relieved, and replied, "I'm home."
+I took a deep breath first, then said it, and Yui-san smiled, faintly relieved. "I'm home."
 
-Gently, she held out a single red rose before me.
+Gently, a single red rose was held out in front of me.
 
-Unable to grasp the situation, I silently stared at the vivid red offered to me. Then, looking up at her standing before me, I felt a bit dazed.
+Unable to process the situation, I stared silently at the vivid red held out to me, then looked up, blank, at the person standing there.
 
-My sleep-addled brain slowly rebooted. That's right, today was Valentine's Day. A special day to convey one's feelings to a loved one.\
-And it was the day I was to give Yui-san chocolate. I had been waiting for her return.
+My groggy head slowly booted back up. Right — today's Valentine's Day. That special day for telling someone you love them exactly how you feel.\
+And the day I was supposed to give Yui-san chocolate — I'd been waiting for her to come home.
 
-Her gentle black eyes looked down at me, and she crouched to meet my gaze.
+Gentle black eyes looked down at me, and she crouched further to meet my gaze at eye level.
 
-After gently placing that beautiful single rose in my hand, Yui-san smiled.
+Pressing that single, beautiful rose gently into my hand, Yui-san smiled.
 
-"For you, Kanata."
+"This is for you, Kanata."
 
-"Me...?"
+"For me...?"
 
-"Today's Valentine's Day, isn't it?"
+"It's Valentine's Day, isn't it?"
 
-A little delayed, emotions slowly welled up inside me. I became aware of an indescribable heat spreading deep within my chest.
+A little late, something welled up, warm, thick in my chest. I became aware of some indescribable heat spreading, deep inside me.
 
-I'd just assumed, without asking, that Yui-san was the kind of person who received Valentine's gifts.\
-That's why I'd only ever thought about giving them myself; I'd never imagined I might be the one receiving one.
+I'd just assumed, without ever questioning it, that Yui-san was always the one receiving on Valentine's Day.\
+So I'd only ever thought about what I'd give her — it had never once occurred to me that I might also end up on the receiving end.
 
 "...Yui-san."
 
-I murmured her name.
+I murmured her name, almost to myself.
 
-"I've got chocolate too."
+"There's chocolate too."
 
-The box of chocolates she'd been hiding behind her back. Placing it gently on my lap, Yui-san looked straight at me.
+A box of chocolate, hidden behind her back. She set it gently in my lap and looked straight at me.
 
-Ah, I hate those eyes. The way she gazed at me, as if she couldn't bear to be apart from me.
+Ah, I'm weak to that gaze. The way she looks at me, like she can't help but adore me.
 
-Her hand gently clasped mine, and my heart began to pound.
+My hand held gently, my heart thudding, racing.
 
-"I love you, Kanata."
+"I love you so much, Kanata."
 
-Those words seeped into my terribly unstable heart.\
-In the dream I'd just been having, no matter how many times I called her name, she wouldn't answer.
+Those words sank into my terribly unsteady heart.\
+In the dream I'd just been having, no matter how many times I called her name, she never once answered.
 
-It was a terrible nightmare.
+A genuinely awful nightmare.
 
-It's strange. She's never once failed to answer my calls before.\
-Yui-san always tells me how she feels properly like this.
+Strange. She's never once, not a single time, failed to answer when I called for her.\
+And here she is, telling me exactly how she feels, properly, plainly.
 
-　Why can't I fully believe those words?
+So why can't I fully believe those words?
 
-I took Yui-san's hand and threw myself into her arms, clinging tightly.
+I pulled Yui-san's hand and threw myself into her arms, clinging tight.
 
-"Yui-san... I've got some chocolate ready too."
+"Yui-san... I have chocolate ready too."
 
-"Eh? Really?"
+"Eh, really?"
 
-Her genuinely surprised voice reached me through the ear pressed against my chest.
+Pressed against her chest, I heard her voice, genuinely startled.
 
 "Thank you. ...I'm so happy."
 
-She hugged me back, tight, almost painfully so. I felt my heart rapidly filling up.
+Held back in an embrace tight enough to almost hurt, I felt my heart filling, fast.
 
-I remembered how impatient I'd been for her to come home, how I'd fallen asleep hugging her hoodie, left on the sofa. That must be why I'd had that dream.
+I remembered, now — I'd been so eager for her to come home that I'd fallen asleep hugging the hoodie she'd left on the sofa. That must be exactly why I had a dream like that.
 
-By Valentine's Day itself, Yui-san had received twelve chocolates in total.
+*
 
-　To be honest, eating them all was quite a struggle. But I didn't give Yui a single one.
+The chocolate Yui-san had brought home before today's date came to twelve pieces in total.
 
-Because my chocolate alone was enough for her, given how much feeling went into it.
+Eating through all of it had, honestly, taken real effort. But I never gave a single piece to Yui-san.
 
-I filled a glass with water and placed the rose gently on the counter, where I could always see it.
+Something with real feeling behind it — my chocolate alone is enough for that.
 
-Ideally, I'd have had a single-stem vase, but I'll buy one tomorrow after work. For today, this will have to do.
+*
 
-Watching Yui happily tuck into the chocolate I gave her, I couldn't help but smile.
+I filled a glass with water and set the rose on the counter, somewhere I could see it always.
 
-Sitting beside her, I pressed my shoulder close to hers. Then I popped one of the chocolates she'd given me into my own mouth.
+Really, a proper bud vase would've been nice, but I'd buy one tomorrow on the way back from my shift, so this would have to do for tonight.
 
-The taste of the chocolate melting in my mouth was sweeter than any chocolate I'd ever snatched from Yui before.
+Watching Yui-san happily bite into the chocolate I'd given her, a smile came over me naturally.
 
-"...I never thought Kanata would give me chocolate."
+I sat beside her, our shoulders pressed close together. Then I bit into a piece of the chocolate she'd given me too.
 
-"If you're going to say that, then Yui-san too. I thought you were just the one who received them."
+The chocolate melting in my mouth tasted better than any of the chocolate I'd stolen from her before.
 
-"...Can I take that as you liking me? Did you give any to anyone else?"
+"...I never expected you to actually give me chocolate."
 
-Her eyes peered into mine mischievously, smiling. I wanted to say, you know the answer, don't you?
+"Same goes for you, Yui-san. I thought you only ever received it."
 
-It made me feel so frustrated I jabbed her side with my elbow and turned away.
+"...Can I take this as the real thing? Did you give any to anyone else?"
 
-　Because I'm so anxious about our relationship that I even dream about it, yet Yui-san never shows any sign of it.
+Her eyes, peering into my face, mischievous, laughing. *You already know the answer, don't you, and you're asking anyway* — I wanted to say.
+
+Somehow that irritated me, so I elbowed her side and turned away.
+
+Because I love you enough to have a dream like that, anxious over this whole relationship, and here you are, showing no sign of that same anxiety at all.
 
 "It's a secret."
 
-"Why? Tell me. You're not really saying you gave it to someone else, are you?"
+"Why, tell me. You didn't actually give any to anyone else, right?"
 
-Yui-san, looking flustered, grabbed my shoulders and shook me. I'm sure it's because I'm not exactly popular with the boys, but she always seems so calm about it. I wish she'd try to understand how I feel sometimes.
+Yui-san grabbed my shoulder and shook it, sounding almost panicked. It's probably because I have zero track record with men, but she always acts so composed about everything — I wanted her to worry about my feelings for once, just a little.
 
-"And what about you, Yui-san?"
+"What about you, then, Yui-san?"
 
-If she says she gave it to someone else, I'll snatch back the chocolate I gave her. I stared intently into her eyes, determined.
+If she said she'd given chocolate to anyone besides me, I was taking back the chocolate I'd given her, no question. I stared straight into her eyes with exactly that intention.
 
-"I wouldn't give it to anyone but Kanata."
+"There's no way I'd give it to anyone but you."
 
-Huh, I see. She wouldn't give it to anyone but me. I struggled to hide the smile threatening my cheeks.
+Hmm, I see. So there's no way it'd be anyone but me. I struggled to hide the smile threatening to break across my face.
 
 "Really?"
 
-"Of course. So? What about you, Kanata?"
+"Of course. So? What about you?"
 
 "Do you want to know?"
 
-Since she's always being mean to me, I have to get one back sometimes. I could tell Yui-san frowned in annoyance, so to avoid upsetting her, I rested my head on her shoulder.
+I get teased so much, I figured it was time to give a little back. I could tell her brows had drawn together, faintly displeased, so, careful not to actually sour her mood, I leaned my head against her shoulder.
 
 "...I want to know."
 
-"Then, please close your eyes."
+"Then close your eyes."
 
-"Eh? Why?"
+"Eh, why?"
 
-"Because talking while looking into your eyes is embarrassing."
+"Because it's embarrassing, saying it while you're looking at me."
 
-At that, Yui-san widened her dark eyes in puzzlement. When I urged her to hurry, her long lashes reluctantly lowered as instructed.
+At that, Yui-san's black eyes went round, puzzled. *Hurry up*, I pressed, and, reluctant, her long lashes lowered as told.
 
-Being stared at by those straight, unflinching eyes made a wave of tenderness well up inside me, and I lost confidence in my ability to speak properly.
+Looked at directly by those eyes, an overwhelming fondness always wells up in me, and I lose all confidence I could speak properly.
 
-　I turned to face her directly. Truly, such beautiful features. I could gaze at them forever.
+I turned to face her head-on. Truly, such a beautiful face. I could watch it forever.
 
-"Kanata... I've closed my eyes."
+"Kanata... eyes are closed."
 
-Urged on like that, I couldn't help but chuckle softly.
+Prompted, urging me on, I couldn't help a small laugh myself.
 
-"Are you really that curious about who I gave chocolate to? You got chocolate from all sorts of girls yourself, didn't you? I never asked who gave it to me."
+"Are you really that curious who I gave chocolate to? You got chocolate from all kinds of girls too, Yui-san. I never once asked who gave you what."
 
-"...Receiving and giving are different, aren't they?"
+"...Receiving and giving are different things, aren't they."
 
-"True. ...But I really hated it when you got chocolate from other girls."
+"That's true. ...But I really hated it, you know, you getting chocolate from other girls."
 
-"Hey, Kanata... Is there any point in keeping my eyes closed? Can I open them?"
+"Hey, Kanata... is there even a point to keeping my eyes closed? Can I open them?"
 
-"No. Please just listen."
+"No. Just listen like that."
 
-I wouldn't let her open those eyes. Past experience had taught me well enough that if she looked at me, she'd seize control of the conversation.
+I won't let her open her eyes. I know full well, from plenty of experience by now, that if she looks at me, she'll take control of the conversation right back.
 
-"...Alright."
+"...Got it."
 
 "Before I answer, there's something I want to ask you too."
 
 "What is it?"
 
-"When Yui-san says 'like', what kind of 'like' is it?"
+"When you say 'like'... what kind of 'like' do you mean?"
 
-Her lowered lashes twitched, and for a moment, I thought I saw a flicker of unease. Though her eyes remained downcast, so I couldn't read the depth of her feelings.
+Her lowered lashes trembled, just slightly, and for a moment I thought I caught a flicker of unease. But with her eyes closed, I couldn't read anything deeper than that.
 
-I'd always wanted to ask. How much feeling you intended to convey to me with those words.
+I'd wanted to ask this once, at some point. How much feeling you're actually putting behind that word, every time you say it to me.
 
-"What kind... It means exactly what it says."
+"What kind... just what it sounds like."
 
-　I drew a deep breath.
+I took a deep breath.
 
-"But... how much do you like me?"
+"That... how much of a 'like' is it?"
 
-I realised my voice trembled slightly as I asked.\
-Her long lashes stirred slowly. Deep black eyes captured mine. I hadn't even said it was alright to open them yet.
+I noticed my own voice had come out shaking, just slightly, asking that.\
+Her long lashes moved, slow. That deep black caught me. I never said she could open her eyes yet.
 
 "Kanata."
 
-Hearing my name, I lowered my gaze. A gentle stroke across my cheek made me look away.
+Called by name, I dropped my gaze. Cheek stroked gently, I looked down further.
 
-"...I told you not to open your eyes."
+"...I said don't open your eyes."
 
-"But you said it in such a voice that sounded like you were about to cry."
+"Because you said it in a voice that sounded like you were about to cry."
 
-She pulled me towards her and held me tightly. Feeling this anxious must surely be because of that dream I had. Even now, my chest still throbbed with pain.
+My arm was pulled, and I was held tight. Feeling this anxious has to be because of that dream. Even now, something deep in my chest still aches, dull and sharp at once.
 
-"...Was it my fault you were crying earlier?"
+"...Was it my fault, that you were crying earlier?"
 
-I shook my head from side to side. It wasn't Yui's fault. It was my own fault for not trusting you completely.
+I shook my head, side to side. Not Yui-san's fault. It's my own fault, for not being able to fully believe you.
 
-"I had a frightening dream. That's all."
+"I had a scary dream. That's all it was."
 
-I clung back to her embrace, almost clinging. Her gentle palms stroked my back soothingly, and little by little, the tension drained from my body.
+I hugged her back, half clinging. Her gentle palm stroked my back, soothing, and, little by little, the strength drained out of my body.
 
-"...Shall we sleep together tonight? I'll hold you tight all night long, so you won't have any more frightening dreams."
+"...Want to sleep together tonight? I'll hold you tight, all the way until morning, so you won't have a scary dream again."
 
-I nodded. I didn't want to be apart tonight. Sleeping alone felt like it might become frightening.
+I nodded, small. I didn't want to be apart tonight. Sleeping alone felt like it might be scary.
 
-"About that answer earlier. I haven't given it to anyone else, Yui-san."
+"About what you asked earlier — I didn't give it to anyone else. Only you, Yui-san."
 
-"...Yeah, I thought so."
+"...Yeah, I figured."
 
-Yui-san smiled happily. She kissed my eyelids, then my cheeks, one after the other, and I accepted them.
+Yui-san smiled, happy. Kissed on the eyelid, then the cheek, one after another, and I accepted each one.
 
-"I'll spend all night telling you just how much I like you."
+"Tonight, I'll spend the whole night showing you exactly how much I love you, Kanata."
 
-"...No naughty things, alright...?"
+"...No naughty business allowed, okay...?"
 
-Just to be sure, I added a warning, and Yui laughed out loud.
+I said it, driving the point home, just in case, and Yui-san burst out laughing.
 
-　When I asked why she didn't have a lover, Yui said it was because, with the breakup already certain, it would only hurt the other person.
+Back when I'd asked her why she never dates anyone, Yui-san had said — since the ending's already decided, all it does is hurt the other person.
 
-Surely, she couldn't believe in the future ahead either.
+I'm sure Yui-san, too, still can't quite believe in a future beyond that.
 
-I'm waiting, though.
+And I'm still waiting, aren't I.
 
-I'd throw away that reason, everything, and just want her to say she wants me, forever.
+For her to throw all of that reasoning away, everything, and just tell me she wants me.
 
-Then I'd never have those dreams again.
+If she ever did, I don't think I'd ever have a dream like that again.

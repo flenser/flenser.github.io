@@ -1,224 +1,236 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 3
 parent: First-year university student, winter
 sequence: 34
-title: "Episode 34: Santa's Been Caught"
+title: 'Episode Thirty-Four: Caught You, Santa'
 ---
-Episode 34: Santa's Been Caught
+## Episode Thirty-Four: Caught You, Santa
 
-We laid out the Christmas dinner we'd prepared together on the dining table and sat facing each other.
+\
+We laid out our homemade Christmas dinner across the dining table and sat down facing each other.
 
-Yui-san had done most of the prep work yesterday, so I hadn't really done much, but cooking side by side in the kitchen had still been enjoyable.
+Yui-san had already handled most of the prep work the day before, so honestly I hadn't done much myself, but cooking side by side together in the kitchen had still been genuinely fun.
 
-"Kanata, the paella turned out absolutely delicious."
+"Kanata, the paella turned out really good."
 
 "Really? I'm so glad..."
 
-Even though Yui-san had guided me through the steps, it was my first time cooking since cookery class, so I'd been a bit worried. Hearing her say that made me feel relieved.
+Even with her walking me through every step, it had been my first attempt at real cooking since a home-ec class, so hearing that put me at ease.
 
-Seeing Yui-san eating with a beaming smile made my own cheeks relax.
+Watching her eat, smiling, happy, my own cheeks softened.
 
-I want to become a proper cook myself.
+I want to get properly good at cooking too, someday.
 
-　When I can do it on my own someday, I want to make it for Yui-san. Just like she always does for me.
+Once I can manage it on my own, I want to make something for Yui-san. The way she always does for me.
 
-Christmas is lovely, isn't it? I never knew it was an event that could make me feel this happy.
+Christmas is wonderful. I never knew it could be an occasion that makes you feel this happy.
 
-I've always spent it with my family before, but this is a different kind of happiness.
+I've always spent it with family before, but this is a different kind of happiness entirely.
 
-I realised Christmas is something you spend with someone.
+Christmas, I think, is only really Christmas when you spend it with someone.
 
-"...Yui, didn't you ever feel lonely spending Christmas alone every year?"
+"...Yui-san, weren't you ever lonely, spending Christmas alone every year?"
 
-"Eh? Hmm. I wonder. I never felt lonely, actually. I'd just got so used to being alone, I suppose I'd become numb to it."
+"Eh? Hmm. I wonder. I don't think I ever really felt lonely about it. Guess I just got used to being alone, went numb to it."
 
-She must have had invitations galore, more than stars in the sky.
+There must have been more invitations than she could count.
 
-Yui draws a clear line with her playmates, establishing a boundary beyond which she won't let them cross.
+Yui-san draws a clear line with the women she plays around with — a boundary marking exactly how far she'll let anyone in, and no further.
 
-　Considering not a single word of resentment ever came from the girls, they must accept it and still choose to spend time with Yui-san.
+Given that I've never once heard a single one of them complain, they must all understand and accept that arrangement going in.
 
-Don't they ever want it? A daily life spent with Yui-san. The right to share trivial conversations, laugh together, and fall asleep in each other's arms.
+Doesn't she ever want it, though? An ordinary life shared with someone. Trading pointless small talk, laughing together, the right to fall asleep in someone's arms.
 
-I want it. Maybe that's incredibly greedy of me.
+I want it. Maybe that makes me greedy.
 
-"Kanata, last Christmas..."
+"What about you, Kanata, last Christmas..."
 
-　She stopped abruptly at that point. She seemed to think for a moment, then shook her head from side to side.
+Right there, Yui-san stopped short. She seemed to think it over for a beat, then shook her head, side to side.
 
-"...Sorry, never mind. It's nothing."
+"...Sorry, never mind, forget it."
 
-"What was it? You stopped mid-sentence."
+"What, right in the middle like that?"
 
-"It's fine. It wasn't something you needed to hear."
+"It's fine. Something I didn't need to ask."
 
-She said it with a sigh, so I somehow understood what Yui-san had been about to ask.
+Said with a small sigh, and somehow, I understood exactly what she'd been about to ask.
 
-"Was it... about who I spent last Christmas with?"
+"Were you about to ask... who I spent last Christmas with?"
 
-I couldn't help but ask again, and those dark eyes narrowed slightly. It felt like pressure to keep quiet, but the hint of jealousy made me feel a little pleased.\
+I asked it back, and her black eyes narrowed, sharp. It felt like she was pressuring me not to say it — and yet, sensing jealousy underneath it, I felt a small flicker of happiness too.\
 But Yui-san's guess was wrong.
 
-"I was spending time with my family. By then, I'd already been dumped."
+"I spent it with my family. By then, I'd already been dumped."
 
-When I said that, Yui-san looked relieved, yet still a bit unconvinced.
+Hearing that, Yui-san's face showed something like relief, though not quite fully convinced either.
 
-"I see... But no matter how many times I hear it, I genuinely can't understand. With such a lovely girlfriend, how could he cheat?"
+"I see... but no matter how many times I hear it, I genuinely can't wrap my head around it. Having a girlfriend this cute — how does anyone cheat on that?"
 
-Why, indeed. My thoughts drifted to the man who dumped me. In hindsight, it was for the best he did. Considering it led me to meet Yui-san, I can see that being with him wasn't entirely wasted.
+Why, huh. I found myself thinking back to the man who'd dumped me. Looking at it now, I'm glad he did. Thanks to that, I met Yui-san — which means, in the end, dating him wasn't entirely wasted time either.
 
-"It just means he didn't truly care for me."
+"He just never really loved me. That's all it was."
 
-That's what I believe now. Ultimately, I think he would have settled for anyone who could satisfy his desires.
+That's how I see it now. In the end, I think anyone willing to satisfy his own wants would have done just fine, whoever it was.
 
-He said, "If you love me, you should be able to fulfil my needs." Even when it caused me pain, he always prioritised his own desires. He never cared about me.
+He used to say, "if you really loved me, you'd meet my needs." Even when I found it painful, he always put his own wants first. He never once considered me.
 
-But Yui-san told me, "If you truly love each other, you shouldn't have to force yourself to conform."
+But Yui-san had told me — "if you actually like each other, there's no need to force yourself to go along with something you hate."
 
-　Those words saved my heart.
+Those words saved something in me.
 
-You could dismiss it as gender differences and leave it at that, and of course I know not all men are like that.
+I know I could just chalk it up to a difference between men and women and leave it at that, and of course not every man is like him.
 
-But now, it doesn't matter at all. I don't feel a single shred of emotion towards him.
+But at this point, it genuinely doesn't matter anymore. I don't feel a single scrap of anything toward him now.
 
-"...If it were me, I'd never cheat, though..."
+"...If it were me, I'd never cheat..."
 
-Yui-san muttered that, so I couldn't help but lift my gaze and meet her eyes.
+Yui-san murmured it, almost to herself, and I found myself lifting my eyes, meeting hers, unbidden.
 
-　I wanted to know her true meaning. Peering into those dark eyes, like the sea I adored that night.
+Wanting to know what she really meant. I searched those black eyes, the ones I love, deep as a midnight sea.
 
-Then, for a moment, Yui-san looked startled. As if she'd spilled words she hadn't intended to say.
+At that, Yui-san's expression flickered, startled, just for an instant. Like she'd let slip something she never meant to say.
 
-"...Even though you have no intention of getting a girlfriend?"
+"...Even though you have no intention of ever getting a girlfriend?"
 
-Saying it accusingly, Yui-san gave a forced, bitter smile as if to cover it up.
+I said it, half-accusing, and Yui-san gave a wry, deflecting laugh.
 
-"...Just hypothetically speaking."
+"...Just hypothetically."
 
-She gulped from her champagne glass, her pale throat moving. The usual sparkle was missing from her décolletage, leaving me feeling strangely unsettled.
+She tipped back her champagne glass, her pale throat moving as she swallowed. Her collarbone, without its usual glimmer, looked strangely unfamiliar.
 
-I'd thought she'd say something to me, that she'd try to seduce me. But... perhaps it wasn't that simple after all.
+*If it were me* — hearing her say that, I'd half hoped she was about to court me properly. Guess it's never quite that simple.
 
-After enjoying dinner, we ate Christmas cake, leaning close together as we talked about all sorts of things.
+*
 
-Stories from childhood, family tales, friends' stories, and all sorts of other things. I wanted her to know everything about me, and I wanted to know everything about her.
+After enjoying dinner, we had Christmas cake, and sat shoulder to shoulder, talking about all kinds of things.
 
-What circumstances she'd lived through, how she'd felt at the time, how she'd arrived at this point, and how she wanted to live from now on. I wanted to know it all.
+Stories from childhood, family, friends, everything else besides. I wanted her to know everything about me, and I wanted to know everything about her.
 
-Yui-san is like a complex puzzle.
+What kind of circumstances she'd grown up in, how she'd felt at each turn, how she'd arrived at who she is now, and how she wants to live going forward. I want to know all of it.
 
-Bit by bit, gathering the pieces that spill out during conversation and fitting them together, her outline finally begins to emerge.
+Yui-san is like some intricate puzzle.
 
-　But the puzzle that makes her up still shows no sign of being complete, and I still don't know what's depicted there.
+Gathering up the pieces that spill out, little by little, from our conversations, fitting them together — only then does her outline finally start to take shape.
 
-But if I could learn each and every piece that shapes Yui-san, perhaps I could become someone who can stand by your pain and suffering, even just a little.
+But the puzzle that makes up who she is doesn't show any sign of nearing completion yet, and I still don't know what picture it's actually forming.
 
-That's why, after all, I truly wish to win a place beside Yui-san, even if it takes time.
+But if I can learn every single piece that makes up Yui-san, maybe I could become someone who stands beside her pain, her hurt, even just a little.
 
-　And then, before I knew it, the clock was about to strike midnight. It was time for us to head to our respective rooms.
+Believing that, I find myself wishing, from the heart, to win my place beside her, however long it takes.
 
-I had decided to place the Christmas present I'd prepared quietly by her pillow after she'd fallen asleep.
+*
 
-Truthfully, I wanted to give it to her right now and see her happy face, but I'd save that for the next morning's delight.
+Before I knew it, the date was about to change. Time to head to our own rooms.
 
-"Thank you for today. I had a wonderful time."
+*
 
-"I should be thanking you. I'll treasure it, Yui-san's necklace."
+I'd decided to sneak the Christmas present I'd prepared onto her pillow after she'd fallen asleep.
 
-When I said this, placing my hand over my heart, Yui-san smiled happily and drew me closer.
+Honestly, I wanted to hand it over right now and see her happy face, but I figured I'd save that for tomorrow morning instead.
 
-"...Goodnight, Kanata."
+"Thanks for today. It was so much fun."
 
-Her face drew near, and knowing she was about to kiss me, I gently closed my eyes. Her lips touched mine softly.
+"I should be the one thanking you. I'll take good care of it, Yui-san's necklace."
 
-　A goodnight kiss was a first for me. I found myself thinking I rather liked this kind of gentle kiss too. A warmth spread deep within my chest, and a feeling of tenderness overflowed.
+I said it, hand pressed to my chest, and Yui-san smiled, happy, and pulled me close.
 
-I didn't want to part. I wanted to stay with her longer. I almost felt like being selfish.
+"...Good night, Kanata."
 
-But if Yui-san didn't fall asleep, I wouldn't be able to give her the present.
+Her face drew near, and knowing I was about to be kissed, I gently closed my eyes. Our lips met, soft.
+
+A good-night kiss — a first. I think I love this kind of gentle kiss too. Something warm welled up deep in my chest, overflowing with fondness.
+
+I don't want to let go. I want to stay together longer. I nearly let myself say something selfish.
+
+But I can't give her the present unless she's asleep.
 
 "...Good night."
 
-I gently let go of her hand.
+Gently, I let go of her hand.
 
-　Despite nearly succumbing to sleepiness countless times, I managed to hold on, hold on, until the clock's hands passed two in the morning.
+*
 
-Assuming Yui-san would be asleep at this hour, I slipped out of the room without slippers, tiptoeing carefully to avoid making a sound.
+Fighting off drowsiness again and again, holding out, holding out, until the clock's hands finally swept past two in the morning.
 
-I couldn't quite manage dressing up as Father Christmas like Yui-san's father did.
+Figuring Yui-san would surely be asleep by now, I slipped out of my room without slippers, tiptoeing, careful not to make a single sound.
 
-I opened the door to Yui's room slowly, trying not to make a sound. The room was pitch black, not a sound to be heard.
+I couldn't quite manage the full Santa costume, the way her father once had.
 
-I crept towards the bedside, trying not to make a sound with my footsteps, and peered in gently. Her steady breathing and long lashes lowered in sleep brought me relief.
+I eased her bedroom door open, careful not to make a sound. The room was pitch dark, silent.
 
-　Good, she's properly asleep.
+Careful with every footstep, I crept up to her bedside and peeked in. Her breathing was even and steady, her long lashes lowered, and I let out a small breath of relief.
 
-I must place it and retreat before Yui-san wakes.\
-Exercising the utmost caution, I placed the present by her pillow, trying to make as little noise as possible.
+Good, she's really asleep.
 
-Right, mission accomplished. Now I just need to retreat without making a sound.
+Better place this and retreat before she wakes up.\
+With the utmost care, as quietly as I possibly could, I set the present down by her pillow.
 
-It was the very moment I turned to leave. Suddenly, my hand was grabbed with a sharp tug, my heart clenching.
+Alright, mission accomplished. Just need to withdraw without making a sound.
 
-"Waaah!"
+Just as I turned to leave, a hand shot out and grabbed mine, hard, and my heart clenched, tight.
 
-Yui-san sat bolt upright, yanking my hand hard. I lost my balance and took a full dive onto the bed.
+"Waah!"
 
-She wrapped her arms tightly around me, and Yui-san's sweet, soft, just-woken voice whispered in my ear.
+Yui-san sat bolt upright and yanked my hand, hard, throwing me off balance, and I went sprawling straight onto the bed.
 
-"...Caught Santa."
+Caught firmly in her arms, I heard Yui-san's voice at my ear, soft and sweet with sleep.
 
-"G-goodness, you startled me...! Honestly, Yui-san! Why did you wake up...?"
+"...Caught you, Santa."
 
-I wish she'd pretended not to notice. She's so mean. I stayed up waiting until two o'clock just for this.
+"Y-you scared me...! Geez, Yui-san! Why are you even awake...?"
 
-I heard her giggling softly by my ear.
+Even if you noticed, couldn't you have just pretended not to? Mean person. And here I'd stayed up until two for nothing.
 
-"Well, I didn't think Father Christmas would actually come, so I was just so happy..."
+I heard soft laughter, right at my ear.
 
-Yui-san's hair tickled my neck as she rubbed herself against it. Operation failed. My shoulders slumped in disappointment.
+"Because I never expected Santa would actually come, and I'm happy about it."
 
-"Oh, come on... That tickles..."
+Her hair, nuzzling insistently against my neck, tickled. Mission failed. My shoulders slumped, defeated.
 
-"Hey, what did he give me, Father Christmas? Can I open it?"
+"Geez... that tickles..."
 
-　A gentle kiss on my cheek made my body go limp. Yui-san hugged me tightly; perhaps because she'd just woken, her body felt slightly warm and it felt lovely.
+"Hey, what'd Santa bring me? Can I open it?"
+
+Kissed gently on the cheek, all the strength drained out of my body. Held tight in her arms, her body felt slightly warmer than usual, probably from just waking up, and it felt wonderful.
 
 "No. Open it in the morning."
 
-"Eh? Why?"
+"Eh, why?"
 
-"Because that's how presents from Father Christmas work."
+"That's just how presents from Santa work."
 
-You go to sleep excited, wake up the next morning, and check your present first thing. A happy day begins right from the morning. That's what Christmas is.
+Falling asleep giddy with anticipation, waking up the next morning to check your present first thing. A happy day starting right from the morning. That's what Christmas is.
 
-　Sneaking up in the middle of the night to check presents and then going back to sleep is against the rules.
+Sneaking out in the middle of the night to check your present and going back to sleep is against the rules.
 
-After I explained this, Yui-san smiled, hugged me, and then flopped down onto the bed beside me.
+Convinced by that logic, Yui-san laughed and, still holding me, flopped straight back down onto the bed.
 
-"Alright. So, we'll open the presents tomorrow morning then."
+"Got it. Then I'll open the present tomorrow morning."
 
-Held in her arms, Yui-san pulled the duvet up completely, covering me right up to my shoulders.
+Pulled into her arms, she tucked the blanket snugly up to my shoulders.
 
 "Um... Yui-san?"
 
-This bed smells absolutely lovely. It's Yui-san's scent. Somehow it makes my heart race.
+This bed smells really good. Yui-san's scent. My heart's racing so much.
 
-"...Since we're here, let's just sleep together like this."
+"...Since we're already here, let's just sleep together tonight."
 
-Our bodies pressed tightly together felt so good. I couldn't bring myself to leave this bed and go back to my own room either.
+Our bodies pressed close together, comfortable. I couldn't bring myself to want to leave this bed and go back to my own room either.
 
-Perhaps because she'd been asleep just moments before, Yui-san soon began breathing softly in her sleep.
+Probably because she'd already been sleeping, Yui-san's breathing evened out into sleep almost immediately.
 
-Drawn in, I too started to drift off, feeling drowsy.
+Drawn along by it, I felt sleep pulling at me too, slow and heavy.
 
-"...Yui... I love you..."
+"...Yui-san... I love you..."
 
-I hugged her tightly and closed my eyes. Before I knew it, I too had fallen into a deep sleep.
+Hugging her body close, I closed my eyes. Before I knew it, I'd fallen into a deep sleep myself.
 
-　The next morning, snow that had fallen all night lay piled up outside the window, turning everything white.
+*
 
-Seeing Yui-san, who had woken earlier than me for once, open the present in the early morning light, hugging the scarf happily and smiling innocently, I...
+The next morning, the snow that had fallen all night lay piled outside the window, turning everything pure white.
 
-Ah, I thought from the bottom of my heart, how happy I am.
+Yui-san, waking earlier than me for once, opened her present at first light, and I watched her hug that scarf close, laughing, innocent and delighted, and thought—
+
+Ah. I'm happy. I really am.
