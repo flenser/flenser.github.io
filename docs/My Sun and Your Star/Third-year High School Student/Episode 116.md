@@ -97,7 +97,7 @@ We both caught our breath and headed towards the queue to pay our respects at th
 
 Whilst many people were chatting, we remained silent the whole time. It wasn’t uncomfortable, though; it simply felt as though I wasn’t really with Endo-san.
 
-　A white mist, as pure as her heart, rose from the lips of the girl next to us. I gazed at her for a moment, and before long, it was our turn.
+　A white mist, as pure as her heart, rose from the lips of the girl next to me. I gazed at her for a moment, and before long, it was our turn.
 
 　Endo-san had already begun her prayers.
 
