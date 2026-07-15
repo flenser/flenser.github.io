@@ -274,14 +274,3 @@ Lips pressed against my earlobe.
 "You don't have to worry... I already stopped, a long time ago."
 
 Whispered so gently, and then that sweet, beloved scent of Yui-san's reached me, and I — unable to bear it any longer — wrapped my arms tight around her back.
-
----
-
-**Notes:**
-
-This episode ends right at the threshold — it stops with the embrace, before any actual sex scene, so nothing here required a censor mark under your standing instruction. I translated the whole thing straight, no softening, including the flashback to Kanata's ex and her framing of "dating" as a "permit" for someone to use her body — a genuinely bleak piece of self-analysis that the source doesn't soften either.
-
-- Yui's line "I already stopped, a long time ago" directly answers the unresolved thread running since roughly Episode 20 — she'd quietly stopped seeing other women well before tonight's confrontation, meaning Kanata's jealousy this episode, however understandable given what she witnessed, was aimed at something already over.\
-- The drunk, jealous confrontation escalating into Kanata initiating is a significant shift in the power dynamic from every prior refusal scene (19, 29, 37) — worth flagging given how deliberately this reverses her own established boundary.
-
-Episode Forty-Four is titled 「好きな子とセックスするのに、がっかりする人なんているの？」("Is Anyone Actually Disappointed, Sleeping With Someone They Like?") — given where this leaves off, that episode will likely depict the sex scene explicitly. Per your standing instruction, I'll translate it straight and mark anything that crosses into territory I can't reproduce directly as [explicit content omitted] rather than softening it. Send it whenever you're ready.
