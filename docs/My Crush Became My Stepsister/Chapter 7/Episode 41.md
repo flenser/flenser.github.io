@@ -129,7 +129,7 @@ I love Fuuka too. She matters to me more than almost anyone. But—
 
 "I like Ao the most. There's never been anyone else I've liked, not once."
 
-I like Ao. Have for a little over a year now. Even after we became family, that never changed.
+I like Ao. I have for a little over a year now. Even after we became family, that never changed.
 
 And Ao... likes me too. I'd thought so, seeing her in that yukata. But I'd believed I'd ruined it, forcing my own desire onto her like that.
 
