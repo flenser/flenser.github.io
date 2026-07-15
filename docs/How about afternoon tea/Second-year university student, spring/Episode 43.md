@@ -1,273 +1,287 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 2
 parent: Second-year university student, spring
 sequence: 43
-title: "Episode 43: I Won't Wait Any Longer"
+title: "Episode Forty-Three: I Won't Wait Any Longer Than This"
 ---
-Episode 43: I Won't Wait Any Longer
+## Episode Forty-Three: I Won't Wait Any Longer Than This
 
-Reaching the living room, I flung my bag onto the sofa with a violent toss, still seething.
+\
+Reaching the living room, still churning with frustration, I hurled my bag onto the sofa without care.
 
-"...You bloody idiot, Yui."
+"...You idiot, Yui-san."
 
-I couldn't forget that girl's smug face. Her face might have been cute, but her personality seemed utterly awful.
+That girl's smug, triumphant face wouldn't leave my head. Cute, maybe, but her personality seemed genuinely awful.
 
-Was she really that easy-going? Does Yui just fancy anyone who's cute?
+Is that really the "not-a-hassle" type? Does it not matter to Yui-san who it is, as long as they're cute?
 
-"Ugh... it's infuriating."
+"Ugh... so infuriating."
 
-　I recalled Yui-san's stunned expression, probably because I'd suddenly kissed her in public.
+I remembered Yui-san's face, frozen, stunned, after I'd kissed her out of nowhere, in public.
 
-But I wanted to show her. That this person is mine. I'll never let her go to that girl.
+But I'd wanted to show it off. That this person belongs to me. I'm never handing her over to that girl.
 
-I sighed. After that, Yui-san didn't chase after me. And her phone... it made a really awful noise.
+I let out a sigh. She hadn't chased after me, afterward. And her phone... that sound had been genuinely awful.
 
-But it was Yui-san who let it slip from her hand, so it's not my fault. It's all Yui's fault.
+But she's the one who let go of my hand — not my fault. This is all Yui-san's fault.
 
-The more I think about it, the more it becomes a quagmire. These murky feelings just keep swelling up.
+The more I think it over, the deeper I sink into the mire. This murky, souring feeling in me just keeps swelling.
 
-I knew from the start that Yui was always chasing after girls. But I never imagined I'd be so shaken when I actually saw it with my own eyes.
+I'd known, from the very start, that Yui-san played around with women constantly. But actually seeing it, right in front of me — I never expected it would shake me this badly.
 
-Until now, it was just a world of imagination. But just knowing that such a girl actually existed in reality made my chest feel unbearably tight.
+It had all been just something I imagined, up until now — and just knowing that girl actually existed, in the real world, was enough to squeeze something unbearably tight in my chest.
 
-　I don't want to think about it, but I can't stop.
+I didn't want to think about it, and yet I couldn't stop.
 
-Yui's white fingers, her lips — touching that girl's body. The sight of her, her teeth probably sunk into that shoulder.
+Those pale fingers of hers, those lips — touching that girl's body. The exact scene where she must have sunk her teeth into that shoulder.
 
-I can picture it all too clearly. It won't leave my head at all.
+I could picture it, vividly, in perfect detail. It wouldn't leave my head, no matter what.
 
-Yui's arms should be my special place, just for me.
+Yui-san's arms are supposed to be my own special seat, and no one else's.
 
-"No good... I need a drink, to calm down first..."
+"No good... I need to drink something, calm down for a second..."
 
-　If Yui-san came home now, I'd probably lash out in anger and hurl all sorts of words at her.
+If Yui-san came home right now, I was certain I'd hurl every angry word I had straight at her.
 
-I headed for the kitchen and opened the fridge. Something caught my eye. A can with a lemon design on it, not usually there.
+I headed to the kitchen and opened the fridge. Something caught my eye. A can with a lemon print, not normally there.
 
-A magical drink that might somehow fix my current irritable mood.
+A magic drink that might do something about this churning, frustrated feeling of mine right now.
 
-I glanced at the clock. Not long until my birthday.
+I checked the clock. Just a little while left until my birthday.
 
-　——A mere few hours? That's within the margin of error, surely.
+—A few hours is well within reasonable margin of error, right?
 
-I reached out and grabbed the can, slamming the fridge door shut so hard it rattled.
+I reached out, grabbed the can, and slammed the fridge door shut loud enough to rattle.
 
 ＊＊＊
 
 "I'm home..."
 
-An unusually sombre voice reached me, and I looked up. Yui-san, opening the living room door, noticed me and shifted her gaze awkwardly.
+An unusually subdued voice reached me, and I lifted my eyes. Yui-san, opening the living room door, noticed I was there and let her gaze skitter, uneasy.
 
-"…You’re late, Yui-san. Did you go to that child’s house or something?"
+"...You're late, Yui-san. Did you go over to that girl's place, by any chance?"
 
-"Of course not. My phone screen cracked, so I just went to buy a new one. That’s why it took so long. It’s all because Kanata did that thing."
+"No way. My phone screen shattered, so I just went to buy a new one. That's why it took so long. This is because of what you did."
 
 Yui-san took off her coat and hung it on the rack.
 
-"…Is it my fault?"
+"...So it's my fault?"
 
-"Wouldn’t you be shocked? Normally, if someone did that to you."
+"Wouldn't you be startled too, if someone did that to you?"
 
-"But you always kiss me, don't you?"
+"But you kiss me all the time too, Yui-san."
 
 "Not in public."
 
-"Would kissing me in public cause you trouble?"
+"What's the problem with kissing me in public?"
 
-"Not me. Kanata would be the one in trouble. What if strange rumours started spreading?"
+"It's not me who has a problem, it's you, Kanata. What if it started some weird rumor?"
 
-Yui-san lowered her eyebrows, looking troubled. Then she sat down beside me.
+Troubled, Yui-san's brows drew down. Then she sat down beside me.
 
-"...It doesn't matter. I don't care what anyone thinks."
+"...I don't care. What anyone thinks of me."
 
-She took my hand and squeezed it tightly. Yui-san always held my hand like this when she wanted to talk to me.
+My hand was taken, gripped tight. Whenever Yui-san wants to talk to me properly, she always holds my hand like this.
 
-"...I'll be graduating in a year, but you won't, will you?"
+"...I've got one more year until graduation, but you don't."
 
-Her admonishing tone and gaze were irritating. She didn't look at that girl like this, did she? Didn't she court her with eyes full of passion?
+That reasoning tone, that gaze — not fun to hear at all. She's never looked at that girl with an expression like this. Probably some far more heated look, courting her properly, wasn't it.
 
-"You just don't want the other girls to know you're doing this sort of thing with me, do you? Just living together makes them jealous, doesn't it?"
+"You're just embarrassed other girls might find out you're doing this kind of thing with me. Living together alone already draws enough jealousy, doesn't it."
 
-　I grabbed the can from the coffee table and gulped it down. My body had been burning since earlier. My heart was pounding, and my head felt strangely foggy.
+I grabbed the can off the coffee table and tipped it back into my stomach. My whole body's been hot this whole time. My heart's pounding, my head's gone strangely hazy.
 
-"...Kanata, what are you drinking? Surely not alcohol?"
+"...Kanata, what are you drinking? Don't tell me that's alcohol."
 
-Yui-san looked startled, her gaze fixed on the canned chu-hai in my hand.
+Yui-san's eyes went wide, alarmed, at the canned chu-hai in my hand.
 
-"It's fine, isn't it? I'll be twenty in a few hours anyway."
+"Doesn't matter, does it. I turn twenty in a few hours anyway."
 
 "Kanata..."
 
-Yui frowned reproachfully. Why that look? It's your fault, Yui.
+Reproachful, Yui-san's brows drew together. Why that face? This is all Yui-san's fault, isn't it.
 
-That girl can't get you to go out with her either. But I've never had sex with Yui.
+Not being able to date her — that girl has the same problem. But I've never slept with Yui-san.
 
-I'm losing. I'm the one falling short. I'm distant from Yui.
+I'm losing. I'm the one losing. Further away from Yui-san.
 
-　She'd pressed me several times about becoming physical, but whenever I refused, saying we weren't dating, Yui-san always backed down easily.
+She's pushed for that kind of physical relationship a few times before, but every time I refused, using "we're not dating" as the excuse, Yui-san always backed off, easily, without a fight.
 
-Well, of course she did. After all, she could have sex with such a cute girl whenever she wanted.
+Of course she would. Because she can sleep with a girl that cute, anytime she wants.
 
-It's infuriating. It makes me furious. That girl knows a Yui-san I don't.
+Infuriating. Furious. That girl knows a Yui-san I don't know.
 
-"...Sorry. I made you feel bad, didn't I?"
+"...Sorry, I made you feel awful, didn't I."
 
-Apologies won't lift my spirits. After all, you can't change the past.
+Being apologized to doesn't make it better. Because the past can't be changed.
 
-I took another sip of canned chu-hai and stood up. Slamming the half-empty can onto the table, I used the momentum to shove Yui-san's shoulder hard.
+I took another gulp of the chu-hai and stood. I slammed the half-finished can down on the table and, riding that momentum, shoved Yui-san's shoulder, hard.
 
-My stomach churned. If anyone would do, it shouldn't have to be that person.
+Something roiled, sick, in the pit of my stomach. If anyone will do, then it shouldn't matter whether it's that girl at all.
 
-　If it's just about wanting sex, there's no need to go out of your way to sleep with random people.\
-Even if it's not a lover, you could just pick one person, couldn't you?
+If it's just sex you want, there's no need to go out of your way to sleep with a whole rotating cast of people.
 
-Yes, someone like me, for instance.
+Doesn't have to be a girlfriend — just pick one single person and stick with them, right?
 
-Yui, pushed on the shoulder, almost fell backwards but instinctively put her arms behind her and looked at me. Ignoring that, I climbed onto her lap. Seeing the look of utter surprise on her face, one I'd never seen before, made me feel a little better.
+Like, for example, me.
 
-　I started to pull up her top to take it off, but Yui's hand hurriedly stopped me.
+Shoved back, Yui-san caught herself with a hand behind her, looking up at me. I climbed onto her lap without hesitation, and seeing an expression on her face I'd never seen before, startled, felt satisfying, just a little.
 
-"Kanata, hold on a second!"
+I started tugging my top up, meaning to pull it off, and Yui-san's hand shot out, panicked, stopping me.
 
-Yui's hand gripping my arm felt cool, almost cold. Or maybe I was just hot. I couldn't tell anymore, but she was definitely looking at me, and I wanted to see that moment when the heat lit up in her dark eyes.
+"Kanata, hold on, stop!"
 
-　Sex, when you really think about it, isn't such a big deal.
+Her hand, gripping my arm, felt cool, cold. Or maybe I'm just the one running hot. I couldn't tell anymore, honestly — but she really was looking at me, and I wanted, badly, to see the moment heat kindled in those black eyes.
 
-I'm not a virgin, and besides, the other person is a woman. There was nothing to lose from the start. I'd overthought it – all that stuff about having to be in a relationship.
+Sex, when you really think about it, isn't that big a deal.
 
-When I did that sort of thing for the first time, I don't even know now if I liked the other person.
+Not like I'm a virgin, and besides, it's a woman this time. There was nothing to lose, from the very start. I'd been overthinking it, this whole "has to be dating" business.
 
-It was just that word, 'being in a relationship', that felt like a licence for him to do as he pleased with my body.
+The first time I ever did that kind of thing, I don't even know, now, whether I actually liked him.
 
-　It was only because that licence existed that I had to offer my body to him, and it was the sole reason I could convince myself to endure it, no matter how painful it was.
+It's just that the word "dating" had functioned like some kind of permit — permission for him to do whatever he wanted with my body.
 
-"Hey, calm down. What's got into you all of a sudden?"
+Because that permit existed, I had to hand my body over to him, and that was the only reason I could ever convince myself to endure it, however painful it was.
 
-"Don't you get it? You do this sort of thing with loads of women. You did it with that girl earlier too, didn't you?"
+"Hold on, calm down, what's gotten into you all of a sudden?"
 
-My sharp tone made Yui frown slightly. Her gaze drifted straight to the table.
+"Do I need to spell it out? You've done this kind of thing with plenty of other women. You did it with that girl earlier too, didn't you."
 
-This is no fun. It's no fun that she won't look at me.
+My words came out with an edge, and Yui-san's brows drew together, faintly. Her gaze drifted down to the table.
 
-A white arm stretched out and grabbed the can with the lemon design on it. The liquid inside made a noise.
+Not fun. Not fun at all, her not looking at me.
 
-"This... it's the strong stuff, isn't it? Kanata, you've had too much. I'll fetch you some water, come downstairs."
+Her pale arm reached out, grabbing the lemon-printed can. The liquid inside sloshed, audible.
 
-She says it with a hint of annoyance, which confuses me. She adores women, after all. She kisses them without a second thought.
+"This... this is the high-proof kind. Kanata, you're drinking too much. I'll get you water, get off."
 
-Why won't she take me up on my invitations?
+Said with faint displeasure, and I couldn't make sense of it anymore. She loves women so much. She kisses me without a second thought.
 
-I was utterly furious. I grabbed Yui-san's hand and pressed it hard against my chest.
+So why won't she take me up on this?
 
-　Neither large nor small, just an ordinary size. Compared to that glamorous woman I saw today, right now, these breasts feel pitifully inadequate.
+Fury, unbearable, welled up. I grabbed her hand and pressed it flat against my chest, hard.
 
-Yui froze like a statue, looking taken aback. The hand pressed against my chest didn't twitch at all.
+Not big, not small, an entirely unremarkable size. Compared to that glamorous girl I'd seen today, this chest felt pitifully inadequate right now.
 
-"...Yui, aren't you interested in me? Does that mean everything you've done before was just a joke?"
+Yui-san froze, stunned, like a stone statue. Even the hand pressed to my chest didn't so much as twitch.
 
-"...What on earth is wrong with you today?"
+"...Are you not interested in me at all, Yui-san? Was everything, all that pushing before, just a joke?"
 
-"You'll kiss me, but you hesitate about sex? Or is it because I'm frigid, so you don't want me?"
+"...What's actually gotten into you today?"
 
-I know full well that a woman who shows no reaction is utterly pointless to be with. Because that's exactly what my ex was like. Sex was painful and agonising; I never once felt it was pleasurable.
+"You kiss me fine, but you hesitate at sex? Or is it because I'm frigid, that you don't want to?"
 
-　My body must be flawed. If it doesn't work with men, it won't work with women either.
+I know full well nobody enjoys sleeping with a woman who shows no reaction. Because my ex was exactly like that. Sex was always painful, difficult, and I never once thought it felt good.
 
-"It's not that... Didn't you say you wouldn't do this with someone you weren't dating?"
+My body's probably broken, incomplete. If it didn't work with a man, the outcome won't change with a woman either.
 
-"...If that's how you feel, then don't even kiss me."
+"That's not it... You're the one who said you wouldn't do this kind of thing with someone you're not dating, Kanata."
 
-If she'd truly intended to respect my wishes from the start, kissing me was already wrong. It crossed the line of physical intimacy.
+"...If you really think that, then don't kiss me either."
 
-　I didn't know myself. It's Yui's fault. Had I never met Yui, I probably wouldn't have felt a flutter for a woman my whole life, and I certainly wouldn't have ended up pursuing one like this.
+If she'd genuinely intended to respect that boundary from the start, kissing wouldn't make sense either. It already goes well past ordinary skinship.
 
-"Isn't it fine with me? I'm always at home anyway."
+Even I hadn't known this about myself. This is Yui-san's fault. If I'd never met Yui-san, I probably never would have felt my heart race for a woman, not once in my whole life, and I never would have pushed myself on one like this either.
 
-"What do you mean by that?"
+"I'm right here, aren't I. I'm always home anyway."
 
-"...Please stop seeing other women."
+"What's that supposed to mean?"
 
-Being with Yui-san makes me feel suffocated. At night, I feel lonely without her, and in the morning, when I pass her with that unfamiliar scent, I feel like crying.
+"...Just stop playing around with women already."
 
-I endured those days for so very long.
+Being with Yui-san hurts. At night, when she's not here, I feel lonely, and in the morning, passing her in the hallway carrying some unfamiliar scent, I want to cry.
 
-Finally, she started coming home every day, and I should have been able to feel at ease.
+I've endured days like that, over and over, for so long.
 
-Yui took a deep breath and let it out with a sigh. Her eyes, as black as the night sea, fixed on me.
+I'd finally started to feel safe, now that she came home every single night.
 
-No. I don't want you looking at me like that. It's so intense it makes my breath catch.
+Yui-san drew a deep breath, and let it out with a long sigh. Those eyes, black as a midnight sea, held me, steady.
+
+Wrong. I didn't want to be looked at with that kind of gaze, and yet it was so serious it nearly stole my breath.
 
 "Kanata... do you like me?"
 
-Don't ask such obvious questions. I wouldn't be the one to suggest having sex with someone I didn't like, would I?
+Don't ask something that obvious. As if I'd ever propose sex with someone I didn't like.
 
-"...I dislike people who cheat."
+"...I hate unfaithful people."
 
-"You're talking nonsense. If you don't like me, why did you want to have sex with me?"
+"You're not making any sense. If you don't like me, why do you want to sleep with me?"
 
-"I don't want to hear that from Yui-san, who has sex with people she doesn't like."
+"I don't want to hear that from someone sleeping with people she doesn't even like."
 
-I snapped back reflexively, and Yui-san gave a wry smile. She was right, so I had no retort. This person is beautiful. Whether she's smiling, angry, or exasperated.
+I shot it back on reflex, and Yui-san let out a wry laugh. True enough, there was probably nothing to say back to that. This person is beautiful. Smiling, angry, exasperated — all of it.
 
-　That's why she infuriates me. It galls me that I alone can't possess this warmth of hers, which others could so easily obtain.
+That's exactly what makes me furious. This warmth of hers, something anyone else could get so easily — that I alone can't have it makes me want to scream.
 
-"...Are you sure you won't regret this?"
+"...Are you really sure you won't regret this?"
 
-Asking me that now, I couldn't possibly know.
+Asked that, I don't even know anymore.
 
-Unable to process the emotions welling up, my vision blurred and tears streamed down my cheeks. I don't know this feeling. I don't understand it. No one has prepared an answer for me.
+Unable to properly process the feelings welling up in me, my vision blurred, and tears spilled down my cheek. I don't know this feeling. I don't understand it. No one's going to hand me an answer.
 
-"...Don't kiss anyone else. I don't want you hugging them either."
+"...Don't kiss anyone else. I don't want you holding anyone else either."
 
-I know it's not an answer, that I'm saying incoherent, jumbled nonsense. As I squeezed those words out, the hand that had slipped away from my chest gently stroked the corner of my eye.
+I know this isn't really an answer, that I'm saying something incoherent, nonsensical. Forcing it out anyway, I felt the hand that had, at some point, left my chest gently wipe at the corner of my eye.
 
-My vision cleared, and when I looked up, Yui-san was smiling oddly.
+My vision cleared, and there, looking back at me, Yui-san was laughing, amused.
 
 "...Why are you laughing? I'm being serious."
 
-"Kanata, you're quite a handful when you're drunk, aren't you?"
+"You're a real handful when you're drunk, Kanata."
 
-"...You said 'handful' again."
+"...There, you said 'handful' again."
 
-"Sorry, sorry. You're adorable, really."
+"Sorry, sorry. You're cute. Really, really cute."
 
-Saying that, Yui downed the rest of the canned chu-hai she'd been holding in one gulp.
+She said it and tipped back the rest of the chu-hai in her hand, draining it in one go.
 
-Her pale throat moved with a gulp, and just as she tossed the empty can onto the table, I was grabbed by the shoulders and the world flipped upside down.
+Her pale throat moved, swallowing, and just as she tossed the empty can onto the table, my shoulder was grabbed and the whole world flipped.
 
-　Her back pressed against the soft sofa fabric, which creaked ominously.
+My back hit the soft fabric of the sofa, which groaned, unsettling, under the impact.
 
-"...It's fine. Let's have sex."
+"...Fine. Let's have sex."
 
-Yui-san, now perched on top of me, smiled bewitchingly.
+Looming over me, Yui-san smiled, something alluring in it.
 
-An expression I'd never seen before.
+An expression I'd never once seen before.
 
-Suddenly feeling scared, I clutched the fabric at my chest tightly. A gentle palm came to rest over my hand.
+Sudden fear crept in, and I gripped the front of my own shirt tight, and a gentle hand settled over mine.
 
-"Don't be scared... You're the one who asked me out."
+"Don't be scared... you're the one who invited this."
 
-"Um, Yui-san, wait a moment."
+"Um, Yui-san, wait a second..."
 
-My arm was seized firmly, pinning me to the sofa. It felt like my means of defence had been stripped away, and my heart pounded loudly.
+My arm was gripped, hard, pinned to the sofa. It felt like whatever means I had to protect myself had just been taken away, and my heart pounded, loud, frantic.
 
-"I've waited long enough. I won't wait any longer."
+"I've already waited long enough. I won't wait any longer than this."
 
-Her lips pressed against my neck, biting lightly. It suddenly occurred to me. What exactly is the end of sex between women?
+Her lips pressed against my neck, biting, light. I found myself thinking, idly — what does the end of sex between two women even look like?
 
-I don't know. My head feels like it's gone stupid; I can't think of anything.
+I don't know. My head had gone foolish, useless, unable to think about anything at all.
 
-There's just one thing I want from you.
+I only wished for one single thing, from her.
 
-"If we have sex... will you stop sleeping around...?"
+"...If we have sex... will you stop playing around with women...?"
 
-When I said that, Yui-san suddenly smiled gently.
+At that, Yui-san smiled, soft, gentle.
 
-Her practised hands slipped beneath my top, tracing my ribs upwards from my stomach. Yui-san's palm, which had felt cold just moments before, somehow felt warm now, and my breath caught slightly.
+Her practiced hand slipped under my top, tracing up from my stomach, along my ribs. Her palm, which I'd thought felt cold just a moment ago, now felt strangely warm, and my breath caught, just slightly.
 
-Her lips pressed against my earlobe.
+Lips pressed against my earlobe.
 
-"Don't worry... I stopped ages ago."
+"You don't have to worry... I already stopped, a long time ago."
 
-After she whispered that gently, I caught the sweet, sweet scent of Yui-san that I loved so much, and I — couldn't bear it anymore, and hugged her back tightly.
+Whispered so gently, and then that sweet, beloved scent of Yui-san's reached me, and I — unable to bear it any longer — wrapped my arms tight around her back.
+
+---
+
+**Notes:**
+
+This episode ends right at the threshold — it stops with the embrace, before any actual sex scene, so nothing here required a censor mark under your standing instruction. I translated the whole thing straight, no softening, including the flashback to Kanata's ex and her framing of "dating" as a "permit" for someone to use her body — a genuinely bleak piece of self-analysis that the source doesn't soften either.
+
+- Yui's line "I already stopped, a long time ago" directly answers the unresolved thread running since roughly Episode 20 — she'd quietly stopped seeing other women well before tonight's confrontation, meaning Kanata's jealousy this episode, however understandable given what she witnessed, was aimed at something already over.\
+- The drunk, jealous confrontation escalating into Kanata initiating is a significant shift in the power dynamic from every prior refusal scene (19, 29, 37) — worth flagging given how deliberately this reverses her own established boundary.
+
+Episode Forty-Four is titled 「好きな子とセックスするのに、がっかりする人なんているの？」("Is Anyone Actually Disappointed, Sleeping With Someone They Like?") — given where this leaves off, that episode will likely depict the sex scene explicitly. Per your standing instruction, I'll translate it straight and mark anything that crosses into territory I can't reproduce directly as [explicit content omitted] rather than softening it. Send it whenever you're ready.

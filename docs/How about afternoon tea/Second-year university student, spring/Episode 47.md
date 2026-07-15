@@ -1,217 +1,226 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 6
 parent: Second-year university student, spring
 sequence: 47
-title: 'Episode 47: It Was the First Time I Had Ever Liked a Woman'
+title: 'Episode Forty-Seven: Falling for a Woman Was a First for Me'
 ---
-Episode 47: It Was the First Time I Had Ever Liked a Woman
+## Episode Forty-Seven: Falling for a Woman Was a First for Me
 
-After that, I only remember fragments of how I managed to escape from the scene.
+\
+Everything after that, how I actually got myself away from that spot — I only remember it in fragments.
 
 "Kanata, wait, Kanata!"
 
-Yui-san, who had chased after me as I ran off, grabbed my hand, stopping me in my tracks.
+I'd broken into a run, and Yui-san, chasing after me, caught my hand, and my feet stopped.
 
 "No, don't touch me!"
 
-I turned around, trying to shake off her hand, shouting louder than I expected myself. My wrist, gripped tightly, ached like it was creaking. It was the first time that hand, usually so gentle, had touched me so forcefully.
+Startled by the sheer volume of my own voice, I spun around, trying to shake her off. My wrist, gripped tight, ached where she held it. This was the first time that hand, always so gentle, had ever grabbed me with this much force.
 
-"I won't let go. Kanata, please, just listen to me."
+"I'm not letting go. Kanata, please, just listen."
 
-Listen? What, now? You never told me anything. I waited all this time. Why didn't you tell me something this important? Why did you keep it from me for so long?
+Listen — to what, now, of all times? You never once told me anything, this whole time. I'd been waiting, all this time. Why didn't you tell me something this important, all this time, this whole time?
 
-Without thinking, I looked up at Yui, glaring at her. Her dark eyes, as if frightened by my gaze, twisted as if she might cry at any moment. Why are you making that face? I'm the one who wants to cry.
+I looked up at her, glaring, without meaning to. As if flinching from my gaze, those black eyes twisted, on the verge of tears. Why would you make that face. If anyone should be crying right now, it's me.
 
-"...I had no idea you had such a wonderful lover."
+"...I never knew you had such a wonderful partner."
 
-The words that came out were surprisingly cold, even to me. I couldn't quite grasp what the emotion welling up inside my chest was.
+What came out of me sounded, even to my own ears, startlingly cold, and I honestly didn't know what this feeling welling up in my chest even was.
 
-Was it anger? Sadness? Both? A whirlpool of unfamiliar feelings churned and stirred my heart.
+Anger, or sadness, or both at once. A storm of feeling I'd never experienced before churned, tearing through my heart.
 
-"No, he wasn't a lover. Shinji was a fiancé arranged by our parents..."
+"It's not that, he's not my partner. Shinji's a fiancé, arranged by our parents..."
 
-"You mean you were promised to marry him, right? That's what people generally call a lover!"
+"That means you've promised to get married, doesn't it. That's what the rest of the world calls a partner!"
 
-As I half-shouted this, I felt the hand gripping my arm tremble ever so slightly.
+I said it, half-shouting, and I could feel the hand gripping my arm trembling, faintly.
 
-"I'm sorry... truly... I knew I had to tell you... but I just... couldn't bring myself to..."
+"I'm sorry... really... I knew I had to tell you, but... I just... couldn't say it..."
 
-　It was an uncharacteristically faint, fragile voice, almost as if she might vanish. Hearing it, the realisation washed over me: ah, this is true.
+A voice so weak, so unlike Yui-san, like it might vanish entirely. Hearing it, the reality of it all came crashing down on me. Ah — this is real.
 
-So Yui really does have an engagement... and intends to marry him in the future. I see. That's why she said, "Since the breakup is certain, I won't have a lover." That's what it meant.
+Yui-san really does have a fiancé, and really does intend to marry him, someday. So that's what she meant — "since the ending's already decided, I don't make girlfriends." That's exactly what she meant.
 
-　My vision slowly blurred, filling with tears. The memories of living together, the tender recollections, the days filled with affection – it felt as though they were crumbling away with a sound.
+My vision blurred, slowly filling up. It felt like the memories of our life together, the gentle moments, the days I'd cherished, were all coming apart, crumbling with a sound I could almost hear.
 
-I felt something cold run down my cheek, then it just kept flowing, unstoppable.
+Something cold traced down my cheek, and once it started, it wouldn't stop, spilling over, again and again.
 
-"...Yui... weren't... you... attracted to women...?"
+"...Weren't you... into women, Yui-san...?"
 
-My breath caught in my throat, and the words I barely managed to squeeze out trembled pitifully.
+My breath came ragged, and the words I managed to force out shook, embarrassingly.
 
-You said you couldn't love men, that you'd never wanted to marry one.
+You said you could never fall for a man, that's why you never wanted to marry — that's what you told me.
 
-"The only one I love... is you, Kanata... I swear, it's not a lie. It's true I can't love a man."
+"The one I love is... only you, Kanata... I swear, it's not a lie. That I can't love a man — that's true too."
 
-"Then why... ...really... marry Kitakami-san...? But he's a man..."
+"Then why... are you really... marrying Kitagami-san...? He's a man, though..."
 
-"...I'm sorry I kept quiet..."
+"...I'm sorry, for staying silent..."
 
-I didn't want her to say sorry. I wanted her to say it wasn't true, even if it was a lie. Because that would mean she was affirming the marriage.
+I didn't want to hear *sorry*. I wanted her to say it wasn't true, even as a lie. Because saying sorry meant admitting the marriage was real.
 
-Once I understood, tears fell like a child's, streaming down my face. My chest hurt so much I couldn't breathe. I felt like I might die.
+Once I understood that, the tears spilled out, messy, like a child's. My chest ached, I couldn't breathe. I felt like I might die.
 
 "Kanata..."
 
-Yui-san gasped, reaching out to wipe my tears. But I flung her hand away.
+Yui-san, startled, reached out to wipe at my tears. But I knocked her hand away with everything I had.
 
-"...I hate you. I hate you, Yui-san. I absolutely hate you!!"
+"...I hate you. I hate you, Yui-san. I hate you so much!!"
 
-I lifted my lowered face and stared straight at Yui-san, forcing the words out.
+I lifted my downcast face and looked her straight on, forcing the words out with everything I had.
 
-　Because the Yui-san before me wore an expression of hurt I'd never seen before — I couldn't help but bolt from the spot, running as if to escape.
+Yui-san, standing there, wore an expression more wounded than I'd ever seen on her — and, unable to bear it, I turned and ran.
 
-I had nowhere to go. I didn't know where to go.
+I had nowhere to go. I didn't even know where to go.
 
-Because the home I returned to had always been the place where Yui-san was. Now, I had nowhere left to return to.
+Because the place I called home had always been wherever Yui-san was. Now, there was nowhere left to call home at all.
 
-Yui-san didn't chase after me.
+Yui-san didn't come after me.
 
-　I don't know how much time passed after that. As I sat on a park bench, lost in thought, my phone rang.
+*
 
-The name that appeared on the display made me tap the call button without thinking.
+I don't know how much time passed after that. Sitting blankly on a park bench, my phone rang.
 
-"...Hello?"
+Seeing the name on the screen, my mind went blank, and I tapped the call button anyway.
 
-'Kanata-chan? Where are you now?'
+"...Hello."
 
-Only after answering unconsciously did I realise it was Ritsu-san's voice.
+*"Kanata-chan? Where are you right now?"*
 
-"Where... I wonder, here."
+Answering on reflex, I registered, a beat late — ah, it's Ritsu-san's voice.
 
-I'd just run and run, so I didn't know where I was. I'd ended up at this park, sat down on a bench, utterly exhausted. On the other end of the phone, I could hear Ritsu-san exhale softly.
+"Where... am I, even..."
 
-'I'll come and get you. Can you send me your location?'
+I'd run so hard I had no idea where I'd ended up. I'd collapsed, exhausted, onto a bench in whatever park I'd reached. Through the phone, I could tell Ritsu-san let out a small breath.
 
-Come and get me? Ritsu-san? Immediately, it dawned on me that Yui-san must have contacted her. She probably knew I wouldn't answer if Yui-san called.
+*"I'll come get you. Can you send me your location?"*
 
-"...Are you going to tell Yui-san where I am?"
+Come get me? Ritsu-san? It hit me, immediately — Yui-san must have contacted her. She'd probably known, if she called me herself, that I wouldn't pick up.
 
-'I won't. I'm coming. Trust me.'
+"...Are you planning to tell Yui-san where I am?"
 
-Hearing Ritsu-san's calm voice, my consciousness gradually returned to reality. I was alone, with nowhere to go, utterly at a loss. That's why Ritsu-san's offer was so welcome.
+*"I won't tell her. I'm coming myself, trust me."*
+
+Hearing Ritsu-san's steady, composed voice, my mind slowly drifted back toward reality. Alone, nowhere to go, at a total loss — her offer was, genuinely, a relief.
 
 "I'm sorry... thank you."
 
-'No, no. I'll be right there, just wait.'
+*"Don't worry about it. I'll be there soon, just wait."*
 
-I sent my location to Ritsu-san and looked up at the night sky. It was an infuriatingly cloudy sky, not a single star visible.\
-Even though it was early spring, the nights were cold. My body, which should have been warmed by the alcohol, was completely frozen.
+I sent my location to Ritsu-san and looked up at the night sky. Infuriatingly overcast, not a single star visible.
 
-My eyelids felt heavy from crying so much. Time passed in an instant, as if I were suspended between reality and a dream.
+Even though it's early spring, the nights are still cold. My body, which should have been warmed by the alcohol, had gone completely cold.
+
+From all the crying, my eyelids felt heavy. Like standing right at the border between reality and a dream, time slipped past in a blur.
+
+*
 
 "Kanata-chan!"
 
-Some time passed after that. I hadn't moved at all, when a familiar voice made me lift my face. Ritsu-san was running towards me, her brow furrowed with concern.
+After a while like that, still unable to move, a familiar voice reached me, and I lifted my head. Ritsu-san came running up, brows drawn together, worried.
 
 "Ritsu-san..."
 
-"Are you alright? You must have been freezing."
+"You okay? Must've been cold."
 
-Saying that, she took my icy hands and clasped them. Warm. Tears threatened to spill again.
+She said it and took my frozen hand, holding it tight. Warm. I felt the tears threatening to spill again.
 
-"...Ritsu-san, how much do you know about me and Yui-san?"
+"...How much do you actually know? About me and Yui-san?"
 
-Her kindness pierced my weary heart. I could feel tears gathering in my eyes, threatening to spill over again. Looking up at her with a trembling voice, Ritsu-san replied awkwardly, "I'm sorry, I heard everything from Yui."
+Kindness cuts deep into a heart already worn down. I could feel the tears welling back up, ready to spill. Looking up at her, my voice shaking, Ritsu-san answered, awkward, "Sorry, I heard everything from Yui."
 
-"For now, come to my place. I've already told Yui."
+"Anyway, come stay at my place tonight. I've already told Yui."
 
-Saying that, Ritsu took my hand. I couldn't bear the thought of returning to the house where Yui was, so I nodded. I knew I was imposing on Ritsu, but right now, I wanted to lean on that kindness.
+She said it and took my hand. I didn't think I could go back to the house where Yui-san was, so I nodded, small. I knew I was troubling Ritsu-san, but right now, I wanted to lean on that kindness.
 
-　Ritsu-san lived in a one-bedroom apartment near the station, not far from the university we attended. Originally from the countryside, she lived alone.
+*
 
-Unlike Yui-san's sparse, empty room, hers was tidy yet had a touch of lived-in warmth – very Ritsu-san.
+Ritsu-san's place was a one-bedroom apartment near a station, not far from our university. Coming from out of the prefecture, Ritsu-san lives alone.
 
-Thick books were stacked on the table, dotted with numerous sticky notes. Proof she'd read them thoroughly and studied. She might look flashy, but given she hangs out with that Yui-san, she must be good at her studies, of course.
+Unlike Yui-san's spare, empty room, hers was tidy but had a lived-in feel to it — very Ritsu-san.
 
-When she urged me to sit on the sofa and I settled down, Ritsu-san brought me some iced tea. Come to think of it, my throat was parched. "Thank you," I murmured softly, taking a sip to moisten my mouth.
+Thick books stacked on the table, covered in sticky notes. Clear proof she actually reads and studies properly. Flashy as she looks, she does hang around Yui-san, after all — of course she'd naturally be capable academically too.
 
-Ritsu-san, sitting beside me, peered at my face with a look of concern.
+Urged to sit on the sofa, I settled in, and Ritsu-san brought out iced tea. Right — my throat was parched. I murmured a small *thank you for this* and wet my lips.
 
-"...Have you calmed down a bit?"
+Sitting beside me, Ritsu-san peered into my face, worried.
 
-"...Yes. I'm sorry. Thank you for coming to pick me up."
+"...Feeling a little calmer?"
 
-The clock hands were about to pass twelve. She should have been at the after-party, yet I'd made you come all this way. I felt truly awful about it.
+"...Yes. Sorry, and thank you, for coming to get me."
 
-"So... may I ask what happened with Yui?"
+The clock hands were closing in on midnight. She was supposed to be at the afterparty — I felt genuinely bad, dragging her all the way out here.
 
-"You don't have to say anything if you don't want to," Ritsu-san continued. By the time I'd come home with her, I'd resolved to talk about it... or rather, perhaps I just needed someone to listen.
+"So... can I ask what happened, with Yui?"
 
-I couldn't process these feelings properly on my own.
+You don't have to say if you don't want to, Ritsu-san added. By the time I'd followed her home, I think I'd already braced myself to talk about it — or maybe, I'd just wanted someone to listen.
 
-"...It was about a month ago. I got drunk and had sex with Yui-san."
+I couldn't process this feeling on my own.
 
-"Blast!"
+"...This was about a month ago, now. I got drunk, and slept with Yui-san."
 
-Ritsu coughed violently, spitting out the iced tea she’d been sipping. It might have been a bombshell, but with my mind still reeling from shock, I couldn’t have phrased it any more delicately.
+"Pfft!!!"
 
-Was she that surprised? Did she not know?
+Ritsu-san choked, spraying out the iced tea she'd just sipped. It might have been a bombshell to drop, but with my head still reeling from shock, I had no capacity left to soften it.
 
-"You didn’t know? I thought Yui might have told you."
+Reacting that strongly — had she really not known?
 
-"Ah, no, I knew... or rather, I'd noticed. But I never imagined those words would come out of your mouth, Kanata-chan. I was a bit taken aback. Please, continue."
+"You didn't know? I figured Yui-san would have told you."
 
-"...As a fundamental premise, I've only ever dated men. So, liking a woman was a first for me."
+"Ah, no, I mean — I knew, or, I'd guessed, but I never expected those words to actually come out of your mouth, Kanata-chan, it just caught me off guard. Go on, though."
 
-She continued, staring blankly at the droplets clinging to the iced tea glass.
+"...As a starting point, I've only ever dated men. So falling for a woman was a first for me."
 
-"I thought our feelings were mutual. Yui-san says she doesn't have girlfriends... but I believed she genuinely liked me. That there was some reason she couldn't be my girlfriend... but that someday..."
+I kept my eyes fixed, blank, on the water droplets beading on the iced tea glass, and continued.
 
-Ritsu-san gave a soft "Hmm" in response and gently stroked my shoulder.
+"I thought our feelings had connected. Yui-san kept saying she doesn't make girlfriends, but... I really believed she genuinely liked me. That there was some reason she couldn't be my girlfriend, but that someday, maybe..."
 
-"But... Yui-san has an engagement. Did you know, Ritsu-san?"
+Ritsu-san made a small sound of agreement and gently rubbed my shoulder.
 
-I'm sure Ritsu didn't know. If she had, she would have stopped me from falling for Yui-san. That's the kind of person she is.
+"But... Yui-san has a fiancé. Did you know, Ritsu-san?"
 
-"...I heard it from Yui just now."
+I don't think Ritsu-san knew. If she had, I think she would have stopped me from falling for Yui-san. Because that's the kind of person she is.
+
+"...I only just heard it from Yui, a little while ago."
 
 "I see... So I was the other woman, then."
 
-Yui had intended to marry Kitakami from the start. That's why she never told me. Perhaps those four years at university were just a bit of fun for her. Does that mean I was just one of many girls to her?
+Yui-san had intended to marry Kitagami-san from the very start. That's why she never told me. Maybe it really was just something like a fling, over her four years of college. Maybe, to Yui-san, I really was just one more girl among the crowd.
 
-Objectively speaking, that might be true. But part of me refuses to believe it. I don't want to believe it. I touch the necklace at my throat. I want to believe that Yui's words, telling me I was special, were true.
+Stated as plain, objective fact, maybe that's exactly what it was. But some part of me can't quite believe it. Some part of me doesn't want to believe it. I pressed a hand against the necklace at my chest. I want to believe there was no lie in the words Yui-san gave me, telling me I was special.
 
-"...Kanata-chan. I've known Yui since first year, but she's really changed. She's completely given up chasing women. No matter how you look at it, Yui likes you. That's absolutely certain. What she did was despicable, and unforgivable. But please believe in that feeling alone. I guarantee it's not a lie."
+"...Kanata-chan. I've been watching Yui since freshman year, and she's genuinely changed. She quit playing around with women completely, and from every possible angle, Yui is in love with you. That much, I'm certain of. What Yui did really was awful, unforgivable. But I want you to believe, at least, that her feelings for you weren't a lie. I guarantee it."
 
-　Ritsu-san squeezed my hand tightly and said this with a serious gaze.
+Gripping my hand tight, Ritsu-san said it with a genuinely serious look in her eyes.
 
-"Then why is Yui-san... marrying Kitakami-san...? I mean, she likes women..."
+"Then why is Yui-san... going to marry Kitagami-san...? She's into women, though..."
 
-"...Her father doesn't know Yui is a lesbian. It's not like a normal family, you see. Even though she's such a scatterbrain, she is, after all, the heir to one of Japan's leading conglomerates."
+"...Her father doesn't know Yui's gay. It's not like an ordinary family, you know. As careless as she seems, she's still the heir to one of Japan's leading conglomerates."
 
-　Hearing that, I nodded in understanding. Once again, I contemplated the immense burden borne by the person I had fallen in love with.\
-I should have realised it countless times before – that her family was different from ordinary households. Yet it had completely slipped my mind.
+Hearing that, ah, I understood, and accepted it. All over again, I found myself thinking of the sheer weight of what the person I'd fallen for was carrying.\
+That her family wasn't like an ordinary one — I'd seen it, over and over, and somehow it had completely slipped my mind anyway.
 
-The house, far too luxurious for a university student living alone. The car. The hotel suite where we watched fireworks that night. Everything.\
-All of it was because Yui-san was the 'heiress of a conglomerate'.
+That absurdly luxurious detached house, too extravagant for a college student living alone. The car. The hotel suite where we'd watched the fireworks. All of it.\
+Every single thing Yui-san had was hers because she's the "daughter of a conglomerate family."
 
-　For someone like that to have a romance like ordinary people, let alone dream of a future with someone of the same sex — it was simply impossible.
+Someone like that, falling in love the way ordinary people do — let alone dreaming of a future with someone of the same sex — there was no way that could ever be possible.
 
-That’s why Yui-san was always looking towards the parting that would come someday. Probably, all along.
+That's why Yui-san had always been staring straight at the ending that was coming, someday. Probably, this whole time.
 
-I remember the promise we made on Yui-san’s birthday. It was such a small, fragile wish. Just a promise to be the first to celebrate her birthday.
+I remembered the promise we'd made on her birthday. Such a small, fragile wish. Just a promise to be the first to celebrate her birthday, every year, nothing more.
 
-　I truly believed I could keep it. No matter how many years passed, as long as you were by my side, forever.
+I'd believed I could keep it. However many years it took, as long as she stayed by my side, forever.
 
-Looking back, Yui-san never asked anything of me from the start. She gave only kindness and affection, without expecting anything in return.
+Looking back, from the very start, Yui-san had never asked anything of me. Never once expecting anything in return, she'd just kept giving, endlessly, nothing but kindness and love.
 
-It was I who sought. Only I kept seeking Yui-san, endlessly.
+It was me who wanted something. Only I had ever kept wanting Yui-san, all this time.
 
-Ritsu-san gently wipes away the tears that flow unceasingly.
+Ritsu-san gently wiped away the tears that wouldn't stop falling.
 
-"...I think it's best for Kanata-chan to decide for herself what to do from now on. Whatever Yui says, choose the path you'll absolutely never regret."
+"...I think what you do from here is something you should decide for yourself, Kanata-chan. Whatever Yui says, choose whatever path you know you won't regret."
 
-I couldn't say it. I couldn't ask her to cast aside everything she was carrying for my sake, to choose me.
+I can't say it. That I want her to throw away everything she's carrying, for my sake, and choose me instead. That kind of thing.
 
-To you, whom I love so dearly — there was no way I could say it.
+There's no way I could ever say that — to the person I love this much.

@@ -1,100 +1,102 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 9
 parent: Second-year university student, spring
 sequence: 50
-title: 'Episode 50: I Love You'
+title: 'Episode Fifty: I Love You'
 ---
-Episode 50: I Love You
+## Episode Fifty: I Love You
 
-Once I'd packed all my belongings into cardboard boxes, the room I'd been using felt completely empty.\
-Having lived there for a year, I'd accumulated quite a lot of stuff, and I only finished packing the night before my departure.
+\
+Once the last box was packed, the room I'd used this past year looked entirely, emptily bare.\
+A full year of living here meant a fair amount of accumulated belongings, and packing it all up took until the night before I was set to leave.
 
-After that, I submitted my leave of absence to the university. Once everything was ready, I planned to attend a British university as an exchange student.
+After that day, I'd submitted a leave of absence to the university. Once things were arranged, I planned to enroll at a university in England as a study-abroad transfer.
 
-　When I explained the situation at my part-time job, the owner, Hayakawa-kun, and Amasaki-san were all terribly sorry to see me go and even organised a farewell party for me.\
-That café was my favourite place. The owner told me to come back and work there again when I returned to Japan after my studies, so even though I felt terribly sorry about leaving so suddenly, it lightened my heart a little.
+Explaining the situation to my part-time job, the owner, Hayakawa-kun, and Amasaki-san had all looked genuinely sorry to see me go, and even threw me a small farewell gathering.\
+That café was somewhere I truly loved. The owner told me to come back and work there again once I returned from studying abroad, and though I felt guilty for quitting so suddenly, it eased something in me, just a little.
 
-　After packing my room, I picked up the orca and seal plushies sitting side by side on the living room sofa. Precious stuffed animals bought for me by Yui-san.\
-Just as I was about to stow them in my suitcase, Yui-san's hand grabbed mine and stopped me.
+Once I'd finished packing my room, I picked up the orca and seal plushies that had been sitting side by side in the living room. Precious plushies, gifts from Yui-san.\
+Just as I went to tuck them into my suitcase, Yui-san's hand caught mine, stopping me.
 
-"...Are you taking both of them with you?"
+"...You're taking both of them with you?"
 
-I looked up at Yui-san, who sounded displeased. Without thinking, I clutched both stuffed animals tightly to my chest and pulled away from Yui-san.
+I looked up at Yui-san, clearly displeased. Without thinking, I hugged both plushies tight to my chest and put some distance between us.
 
-"But these guys... they're mine, you know."
+"I mean, these two... they're mine. You gave them to me."
 
-I shot her a resentful look, thinking, Surely she's not going to tell me to leave them behind? These guys are off limits. They're memories of me and Yui-san, so I absolutely won't let them go.
+I sent her a resentful look, half daring her to suggest I leave them behind. These two, no. Absolutely not. They're memories of Yui-san — I'll never let them go.
 
-"One is enough, isn't it? Leave that orca behind."
+"One's enough, isn't it? Leave the orca."
 
 "...No."
 
 "Please."
 
-"No. These little ones are friends. Don't you think it'd be sad to separate them?"
+"No. These two are friends. Wouldn't it be sad, splitting them up?"
 
-"It's sadder for me to be separated from Kanata. Please, I'm begging you."
+"Me being split up from you is far sadder. Please, I'm begging you."
 
-After a back-and-forth like ex-spouses fighting over custody, Yui-san deftly plucked the orca from my chest.
+After a back-and-forth that felt almost like divorced parents fighting over custody, Yui-san swiftly plucked the orca right out of my arms.
 
 "Ah!"
 
-"I will sleep hugging them thinking it's Kanata. So give me Orca-kun."
+"I'll hold him and pretend it's you when I sleep. Give me the orca."
 
-"Even without you saying which is which, I think Yui-san is Orca-kun and I'm Seal-kun..."
+"...If we're assigning roles, wouldn't it make more sense for you to be the orca and me the seal..."
 
-I started to say 'in terms of the predator-prey relationship', then felt embarrassed. Yui-san laughed and said, "Right then, swap," taking Seal-kun from my arms and putting Orca-kun back in my arms instead.
+Predator-prey dynamics, I started to say to myself, and felt embarrassed halfway through. Yui-san laughed, said *then let's trade*, took the seal from my arms, and handed the orca back to me in exchange.
 
-Oh well. Once she said she wanted to sleep hugging them like that, I couldn't take them away. Orca-kun, Seal-kun, I'm sorry. While I apologised silently and packed them into my suitcase, Yui-san had already taken Seal-kun back to her room.
+Fine, whatever. Once she said something like *hold him and pretend it's you*, I couldn't bring myself to take him back. Sorry, little orca, little seal, I apologized silently in my heart, and while I tucked him into the suitcase, Yui-san carried the seal off to her own room.
 
-After that, I tried my best to carry on as usual. When I told my mother on the phone, she said, "Do whatever you like, dear," without even asking what had happened.
+Since then, I'd tried, as much as I could, to spend our days just as we always had. Calling my mother to explain, she hadn't even asked for the reason — just told me to do whatever I thought was best.
 
-"Yui-san, also, it would be a great help if you could send this luggage over."
+"Yui-san, could you send this box for me later? It'd help a lot."
 
-"...Right, understood."
+"...Yeah, got it."
 
-When I pointed to the cardboard box and told Yui-san, who had returned from her room, she smiled sadly.
+Returning from her room, I pointed to the box and told her, and Yui-san smiled, a lonely smile.
 
-"Hey, Kanata, you've finished packing, right? We've still got time, let's watch a film together."
+"Hey, Kanata, you're done packing, right? There's still time, let's watch a movie together."
 
-Yui-san said this, as if switching gears. Unlike me, Yui was naturally straightforward. She'd surely be able to move forward.\
-When I nodded in agreement to her suggestion, Yui beamed happily.
+She said it, clearly trying to shift the mood. Yui-san, unlike me, has always been the type who can move forward, unburdened. I'm sure she'll be able to keep walking ahead.\
+I nodded yes to the offer, and Yui-san smiled, happy.
 
-Usually she'd let me choose what to watch, but today Yui insisted, "I absolutely want to see this one today," refusing to budge.\
-The film she chose wasn't a genre I'd expect her to like, so I tilted my head in puzzlement.
+Usually she lets me choose what we watch, but today, unusually, Yui-san insisted, "I really want to watch this one today," and wouldn't budge.\
+The movie she'd picked wasn't really her usual genre, and I tilted my head, puzzled.
 
-　But I soon understood why she’d chosen it.
+But I understood, soon enough, exactly why she'd chosen it.
 
-“Yui, this film’s nearly four hours long…”
+"Yui-san, this movie's almost four hours long..."
 
-“It’s fine once in a while. I think it’ll be interesting, probably.”
+"That's fine, once in a while. It'll be good, probably."
 
-Saying that, she wrapped her arm tightly around my waist and hugged me. “Oh, come on,” I muttered, reluctantly taking her hand to play with it.
+She said it and wrapped her arm tight around my stomach, pulling me close. *Honestly*, I said, but let myself be held anyway, playing idly with her hand.
 
-　A slight unease made me stare at Yui-san's hand. Her nails, usually neatly trimmed and smooth, were unusually a bit long.
+Something felt slightly off, and I looked closely at her hand. Her nails, always kept perfectly smooth and rounded, had grown out, unusually, just slightly.
 
-The film's content probably didn't matter at all. We were both surely thinking the same thing.
+The content of the movie probably didn't matter to either of us. I'm sure we were both thinking the exact same thing.
 
-I wanted to be together longer. I wished tomorrow would never come. Even though I'd chosen it myself, there were nights I lay awake wondering if this was really the right choice.\
-　On nights like that, I'd slip silently into Yui's room. Without a word, she'd hold me close and fall asleep.
+*I want to stay together longer. I wish tomorrow would never come.* Even though I'd chosen this myself, there were nights I couldn't sleep, wondering if this had really been the right choice.\
+On nights like that, I'd slip silently into Yui-san's room, and, without a word, she'd hold me and let me sleep in her arms.
 
-Being held in her warm arms, a deep tenderness would well up inside me. I could convince myself this choice wasn't a mistake.
+Held in that warmth, fondness would well up in me, and I could convince myself, again — this choice wasn't wrong.
 
-For Yui, whom I loved so dearly, I could endure anything. No matter how painful it might be.
+For someone I love this much, I can endure anything. However painful it might be.
 
-The four-hour epic film was, quite frankly, utterly tedious. I suspect Yui felt the same. Yet we didn't stop the film even after the end credits began rolling.
+The nearly four-hour epic turned out to be, honestly, thoroughly boring. I think Yui-san felt exactly the same. But neither of us stopped it, even once the credits started rolling.
 
-Yui nuzzled affectionately against my neck, rubbing against me. I immediately felt a cold sensation and realised she was crying.
+Yui-san nuzzled affectionately against my neck. A cool sensation reached me immediately, and I realized — she was crying.
 
-"Yui, are you crying? ...Was there really something that moving?"
+"Yui-san, are you crying? ...Was there really a part that moving?"
 
-As I teased her, tears spilled from my own eyes and fell onto Yui's hand with a soft plop.
+I said it, teasing, and my own tears spilled over too, falling in a small drop onto her hand.
 
 "...You're crying too, Kanata."
 
-Yui pointed this out, smiling slightly. We turned to look at each other and both laughed.\
-Her gentle thumb wiped away my tears. Then she kissed my eyelids, my cheeks, one after the other, and I clung tightly to her neck.
+Yui-san pointed it out, laughing, just slightly. Turning to face each other, we both laughed.\
+Her gentle thumb wiped my tears away. Then she kissed my eyelid, my cheek, one after another, and I wrapped my arms tight around her neck.
 
 "...Yui-san."
 
@@ -102,98 +104,108 @@ Her gentle thumb wiped away my tears. Then she kissed my eyelids, my cheeks, one
 
 "I love you."
 
-"...Mm. I... I love you too, Kanata."
+"...Yeah. I love you too, Kanata."
 
-She pulled me tightly against her waist, our bodies pressed together perfectly. I found her arms, holding me so tightly I could barely breathe, unbearably precious.
+She pulled me in close by the waist, our bodies pressed flush together. Held tight enough to steal my breath, I found her arms unbearably precious.
 
-　The next day. I declined Yui-san's offer to drive me to the airport, saying, "Yuri will see me off."\
-I knew I'd become too sentimental. I'd never want to leave, so I'd decided to say goodbye here at this house.
+*
+
+The next day. I turned down Yui-san's offer to drive me to the airport, saying "Yuuri's seeing me off instead."\
+I know I'd only find it harder to let go. Know I'd only want to stay. So I'd decided, from the start — we'd say goodbye right here, in this house.
 
 "Yui-san, this..."
 
-Saying that, I reached behind my neck as if remembering something and took off the necklace. The one Yui-san had given me. I felt I had to return it. Surely this was something precious to Yui-san.
+I said it, and, remembering, reached behind my neck and unclasped the necklace. The one Yui-san had given me. I'd thought — I need to return it. Something this precious surely belongs to her.
 
-Instead, I had also imbued that necklace with a wish. May Yui-san's life from now on be filled with happiness. I intended to return it, pouring all my feelings into it. To her heart.
+In exchange, I'd poured a wish of my own into that necklace. *May your life, from here on, be a happy one.* With everything I had, I wanted to give it back. To her heart.
 
-"It's something precious, isn't it? I'm returning it to Yui-san."
+"This is precious to you, isn't it? I'm giving it back, Yui-san."
 
-"...It's alright. I gave it to you in the first place."
+"...No, keep it. That's yours now."
 
-"Then, I'll give it to you... Yui-san. Please keep it forever. I beg you."
+"Then, this time, I'm giving it to you. Please, keep wearing it. Please."
 
-Saying that, I placed the necklace into Yui-san's hand. She silently stared down at it, resting in her palm.
+I said it and pressed the necklace into her hand. Yui-san stared down, silent, at the necklace resting in her palm.
 
-"...Yui-san, thank you for everything this past year. I'm glad I met you. Thank you."
+"...Yui-san, thank you for this whole year. I'm so glad I met you. Thank you, for everything."
 
-My voice trembled just a little, but I managed to say it through gritted teeth and bowed my head. As I started to step out the front door, I was suddenly pulled back with a tight, strong hug from behind.
+My voice shook, just slightly, but I managed to get it out, and bowed my head. Just as I turned to step out the entryway, I was suddenly pulled into a tight embrace from behind.
 
-"...Yui?"
+"...Yui-san?"
 
-"...Yes."
+"...Mm."
 
-"I really must go now. I'll miss my flight."
+"I really have to go. I'll miss my flight."
 
-"...Yes."
+"...Mm."
 
-I felt a deep, warm ache in my heart as Yui clung to me, her whole body pleading, I don't want to let you go. Slowly, I turned around.\
-I stood on tiptoe and kissed Yui-san's lips. Thank you, Yui-san, for teaching me about love.
+*I don't want to let you go* — her whole body seemed to say it, and something deep inside me went warm, aching. Slowly, I turned back around.\
+Rising on my toes, I kissed her lips, gently. Yui-san — thank you, for teaching me what it means to fall in love.
 
-"...Whenever you feel like it, come back. I'll wait for you forever and ever."
+"...Come back, anytime you feel like it. I'll be waiting for you. For as long as it takes."
 
-Would she really wait for me? This incredibly popular girl, hugging a seal plushie, thinking only of me.
+Would she really wait? Someone this endlessly popular, hugging a seal plushie, thinking only of me?
 
-　A smile slipped out despite myself. For some reason, I felt it wasn't a lie.
+A smile spilled out of me, unbidden. Somehow, I believed it wasn't a lie.
 
-"...Right then, I'm off."
+"...Alright, I'm heading out."
 
-I murmured it without thinking. Off I go, I said. I'd already made up my mind, I had no intention of returning, yet habits formed over a year were frightening, I thought.
+I found myself saying it, without even meaning to. *I'm heading out* — as if I intended to come back. I'd already made up my mind, never planning to return, and yet, I thought, a whole year of habit is a frightening thing.
 
-"Mm... Take care."
+"Yeah... take care out there."
 
-Yui smiled faintly and saw me off like that. I stepped out the front door and closed it behind me. Fighting back tears that threatened to spill, I pulled my suitcase along.
+Yui-san smiled, soft, and saw me off with that. I stepped out the entryway and closed the door. Fighting to hold back tears threatening to spill, I dragged my suitcase forward.
 
-I met Yuri at the station, and we chatted about trivial things on the way to the airport. Even though it was called studying abroad, I only intended to stay for a year, until Yui-san graduated. After that, I planned to return to Japan and live alone. I hadn't told Yui-san that, though.
+Yuuri was waiting at the station, and we made idle conversation on the way to the airport. Even calling it "studying abroad," I only planned to stay a year, until Yui-san graduated. After that, I meant to come back to Japan and live on my own again. I hadn't told Yui-san that part.
 
-"Let me know if you get a British gentleman boyfriend? Oh, girlfriend's fine too."
+"Let me know if you get an English gentleman boyfriend, okay? Or girlfriend, that's fine too."
 
-"I won't. I've no interest in romance."
+"Not happening, I'm not looking for romance."
 
-"Don't they say the cure for heartbreak is to fall in love again?"
+"Don't they always say the next relationship is what helps you forget heartbreak?"
 
-"It's alright not to forget."
+"I don't want to forget."
 
-Yes, it's alright not to forget. Rather, I don't want to forget. Over this past year, it seemed I'd grown far fonder of Yui-san than I'd realised.\
-　I may be pulling back physically, but I never said I'd pull back emotionally. I'll keep liking her. Probably forever.
+Right — I don't need to forget. If anything, I don't want to. This past year, it seems, I'd fallen for Yui-san far more deeply than I ever realized myself.\
+My body's pulling away, but I never said my heart would too. I'll keep loving her. Probably, for a long time yet to come.
 
-"Yuri, if you ever have the money and time, come visit. I'll show you around London."
+"You should come visit too, Yuuri, if you've got the money and time. I'll show you around London."
 
-"Right. I'll work hard to save up my part-time wages."
+"Got it. I'll start saving up my paycheck."
 
-"I'll be waiting. Ah, I'm going to miss you. I wish I could've seen Ritsu-san one last time too."
+"I'll be waiting. Ahh, I'm going to miss this. I wish I could've seen Ritsu-san one last time too."
 
-"Ritsu-san said she was going to see Ichinose-senpai today. Said she was worried."
+"Ritsu-san said she was heading to Ichinose-senpai's place today. Said she was worried."
 
-Ritsu-san really is thorough, following up like that. It truly was a year where so many people looked out for me.
+Ritsu-san, ever reliable, even handling the aftercare. Genuinely, so many people took care of me this past year.
 
-"Well then, thank you for seeing me off. Take care."
+*
+
+"Well then, thanks for seeing me off. Take care."
 
 "Yeah, you take care too, Kanata."
 
-I waved to Yuri in front of the security checkpoint. Once I passed through the gate, I wouldn't see Yui-san again. Truthfully, I hesitated just a little, but I swallowed that feeling and kept walking.
+I waved to Yuuri in front of the security checkpoint. Once I passed through the gate, I wouldn't see Yui-san again. A small hesitation gripped me, but I swallowed the feeling down and kept walking.
 
-It'll be alright. Shachi-kun is in my suitcase, and I've got the earrings Yui-san gave me in both ears. I've brought every single memory I don't want to forget.
+It's fine. I've got the orca with me in my suitcase, and both my ears carry the earrings Yui-san gave me. Every memory I didn't want to lose, I brought with me, every last one.
 
-　The plane took off, flying straight towards the blue sky. As it pierced through the pure white clouds, I felt an overwhelming longing for Yui-san.
+*
 
-Strange. I thought I'd be fine. Why does it make me so sad? I thought I could endure anything for Yui-san's sake.
+The plane lifted off, climbing straight into the blue sky. Breaking through the pure white clouds, I missed Yui-san with an ache I couldn't do anything about.
 
-The tears overflowed, unstoppable. I cried on and on, without caring who saw, until I felt satisfied.
+Strange. I'd thought I was fine. Why does it hurt this much? I'd thought I could endure anything, for Yui-san's sake.
 
-　And so, the relationship between Yui and me came to an end. Though I'm not even sure if I can call it 'ended'.\
-After all, we weren't lovers, so perhaps it never even truly began.
+The tears wouldn't stop, overflowing. I let myself cry, without a care for anyone watching, until I'd cried myself out completely.
 
-I don't know how long it will take before I can laugh about this. It might be years, or it might be decades.
+*
 
-But if we ever meet again someday, I hope you'll be happy enough that I can believe today's choice wasn't a mistake.
+And so, my relationship with Yui-san came to an end. I don't even know if "ended" is the right word.\
+Because we were never actually a couple — maybe it never even properly began.
 
-　Years later, I could never have imagined fate would bring me and Yui-san together once more — at that moment, I had no way of knowing.
+I don't know how long it'll take before I can talk about all this and laugh. Maybe a few years. Maybe a few decades.
+
+But if we ever meet again, someday, I hope you'll be happy enough that I can look back and know — this choice, today, wasn't a mistake.
+
+*
+
+A few years later, I would come to have a fated reunion with Yui-san once again — but at this moment, I had no way of knowing that yet.

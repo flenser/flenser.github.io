@@ -1,184 +1,190 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 5
 parent: Second-year university student, spring
 sequence: 46
-title: 'Episode 46: Introduce Me Properly, Will You?'
+title: 'Episode Forty-Six: Introduce Me Properly, Would You?'
 ---
-Episode 46: Introduce Me Properly, Will You?
+## Episode Forty-Six: Introduce Me Properly, Would You?
 
-Lifting the heavy mug brimming with pale golden liquid, I clinked it with those around me as the organiser called out, "Cheers!"
+\
+Lifting a heavy mug, filled to the brim with pale gold liquid, I clinked it against the mugs of the people around me, following the organizer's call of "cheers."
 
-　It seems there's a custom at drinking parties called "beer first". The first drink is beer, no questions asked.
+Apparently drinking parties have this custom — "beer for starters." The first drink, no argument allowed, has to be beer.
 
-Feeling almost overwhelmed by the momentum, I followed suit and took a sip of the bitter liquid. The bitterness spread. It wasn't pleasant.
+A little overwhelmed by the momentum of it all, I followed along and took a sip of the bitter liquid. Bitterness spreading across my tongue. Not exactly delicious.
 
-"Ugh," I said, sticking out my tongue. Ritsu-san, sitting opposite me, laughed out loud.
+I stuck my tongue out with a small *ugh*, and Ritsu-san, sitting across from me, burst out laughing.
 
-"Kanata-chan, not keen on beer?"
+"Kanata-chan, not a beer person?"
 
-"What's tasty about this? It's just bitter..."
+"What's even good about this? It's just bitter..."
 
-"How adorable. I'll drink that for you, so order something else."
+"Cute. I'll drink it for you, order something else."
 
-Saying that, Ritsu-san took my mug and handed me the drink order tablet instead.
+Ritsu-san said it, taking my mug and handing me the drink-order tablet instead.
 
-Meanwhile, Yuri beside me was drinking her beer with a cool expression. Her mug was already more than half empty.
+Beside me, meanwhile, Yuuri was drinking her beer with a perfectly cool expression, already more than halfway through her mug.
 
-　I tilted my head, wondering what was different between my taste buds and everyone else's.
+I wondered, tilting my head, what the difference could possibly be between my tongue and everyone else's.
 
-"Kanata, why not try something a bit easier to drink? They've got sweeter options too."
+"Kanata, maybe pick something easier to drink? They've got sweet ones too."
 
-"Yeah, maybe beer was a bit too soon..."
+"Yeah, maybe beer was too soon for me..."
 
-Ideally, I wanted something not bitter. In the end, I ordered the lemon sour I'd grown accustomed to over the past month.
+Something not bitter, ideally. In the end, I ordered a lemon sour — the drink I'd gotten used to over this past month of practice.
 
-　This 'exchange meeting', which had taken over a corner of the izakaya, was an annual event. According to Ritsu-san, "Simply put, it's like a mixer."
+This "networking mixer," taking over a whole section of the izakaya, is apparently an annual tradition. According to Ritsu-san, "basically just a group blind date, if we're being honest."
 
-"But, I know I invited you, but honestly, I'm surprised Yui allowed you to come."
+"But, I mean, I'm the one who invited you, so this is a little rich coming from me — I'm surprised Yui actually said yes."
 
-"Eh? What do you mean?"
+"Eh, what do you mean?"
 
-"I thought Yui would absolutely hate Kanata-chan joining the drinking party."
+"I figured Yui would absolutely hate you coming to a drinking party."
 
-　Typical Ritsu. She really knows Yui. Spot on, she absolutely hated it. I couldn't say that, so I just gave a wry smile to cover it up.
+Ritsu-san really does understand Yui-san well. Dead on — she'd hated it, enormously. Not something I could say out loud, so I covered with a wry laugh instead.
 
-"...Not at all."
+"...That's not true, really."
 
-"Hmm?"
+"Hmm~?"
 
-These two already know I like Yui. Fortunately, they don't have any prejudice about same-sex love, so even though they know, it's not really a problem, I suppose.
+Both of these two already know I have feelings for Yui-san. Thankfully, neither of them holds any prejudice about same-sex relationships, so it's not exactly a problem that they know.
 
-　I'm aware I'm not good with alcohol, so I steel myself to avoid giving anything away.
+Knowing I'm not great with alcohol, I braced myself, careful not to let my guard slip too much.
 
-"Who ordered the lemon sour?!"
+"Whoever ordered the lemon sour!"
 
-A man's voice calls out, making me look up. Before I can say "It's me," Ritsu-san snaps her hand up.
+A man's voice called out, and I looked up. Before I could even say it was me, Ritsu-san's hand shot up.
 
-"Here! Over here! Bring it over."
+"Here, over here! Bring it on over~"
 
-Responding to Ritsu's call, the man, his face flushed from drink, approached me, lemon sour in hand. Suddenly, he grabbed Ritsu's shoulder without a second thought, causing her to widen her eyes in surprise.
+Responding to Ritsu-san's call, a man, face flushed from drinking, approached with my lemon sour. He slung an arm over Ritsu-san's shoulder, casual, uninvited, and I blinked, startled.
 
-"Ritsu, who are these girls? Never seen them before. Introduce us!"
+"Ritsu, who are these two? Never seen these faces before. Introduce me!"
 
-Ritsu, looking annoyed, shook off his hand, snatched the lemon sour from him, then handed it to me.
+Ritsu-san shook off his arm, clearly annoyed, snatched the lemon sour from him, and handed it to me.
 
-"No. If you're here to chat them up, try somewhere else."
+"No. If you're hunting for girls, go bother someone else."
 
-She made a dismissive shooing gesture, but the man, undeterred, settled himself down next to Ritsu.
+She waved him off with a shooing gesture, but, undeterred, he settled in right beside her anyway.
 
-"I'm Masaya Akagi. Fourth year like Ritsu. And you lot?"
+"I'm Akagi Masaya. Same year as Ritsu, fourth-year. And you two?"
 
-Unlike me, who was slightly startled by his boldness and flinched, Yuri didn't seem particularly bothered. She popped some edamame into her mouth and replied casually, "I'm Yuri Asumi."
+Unlike me, startled and thrown off by his forwardness, Yuuri, unbothered, popped an edamame into her mouth and answered easily — "Azumi Yuuri."
 
-Huh, Yuri, that's impressive. Why is she so used to this? I thought, a little surprised, before introducing myself too. "I'm Kanata Aosawa."
+Wait, Yuuri, that's impressive. How is she this composed? A little startled inside, I introduced myself too — "Aozawa Kanata."
 
-"You two don't have to entertain him. Masaya, go away, seriously."
+"You don't have to entertain him, either of you. Masaya, go away, seriously."
 
-"Don't say that. By the way, isn't Yui coming today?"
+"Come on, don't say that. Oh, right, is Yui not coming today?"
 
-"No, she's got something on."
+"Nope. Says she's got something on."
 
-"Oh, lucky us! When Yui's here, all the girls flock to her."
+"Really? Lucky! Whenever Yui's around, all the girls just gravitate toward her instead."
 
-I could feel a vein throb in my temple. Huh, so that's how it is. So Yui-san really is always surrounded by girls at these drinking parties.
+I could feel a small vein throb at my temple. Huh, is that so. So Yui-san really always gets surrounded by girls at these things.
 
-I downed the lemon sour handed to me in one gulp. Maybe it was better Yui-san wasn't here today. If I'd run into a scene like that, I'd probably end up splashing water over her head again.
+I tipped back the lemon sour handed to me. Maybe it was for the best that Yui-san couldn't come today. If I'd actually witnessed a scene like that, I might've ended up dumping water over her head all over again.
 
-"Hey, you two. Give me your contact details. Let's be friends."
+"Hey, you two. Give me your contact info. Let's be friends."
 
-　Contact details? Come to think of it, I remembered being told not to exchange numbers even if asked for mine. What should I do? I shifted my gaze discreetly to Yuri beside me, seeking her reaction.
+Contact info? Right — I remembered Yui-san's warning, not to exchange numbers if someone asked. What do I do, I glanced sideways at Yuuri, checking her reaction.
 
-Yuri showed no sign of taking out her phone, just squeezing lemon over her fried chicken.
+Yuuri, showing no sign of even reaching for her phone, was squeezing lemon over her karaage.
 
-Wow, she's tough. So that's what they mean by someone who's 'good at handling pressure' – someone like Yuri.
+Whoa, she's tough. So this is what "immune to pushing" actually looks like — like Yuuri.
 
-　What should I do? My eyes darted around, and then Ritsu gave me a quick glance. It felt like she was saying I didn't need to take out my phone.
+Uncertain, my gaze wandering, Ritsu-san caught my eye and gave a small signal. Felt like she was telling me not to pull out my phone either.
 
 "Masaya."
 
-Ritsu snatched the phone Akagi-san was holding out.
+Ritsu-san snatched the phone Akagi-san had held out.
 
-"You two look troubled. Besides, these girls have boyfriends, so it's impossible. Give up and go sit at a different table already."
+"You're making them uncomfortable. Also, both of them have boyfriends, so give it up. Go bother a different table."
 
-"Eh, really? Oh well, that's a shame..."
+"Eh, really? Aw, too bad..."
 
-Saying that, Akagi-san stood up without a second thought. So this was the 'bad person' Yui-san had mentioned. I was a bit taken aback, but it was an eye-opener.
+Hearing that, Akagi-san stood, easy, no fuss. So this is what Yui-san meant by "bad people," huh. A little startling, but educational.
 
-"...Ritsu-san, I don't have a boyfriend..."
+"...Ritsu-san, I don't actually have a boyfriend, though..."
 
-After he'd left, I murmured this, and Ritsu-san grinned.
+Once he'd left, I murmured it, and Ritsu-san grinned, wide.
 
-"A white lie, if you will. Besides, let's be honest, you're practically already like a couple, aren't you?"
+"White lies for a good cause. And honestly, aren't you basically dating already?"
 
-Like a couple. Is that how we look? Feeling embarrassed, I looked away. Next to me, Yuri muttered discontentedly, "As for me, I don't even have any prospects."
+Basically dating. Is that really how it looks from outside? Embarrassed, I looked away, and beside me, Yuuri muttered, faintly displeased, "I don't even have a candidate."
 
-　My first drinking party turned out to be more enjoyable than I’d expected. True, just as Yui-san said, various men did come over and sit next to me, but Ritsu-san and Yuri skilfully deflected them each time, which was a huge help.
+*
 
-Honestly, I’d thought attending alone might still be too much for me. But I suppose this counts as a form of social learning… After leaving the izakaya, I glanced at my watch – it was just past nine.
+My first drinking party turned out more fun than I'd expected. Sure, plenty of men did approach, exactly like Yui-san warned, and a few even sat down next to me — but Ritsu-san and Yuuri deflected each one skillfully every time, which really helped.
 
-"They're saying there's an after-party. What do you reckon? Fancy going?"
+Honestly, I don't think I could've handled this alone yet. But this counted, I think, as a real lesson in social life. Stepping out of the izakaya, I checked my watch — just past nine.
 
-Ritsu asked me that, but I shook my head from side to side.
+"There's an afterparty, apparently. What do you want to do, come along?"
 
-"I reckon Yui-san should be heading back about now, so I'll be off for the night."
+Ritsu-san asked, and I shook my head, side to side.
 
-"Right. What about Yuri?"
+"Yui-san should be getting home around now too, so I think I'll head back today."
 
-"I haven't had enough to drink yet, so I'll be going."
+"Okay. Yuuri?"
 
-Unlike me, Yuri seemed to hold her drink well, looking perfectly composed without a hint of flushing. Lucky her. Somehow, it felt like I was the only one getting all fuzzy from the alcohol.
+"I'm not done drinking yet, I'll go."
 
-"Right then, Kanata-chan, shall we walk you to the station?"
+Unlike me, Yuuri seems to hold her liquor well — not a flicker of change in her expression, perfectly unbothered. Lucky. Meanwhile, I'm the only one turning into mush from the alcohol.
 
-I shook my head at that suggestion. It's fine, I'm not that drunk. I can walk home properly.
+"Then, Kanata-chan, want me to walk you to the station?"
 
-"It's alright. I can get home on my own."
+I shook my head at the offer. I'm fine, not that drunk. I can walk home properly on my own.
 
-"Understood. Take care, then. Right, cheers for today!"
+"I'm fine. I can get home myself."
 
-I waved goodbye to the two of them and walked alone through the bar district, its neon lights sparkling. The night breeze on my cheeks felt cool and refreshing.
+"Got it. Be careful, okay? Good work tonight~!"
 
-I should hurry home. I wonder if Yui-san is back yet. My steps naturally lightened. The drinking party had been fun, certainly. But drinking at home with Yui-san while watching a film... that tasted so much better.
+I waved to the two of them and walked alone through the neon-lit bar district. The night air against my cheeks felt cool, pleasant.
 
-Drinking makes me miss her. Makes me want to see her sooner. Should I contact her? Just as I reached for my phone in my pocket.
+Let's head home quickly. Is Yui-san back yet, I wonder? My steps naturally picked up, lighter.
 
-A familiar back came into view right before me.
+The drinking party really had been fun. But drinking at home with Yui-san, watching a movie together — that had always been so much more delicious, by far.
 
-My heart gave a sudden, sharp pang. A sense of déjà vu washed over me. This scene. It brought back that nightmare I'd seen that day. Beside Yui-san. A tall man walking alongside her.
+Drinking alcohol makes me miss her. Makes me want to see her soon. Maybe I should message her, I thought, reaching for the phone in my pocket, when—
+
+Right in front of me, a familiar back came into view.
+
+My heart clenched, sharp, like something folding in on itself. A sense of déjà vu. This exact scene. That nightmare from before came rushing back. Beside Yui-san, a tall man walked alongside her.
 
 "...Yui-san...?"
 
-The name slipped from my lips without thought. Unconsciously.
+Her name slipped from my lips, unbidden. Unconscious.
 
-　Her long, lustrous hair swayed smoothly as she turned. Her eyes widened, a hint of surprise visible.
+Her glossy long hair swayed, gently, as she turned around. Eyes widening, faintly startled.
 
 "Kanata...?"
 
-They both stopped. Then, I saw the face of the man in the suit who turned around later. A handsome face. Neatly styled, clean-cut hair. Not a student. He looked every bit the office worker. Though I'd never seen his face before, I knew who he was.
+The two of them stopped. And then, a beat behind her, I looked at the face of the man in the suit as he turned too. Refined features. Neatly, cleanly styled hair. Not a student. Every inch a company employee. A face I'd never seen before, and yet — I already knew who this person was.
 
-　My cheeks, which should have been flushed from the alcohol, grew cold. Why was she walking with a man? Had he just seen her home from the dinner?
+My cheeks, flushed warm from the alcohol, felt themselves turn cold. Why is she walking with a man, just the two of them? Was the dinner over, and he was just walking her to the station?
 
-"Ah... what a coincidence, Kanata. Were you heading home now?"
+"Ah... what a coincidence, Kanata, were you just heading home?"
 
-Yui-san smiled awkwardly, looking slightly flustered.
+Yui-san laughed, faintly awkward, a little flustered.
 
-"Is this the girl who lives with Yui, the one you mentioned?"
+"Is this maybe the girl who lives with Yui? The one I've heard about?"
 
-A chill ran through me. "Yui." Why was he calling her by her first name so familiarly? He was a colleague. Why was he acting so intimate...?
+I felt the blood drain straight out of my face. "Yui." Why is he saying her name so familiarly. He's from the company, isn't he. Why so intimate...
 
-"Ah, yes, that's right. Sorry, Shinji, I'm going home with Kanata, so you don't need to walk me in tonight."
+"Ah, yeah, that's right. Sorry, Shinji, I'm heading home with Kanata, so you don't need to walk me the rest of the way today."
 
-Shinji — just as I thought. This man, Kitakami Shinji. Without even looking at Yui-san's face, I stared fixedly at the tall figure.
+Shinji — I knew it. This is Kitagami Shinji. I stared, hard, at the tall man beside her, without even looking at Yui-san's face.
 
-My heart was pounding loudly. Emotions raged like a muddy torrent inside my chest. An indescribable discomfort washed over me in a wave.
+My heart pounded, loud, frantic. Emotion churned, a violent current in my chest. An unspeakable, sickening unease crashed over me, all at once.
 
-"You're Yui's friend, right? Introduce me properly."
+"You're Yui's friend, right? Introduce me properly, would you?"
 
-Startled, Yui-san turned back to Kitakami-san, looking flustered.
+Startled, Yui-san turned to Kitagami-san, flustered.
 
-"Pleased to meet you. I'm Yui's fiancé — Shinji Kitakami."
+"Nice to meet you. Yui's fiancé — Kitagami Shinji."
 
-I felt as though the noise, everything, was receding into the distance.
+Everything — the noise, everything — felt like it was pulling away, distant.
 
-Time, the world — it felt as though it had stopped, as though only I had been cut out.
+Time, the whole world, felt like it had stopped, as if I were the only thing left standing still, cut out from everything else.

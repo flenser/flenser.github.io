@@ -1,144 +1,150 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 4
 parent: Second-year university student, spring
 sequence: 45
-title: 'Episode 45: Were you actually jealous back then too?'
+title: 'Episode Forty-Five: Were You Actually Jealous, Even Back Then?'
 ---
-Episode 45: Were you actually jealous back then too?
+## Episode Forty-Five: Were You Actually Jealous, Even Back Then?
 
-The next morning. As I headed towards the living room, the empty cans were indeed lying on the table just as I remembered, and the lighting remote Yui-san had flung was firmly lodged beneath the sofa.
+\
+The next morning, heading into the living room, the empty can was exactly where I remembered, still sitting on the table, and the light remote Yui-san had tossed aside lay right where it landed under the sofa.
 
-It made me realise that incident had definitely not been a dream. A mere few cans of canned chu-hai seemed far too weak to wash away that embarrassing memory.
+Confirmation, unmistakable, that last night hadn't been a dream. A few cans of chu-hai, apparently, weren't nearly strong enough to erase a memory that embarrassing.
 
-　Soft morning sunlight filtered through the lace curtains into the living room.
+The living room, morning light filtering soft through the lace curtains.
 
-My clothes, flung haphazardly all over the sofa, looked so vividly real that for a while, I couldn't bring myself to look at Yui-san's face.
+My clothes, scattered here and there across the sofa, looked so viscerally real that I couldn't bring myself to look at Yui-san's face for a good while.
 
-It had been a month already since that unforgettable birthday.
+*
 
-　I threaded the earrings Yui-san had given me on my birthday through my piercing holes, which had finally settled. After that, my first port of call was the hospital to get my ears pierced.
+A full month, already, since that unforgettable birthday.
 
-I hadn't known it would take so long before I could wear fashion earrings. I genuinely regretted not getting them pierced much earlier.
+*
 
-Looking at my reflection in the mirror, I felt somehow a little more grown-up.
+The piercing holes, finally settled, and I threaded through them, for the first time, the earrings Yui-san had given me for my birthday. I'd gone straight to a clinic to get them pierced right after.
 
-　The lovely earrings, designed like a white clover edged in gold.
+I hadn't known it would take this long before I could wear fashion earrings, and genuinely regretted not getting them done sooner.
 
-On my birthday night, after enjoying dinner at the hotel, I was naturally led to the suite. Inside the box she handed me that night...
+Looking at my reflection in the mirror, I felt, somehow, a little more grown-up.
 
-I knew at first glance they were very expensive. But more than that, the design captivated me. So incredibly cute. It felt like being shot straight through the heart. It was almost love at first sight.
+A lovely little earring, gold-rimmed, shaped like a white clover.
 
-　So the month after my birthday felt incredibly, incredibly long.
+The night of my birthday, after enjoying dinner at the hotel, I'd been taken, naturally, to the suite room, and this was what had been inside the box she handed me.
 
-Every day, opening the box of earrings Yui-san had given me and gazing at them became a habit. I was waiting impatiently for the day I could wear them.
+One glance told me it was something genuinely expensive. But more than that, the design itself caught me. So cute. Like something had struck straight through my heart. Close to love at first sight.
 
-I remember Yui-san holding my hand and smiling gently at me.
+Which is exactly why this past month, since my birthday, had felt unbearably long.
 
-I thought this love was a quagmire.
+Opening the box Yui-san gave me and just looking at it had become a daily habit. Because I'd been waiting, eagerly, for the day I could finally wear it.
 
-Certainly, if you just laid out the facts, nothing about our situation had changed from before. We still weren't lovers, and this relationship still had no name.
+I remembered Yui-san, holding my hand, smiling gently at me.
 
-Yet, I felt certain something had changed since that night.
+I'd thought this love was a swamp, a mire.
 
-It's strange. Just because we'd been intimate, I felt like our hearts had connected too. Was that just me being giddy?
+It's true, lining up the bare facts, nothing's actually changed from before. We're still not a couple, and this relationship still doesn't have a name.
 
-After tidying myself up, I headed to the living room. Yui-san was reading on the sofa.
+Even so, something had genuinely shifted since that night.
 
-"Hey, Yui-san, look, look!"
+Strange. Just because our bodies came together, it feels like our hearts connected too — maybe that's just me getting carried away.
 
-Peering over the backrest at Yui-san. When I called out to her, she immediately placed a bookmark in her book and looked up. She tucked her hair behind her ear so I could see her piercing, tilting her face.
+Once I'd finished getting ready, I headed to the living room and found Yui-san reading on the sofa.
 
-"What do you think? Do they suit me?"
+"Hey, Yui-san, look, look."
 
-"Ah, you can wear them from today? They're lovely. Just as I thought, they suit you perfectly."
+I peeked over the back of the sofa. Hearing my voice, she quickly slipped a bookmark into her book and looked up. I tucked my hair behind my ear to show off the earring and tilted my head.
 
-　Saying that, Yui-san smiled happily. Drawn in by that smile, I smiled too. Gently, her hand reached out and touched my ear, playing with it softly, tickling me.
+"How is it? Does it suit me?"
 
-"Does it hurt anymore?"
+"Ah, you can wear them starting today? Cute. Just like I thought, it suits you perfectly."
 
-Shaking my head, no, Yui-san laughed and beckoned me over. She moved around to the sofa and settled down beside me.
+Yui-san said it, smiling, happy. Caught up in that smile, I found myself smiling too. Her hand reached out, gently poking and playing with my ear, and it tickled.
 
-　Even after we became intimate, Yui-san remained exactly the same.\
-She was always just as kind, truly unchanged.\
-The guys I'd dated before would suddenly become arrogant the moment we got physical... But in a way, I felt a little relieved that she wasn't playing games.
+"Doesn't hurt anymore?"
 
-"You're so adorable, I don't want to let you leave the house anymore~..."
+I nodded, and Yui-san laughed and waved me over. I circled around the sofa and settled in beside her.
 
-Staring intently at me with my new piercing, Yui-san sighed deeply.
+Even after we'd been physically intimate, Yui-san stayed exactly the same.\
+Just as gentle as always, genuinely nothing changed at all.\
+My ex, back then, had turned abruptly high-handed the moment things became physical... so I'm a little relieved, at least, that I wasn't just being played with.
 
-　Tonight, I've been invited to a faculty social with Ritsu-san and Yuri. It's my first proper 'drinking party' since I started drinking. Half nervous, half excited.
+"You're this cute, I don't think I want to let you leave the house anymore..."
 
-As for Yui-san, she couldn't make it because it clashed with her regular dinner gathering.
+Staring straight at me, earrings and all, Yui-san let out a deep sigh.
 
-"...Don't drink too much, okay? I'm really worried about you, Kanata. You're so easily persuaded."
+Tonight, I'd been invited to a mixer with people from the same faculty, along with Ritsu-san and Yuuri. My first "drinking party" now that I can actually drink. Half nervous, half excited.
 
-　Ever since I decided to go to the drinking party, Yui-san has been like this. Of course, I'm happy she's worried about me.
+As for Yui-san, her usual monthly dinner happened to fall on the same night, so she couldn't come.
 
-But, over the past month since my birthday, Yui-san and I have been practising getting used to alcohol, sipping drinks together in the evenings. So I think I'll be fine, I won't make a fool of myself.
+"...Don't drink too much, okay? Kanata, you're weak to pushing, so I'm genuinely worried."
 
-"I'll be fine. Ritsu-san and Yuri will be there too..."
+Ever since it was decided I'd go, Yui-san's been like this the whole time. Of course I'm happy she worries about me.
 
-"But there'll be loads of other people there, won't there? If anyone tries to chat you up, you absolutely mustn't go off with them, alright? And you absolutely mustn't exchange contact details either. The world's full of bad people, you know."
+But over this past month since my birthday, Yui-san and I have been practicing, drinking a little together most nights, getting me used to alcohol. So I should be fine — I don't think I'll embarrass myself.
 
-Yui-san furrowed her brow tightly and said this with such obvious displeasure that I couldn't help but laugh.
+"I'll be fine. Ritsu-san and Yuuri will both be there..."
 
-"You were one of those 'bad people' yourself until recently, so what gives you the right to say that?"
+"But there'll be plenty of other people too. If someone tries to pick you up, don't ever go along with it, okay? And don't exchange contact info either. There are plenty of bad people out there."
 
-That's not something Yui-san, the playgirl who's brought home countless girls after drinking parties, should be saying. When I pointed that out, Yui-san scowled and suddenly wrapped one arm around my waist, pulling me close.
+Yui-san said it, brows drawn together, thoroughly displeased, and I couldn't help laughing.
 
-"W-whoa!"
+"You were exactly that 'bad person' yourself, not that long ago. Who are you to talk?"
 
-The suddenness threw me off balance. Then she bit lightly on my collarbone, making me jerk back in surprise. I felt a strong determination not to let me escape from the arm around my waist.
+Not a line that suits Yui-san at all, the playgirl who's taken home countless women from parties like this. The moment I pointed that out, Yui-san, annoyed, suddenly looped an arm around my waist and pulled me close.
 
-　Where her lips pressed against my skin, she sucked hard, causing that familiar, slight stinging pain I'd felt before.
+"Wa— !"
 
-"H-hold on, Yui...!"
+Thrown off balance by the sudden move. Then, bitten lightly on the collarbone, I flinched back, startled. I could feel a fierce, unmistakable will, radiating from that arm around my waist — *I'm not letting you go.*
 
-I placed my hands on her shoulders and pushed back with all my strength. She let go of me almost too easily. When she lifted her face, she smiled contentedly, as if her purpose had been fulfilled.
+Sucked hard where her lips had pressed, I felt that familiar sharp little sting I'd already experienced a few times before.
 
-"Honestly, why did you have to do that in such a visible spot...!"
+"Wa— wait, Yui-san...!"
 
-　It's not that I dislike getting kiss marks. If they're hidden by clothes, I don't mind her doing as she pleases – it's not like I'm showing them off.\
-But I do object to them being placed where people are likely to see them. The worst part is she puts them right on the borderline of being barely concealed by clothing.\
-It's embarrassing if someone spots and points them out, and frankly, there's no way to explain something like this.
+I pressed a hand to her shoulder and pushed, hard, and, easily, our bodies came apart. Lifting her head, Yui-san smiled, satisfied, having accomplished her goal.
 
-"To keep the pesky insects away, insect repellent."
+"Geez, why somewhere so visible...!"
 
-Saying that, Yui-san gently pressed that wrist against my neck. Sweet, the scent of Yui-san's perfume.
+It's not that I hate having marks left on me. Somewhere clothes can hide, I don't mind at all — she can do as she likes.\
+But having one placed somewhere this visible to other people is a different story. It's exactly on that razor's edge between hidden and exposed by my clothes, which makes it genuinely bad of her.\
+Getting caught and questioned about it is embarrassing, and honestly, there's no good way to explain it anyway.
 
-Ah, come to think of it, something like this happened before, I recall. I'm sure it was when I went to the zoo with Hayakawa-kun to see the pandas. She put perfume on me like this before we went out.
+"Bug repellent. So no weird bugs land on you."
 
-　Back then, I hadn't a clue what Yui-san was thinking. But now, I think I understand a little. So that's it. Back then too, Yui-san was...
+Saying that, Yui-san gently pressed her wrist against my neck. The sweet scent of her perfume.
 
-"Could it be... back then too, you were actually jealous?"
+Ah, right — this happened once before too, I remembered. When I went to the zoo with Hayakawa-kun to see the pandas. Before I left, Yui-san had put perfume on me, just like this.
+
+Back then, I had no idea at all what Yui-san had been thinking. But now, I feel like I understand, just a little. Right — even back then, Yui-san had been—
+
+"Were you actually jealous, even back then?"
 
 "Eh?"
 
-Yui-san's eyes widened in surprise. She looked completely baffled, not understanding what I was talking about, and I couldn't help but laugh at how funny it was.
+Yui-san's eyes went round, blank. Her expression made it clear she had no idea what I meant, and it struck me as funny enough that I laughed.
 
-"Heh heh, never mind if you don't remember."
+"Heh, if you don't remember, never mind."
 
-"Kanata, what are you talking about?"
+"Kanata, what are you even talking about?"
 
-"Nothing at all. It's just... Yui-san, you never said it out loud, but looking back, it really showed in your attitude, didn't it? That's all."
+"Nothing, really. Just thinking, looking back, you never said it out loud, but it showed up in what you did, more than I realized at the time. That's all."
 
-"Eh...?"
+"Eeh...?"
 
-Seeing Yui-san tilt her head, clearly not recognising what I meant, I glanced at her and stood up, thinking it was about time. Somehow, it felt like our positions had reversed.
+With no memory of it at all, apparently, Yui-san sat there, head tilted, puzzled, and I stood, saying it was about time to go. It felt, somehow, like our roles from before had flipped.
 
-Until now, I'd just silently watch Yui-san go out drinking, but now it's different. Being twenty really is something, isn't it? It feels like I've suddenly grown up.
+Before, I was always the one silently seeing Yui-san off on her nights out. Now it's the opposite. Turning twenty really is something, I thought — felt like I'd suddenly grown up.
 
-"...Really, take care, alright?"
+"...Please, really, be careful."
 
-"Yes. You take care too, Yui-san. Right then, I'm off."
+"I will. You be careful too, Yui-san. Alright, I'm heading out."
 
-Yui-san saw me to the front door and kissed me goodbye, so I left the house feeling rather light-headed.
+She walked me to the entryway and kissed me, *see you later*, and I left the house in some floaty, unmoored kind of mood.
 
-　Feeling the slightly chilly evening breeze, I gently stroked the earring at my temple. Starting with the necklace, like this, one by one, the marks of her presence on my body were increasing. It made me feel incredibly happy and cherished.
+Feeling the faintly cool evening breeze, I gently touched the earring at my ear. Starting with the necklace, one by one, marks of hers keep accumulating on my body like this. It made me happy, genuinely, and fond.
 
-　University life is long. Even if I can't be Yui-san's lover yet, someday I'll make her say she wants me to be. The distance between us must surely be closing steadily.
+College life is long. Even if I can't be Yui-san's girlfriend yet, someday, I'll make her say she wants me to be. Because the distance between us is surely closing, bit by bit, with certainty.
 
-As I grow older, year by year, like this, the things I can do increase one by one. I too will become an adult, and someday, I hope to graduate from being someone who only receives.
+Every year I add, like this, one more thing I'm able to do gets added too. If I can grow up too, someday graduate from being someone who only ever receives.
 
-I thought I might be able to become a support for you, who finds it hard to be dependent.
+I found myself thinking — maybe I could become a support for you, someone so bad at being spoiled yourself.
