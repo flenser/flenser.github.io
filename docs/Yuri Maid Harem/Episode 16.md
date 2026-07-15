@@ -1,5 +1,13 @@
-# Episode 16 (Maria's POV): Complete Brain-Meltdown Childhood Friend
+---
+layout: episode-flat
+nav_order: 16
+parent: 'The Introvert Whose Only Redeeming Feature Is Her Face Somehow Built a Yuri Harem ~A Former Young Lady Becomes a "Maid" in Akihabara~'
+sequence: 16
+title: "Episode 16 (Maria's POV): Complete Brain-Meltdown Childhood Friend"
+---
+## Episode 16 (Maria's POV): Complete Brain-Meltdown Childhood Friend
 
+\
 "No way, no way, no way, no way... there's no way!"
 
 I couldn't hold it in and shouted, and a moment later I heard the sound of hurried footsteps in the hallway, followed by my door swinging open with force.
