@@ -1,303 +1,308 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 1
 parent: Second-year university student, spring
 sequence: 42
-title: 'Episode 42: You seem to be having a rather splendid time'
+title: 'Episode Forty-Two: You Seem Awfully Happy About Something, Yui-san'
 ---
-Episode 42: You seem to be having a rather splendid time
+## Episode Forty-Two: You Seem Awfully Happy About Something, Yui-san
 
-April. With the new academic year, I became a second-year university student, while Yui-san entered her fourth year.
+\
+April. The school year changed, and I moved up to second year, Yui-san to fourth.
 
-Time seemed to pass far more swiftly than during my first year of high school. The year since meeting Yui-san had been the most fulfilling year of my life so far.
+This past year felt like it flew by even faster than my whole year of high school. This year since meeting Yui-san has been the most fulfilling one I've ever had.
 
-On a spring day, the harsh winter cold had completely vanished, replaced by a pleasant breeze.
+The harsh cold of winter had finally cleared out entirely, and a pleasant breeze now blew through, spring settling in properly.
 
-　I walked slightly behind Yui-san as she pushed the shopping trolley. The shelves were crammed with bottles of alcohol, but Yui-san didn't hesitate, placing a familiar whisky bottle into the basket.
+I walked a step behind Yui-san as she pushed the shopping cart. The shelves were packed tight with liquor bottles, and, without a moment's hesitation, Yui-san dropped a familiar whiskey bottle into the basket.
 
-This was the liquor shop near our house. Apparently, it was Yui-san's regular haunt, stocking snacks, imported foods, and various other items.
+This was a liquor shop near the house. Apparently one of Yui-san's regular haunts, stocking all kinds of snacks and imported foods.
 
-　This was my first time here. The reason being, I was accompanying her today to buy alcohol for myself, as I would be turning twenty in a few days.
+My first time here. That's because I turn twenty in just a few days, and we'd come together today to buy the alcohol I'd be drinking.
 
-According to Yui-san, since I wouldn't know how much alcohol I could handle at first, it would be better to drink at home and get used to it rather than drinking at a bar.
+According to Yui-san, since you never know at first how strong your own tolerance is, it's better to get used to it drinking at home than at a bar.
 
-"I reckon you probably won't be able to drink beer straight away."
+"You probably can't handle beer right out of the gate, I'd guess."
 
-"Is that so?"
+"You think so?"
 
-"Kanata, you don't like bitter things, do you?"
+"Kanata, you hate bitter things, right?"
 
-"...I don't."
+"...I do."
 
-"Sweet stuff's better, right? For beginners, maybe canned chu-hai?"
+"Something sweet's probably better, then. Canned chu-hai for beginners, maybe?"
 
-We walked past the aisle displaying bottles and headed towards the chilled corner of canned chu-hai along the wall.
+We passed through the aisle lined with bottles and headed toward the wall of chilled canned chu-hai.
 
-I'd never really paid attention before, but there are so many types of alcohol. Yui-san basically only ever drinks highballs, so I'd hardly ever seen canned chu-hai before.
+I'd never really paid attention before, but there's this many varieties of alcohol? Yui-san basically only ever drinks highballs, so I'd never had much reason to notice the canned chu-hai section.
 
-"Pick whichever you like. Since I don't know what'll suit your taste, choose a few."
+"Pick whatever you like. No way to know what'll suit you, so grab a few different ones."
 
-I picked a few at random as instructed. Peach, lemon, plum, grape. This should be enough. I doubt I'll manage more than that right off the bat.
+Following her instruction, I picked out a few at random. Peach, lemon, plum, grape. That should be enough. I probably won't be able to drink much right from the start anyway.
 
-"I'll put them in the fridge, but whatever you do, don't drink them before your birthday."
+"I'll keep them in the fridge, but absolutely no drinking before your actual birthday, understood."
 
-Yui-san peered at my face and smiled. A few more days? That's within the margin of error, I thought.
+Yui-san peered into my face and laughed. A few days early feels like it should fall within a reasonable margin of error, but sure.
 
 "I know, I know."
 
-"Ah, I'm looking forward to having a drink with Kanata."
+"Ahh, I can't wait to actually drink with you, Kanata."
 
-Somehow, Yui-san seemed happy. Truth be told, I was secretly excited too. Until now, whenever we watched films together, I couldn't drink alcohol, but that would change from now on.
+Yui-san looked genuinely happy about it. If I'm honest, I felt a small flutter of excitement myself too. All this time watching movies together, I've never been able to drink — but that's about to change.
 
-I felt like I'd gotten just a little bit closer to Yui-san.
+I felt like, just a little, I'd finally caught up to Yui-san.
 
-After putting the alcohol I'd bought away in the fridge, I squeezed between Yui-san's legs as she sat on the sofa and switched on the projector.
+After putting the alcohol away in the fridge, I settled into my usual spot between Yui-san's legs on the sofa and switched on the projector.
 
-Once I'd confirmed her arm was firmly wrapped around my waist, I pressed the Netflix button on the remote.
+Once I confirmed her arm had settled firmly around my stomach, I pressed the Netflix button on the remote.
 
-"What shall we watch today?"
+"What should we watch today?"
 
-"What do you fancy watching, Kanata?"
+"What do you want to watch, Kanata?"
 
-"It's fine if we watch whatever you want for a change."
+"You can pick, for once, Yui-san."
 
-　Saying that, I placed the remote in her left hand. If I didn't say it like this, she'd always try to prioritise me.
+I said it and pressed the remote into her left hand. If I don't say something like that, she always tries to prioritize me first, every time.
 
-"Really? Well then... Kanata, have you seen this one?"
+"Really? Then... Kanata, have you seen this one?"
 
-I looked at the title projected onto the screen. I'd heard of it, but never seen it. That's because I only started enjoying films after I began living with Yui.
+I looked toward the title displayed on the screen. I'd heard of it, but never actually watched it. I only really started enjoying movies after moving in with Yui-san.
 
-I'd never had the habit of watching films before.
+I never used to have a habit of watching films before that.
 
-"I haven't seen it."
+"Never seen it."
 
-Shaking my head from side to side, I said that. Then, Yui-san pressed play, deciding on this one.
+I shook my head, side to side, and Yui-san said, *then let's go with this*, and hit play.
 
-"The lead actress is really cute, you know."
+"The lead actress is really cute."
 
-"Oh..."
+"Oh... really."
 
-What was that? A bit dull. Realising I'd let out a dissatisfied sound, I felt the arms holding me tighten their grip.
+What's that supposed to mean. A little annoying to hear. Maybe she noticed the displeasure creeping into my voice, because the arm around me tightened, firm.
 
-"Of course, Kanata's cuter though."
+"Obviously, you're cuter, Kanata."
 
-"...It doesn't make me happy when you say it like that."
+"...Saying that like an afterthought doesn't make me happy."
 
-"I genuinely mean it. Kanata's the cutest in the whole world."
+"I mean it, genuinely. You're the cutest in the world."
 
-Saying that, she gently kissed my cheek. Even though I'd been in a foul mood, just hearing her say something like that made me cheer up again so easily – I suppose that says a lot about me.
+She said it and kissed my cheek, gentle. I'd been in a bad mood, and yet being told something like that so easily talks me right back around — I really am hopeless, I think.
 
-　The film began. True, the lead actress was cute. But Yui-san said I was the cutest. Though, really, there was no point feeling jealous of someone on the screen.
+The movie started. It's true, the lead actress is cute. But Yui-san says I'm number one. Not that there's any point getting jealous of someone on a screen, but still.
 
-"Your birthday's coming up soon. What do you want for your present? I'll buy you anything you like."
+"Your birthday's coming up soon. What do you want for a present? I'll buy anything you like."
 
-"Anything? Hmm, what would be good?"
+"Anything? Hmm, what would be good..."
 
-Even when asked that, only one thing I wanted came to mind. I want Yui-san. I don't need anything else. But I can't say that, so I think seriously.
+Asked that, only one thing comes to mind. I want Yui-san. Nothing else. But I can't say that, so I actually think it over, seriously.
 
-I already have a necklace, and if I get any more stuffed toys, they'll spoil the simple, unified look of Yui-san's room.
+I already got a necklace, and if the plushies pile up any more, they'll start ruining the clean, minimal look of Yui-san's room.
 
-"You don't want anything? A bag? Some jewellery? Anything at all?"
+"Nothing you want? A bag, jewelry, anything at all?"
 
-Yui-san's sense of money is completely different from mine, you see. The fact she can pull off high-end brands so effortlessly is down to her innate class, I reckon.
+Yui-san's sense of money is on a completely different scale from mine. The way she wears high-end brands so effortlessly is probably just because she has that natural elegance to begin with.
 
-While I was zoning out watching the film, my eyes drifted to the earrings glinting at the actress's ears.
+Watching the movie absently while thinking it over, my eyes landed on the glinting earrings the lead actress was wearing.
 
-Come to think of it, Yui-san always wears such lovely earrings too. I'd always thought they looked gorgeous. Getting pierced seemed painful, so I'd hesitated, but this might be a good opportunity.
+Come to think of it, Yui-san's always wearing different earrings too, and I've always thought they looked lovely. I'd figured getting my ears pierced sounded painful and kept putting it off, but maybe this is a good opportunity.
 
-"So, piercings..."
+"Then, earrings..."
 
-"Piercings? Kanata, did you have your ears pierced already?"
+"Earrings? Kanata, are your ears even pierced?"
 
-She tucked my hair behind my ear and peered at me. Her fingertips gently pinched my earlobe, tickling me just a little.
+She tucked my hair behind my ear and peered in close. Her fingertip pinched gently at my earlobe, ticklish.
 
-"I was thinking of getting them done now."
+"I was thinking of getting them pierced."
 
-"Really? You should get it done properly at a hospital, alright?"
+"Really? Get it done properly at a clinic, okay?"
 
-"Wouldn't the ones sold at the chemist's be alright?"
+"Can't I just use the ones sold at the pharmacy?"
 
-"Better to be safe, surely? They'll give you anaesthetic too. It'd be awful if your lovely ears got swollen."
+"Safer to do it properly. They can numb it too, and it'd be awful if your cute ears got all swollen."
 
-Oh, I see. I didn't know that. But if that's the case, it doesn't seem quite so scary. I feel a little lighter.
+Oh, I didn't know that. But that makes it sound a lot less scary. Something in me eased, just slightly.
 
-Just as her fingers, which had been rubbing my earlobe, pulled away, her lips suddenly pressed against my ear, making my body jump.
+Her fingers, tracing gently over my earlobe, pulled away, and then, suddenly, her lips pressed close, and my body jolted.
 
-"H-hey, Yui-san...! Stop, that tickles!"
+"H-hold on, Yui-san...! Geez, that's ticklish."
 
-"Earrings, eh? I'm sort of pleased, but it's complicated."
+"Earrings, huh. Happy, but also kind of complicated."
 
 "Why? You wear them too, Yui-san."
 
-"Take them out when you get home, alright? They make kissing like this awkward."
+"Take them off once you're home, okay? Makes it harder to do this."
 
-Yui-san knows my ears are sensitive and still does this – she's dreadful. Not that I mind, but it really does tickle.
+Yui-san knows perfectly well my ears are sensitive, and doing this anyway is genuinely bad of her. Not that I actually hate it, but it really is ticklish.
 
-"You're always saying things like that... Choose my earrings properly, won't you?"
+"You always turn everything into that kind of comment... Please pick out something nice for my earrings."
 
-"Sure. Hmm, I think something like Alhambra would suit you."
+"Sure. Hmm, I think an Alhambra piece would suit you."
 
-"Alhambra...?"
+"Al-ham...?"
 
-Hearing this unfamiliar word, I tilted my head. Behind me, Yui giggled softly.
+Some unfamiliar word reached me, and I tilted my head, and behind me, Yui-san laughed, soft.
 
-"Nah, nothing. I'll book the present and a nice dinner."
+"No, never mind. I'll book us a present and a nice dinner."
 
-"Wouldn't it be fine just to eat cake at home?"
+"Cake at home is plenty, you know?"
 
-"No, no, it's your twentieth birthday, so let me celebrate properly."
+"No, no, it's a special twentieth birthday, let me actually celebrate it properly."
 
-His arms tightened around me. I was so happy she wanted to celebrate.\
-When I'd first returned to Japan, I never imagined university life would be this enjoyable.
+The arm around me tightened. I'm happy she wants to celebrate.\
+Back when I first returned to Japan, I never imagined college life could turn out to be this much fun.
 
-I wish this everyday life, spent snuggled up together like this, could go on forever.
+I wish these ordinary days, spent curled up together like this, could just keep going forever.
 
-She rubs her cheek against the back of my neck, so I tilt my head back slightly to look at Yui.
+She nuzzled at my neck, and I tilted my head back slightly to look at her.
 
-When our eyes meet, she smiles gently, her eyes narrowing softly.
+Our eyes met, and Yui-san smiled, narrowing her eyes gently.
 
-Then our lips meet tenderly.
+Then our lips met, soft.
 
-It's amazing, isn't it? Without me saying a word, Yui seems to know exactly what I want her to do.
+Amazing, really — without a single word from me, Yui-san always seems to know exactly what I want.
 
-I love her so much. I want to be with her forever. If only it could be not just until I graduate university, but beyond that, forever.
+I love her so much. I want to stay together forever. If it could actually happen, not just until graduation — but for however long after that too.
 
 ＊＊＊
 
-When I was a child, each day leading up to my birthday felt unbearably long and agonisingly slow. Now, however, the days rush by in a dizzying whirl, leaving no time to feel impatient.
+As a kid, each individual day leading up to my birthday felt impossibly long, unbearably slow to wait through. But now, days pass by so quickly there's barely a moment to feel that anticipation at all.
 
 Tomorrow, I turn twenty.
 
-What will change? Nothing much, really. If I had to say, perhaps just that I'll be able to drink alcohol.
+Nothing's really going to change, if I'm honest. If anything, I suppose being able to drink is about the only real difference.
 
-　When I spoke to my dad on the phone the other day for the first time in ages, he seemed disappointed he couldn't celebrate with me.
+Talking to my father on the phone recently, he'd sounded genuinely disappointed we couldn't celebrate together.
 
-After my last lecture today, I parted ways with Yuri and walked through the university courtyard towards the station.\
-I was thinking how pretty the cherry blossoms looked dancing in the wind when, passing by, I spotted a familiar figure sitting on the bench by the fountain.
+*
 
-—Oh, Yui?
+After my last class of the day ended, I said goodbye to Yuuri and walked through the university courtyard toward the station.\
+Cherry blossoms were scattering, beautiful, on the breeze, and I found myself admiring them when a familiar figure caught my eye, sitting on a bench in front of the fountain.
 
-Sitting cross-legged beside Yui was another girl, sitting uncomfortably close.\
-Yui, fiddling with her phone, didn't seem to notice her, but the girl was tugging at the sleeve of Yui's right arm, pleading for something.
+—Wait, is that Yui-san?
 
-A bad feeling washed over me. A burning, prickling discomfort spread through my chest.
+Sitting with her legs crossed, a girl sat unusually close beside her.\
+Yui-san, absorbed in her phone, didn't seem to be paying her any attention, but the girl was tugging at the sleeve of her right arm, apparently pressing some point.
 
-"Hey, Yui, come on. Come over to my place now."
+A bad feeling crept over me. An unpleasant, scorching sensation spread, slow, through my chest.
 
-"No way. I told you I've got plans today."
+"Hey, come on, Yui. Come over to my place right now."
 
-"You always say that. You never play with me anymore."
+"No thanks. I've got plans today."
 
-"Didn't we agree you wouldn't bother me with this?"
+"You always say that. You never hang out with me at all anymore."
 
-From the flow of their conversation, it was clear this girl wasn't just a 'friend'. It was the first time I'd seen Yui's 'playmate'.
+"You promised not to say things that get complicated, didn't you?"
 
-　She's cute. Judging by the way they talk, she must be in the same year as Yui. If so, that makes her a senior.
+From the flow of the conversation, it was clear this girl wasn't just a "friend." My first time actually seeing one of Yui-san's "playmates."
 
-Somehow, she reminds me of the lead actress in that film I saw recently. Which means she's the kind of girl Yui likes...
+A cute girl. Watching the way they talked, maybe a classmate of Yui-san's — meaning, a fellow senior.
 
-"You know what? Ever since you started living with that junior girl, you've been less sociable..."
+Somehow, she looked a little like the lead actress from the movie we'd watched the other night. Which meant — exactly Yui-san's type.
 
-"Really? Or is it just your imagination?"
+"You know, ever since you started living with that underclassman girl, you've gotten so bad about hanging out..."
 
-"I find myself getting jealous somehow."
+"Really? Isn't that just your imagination?"
 
-I know eavesdropping is wrong. But my feet wouldn't move from here.
+"I'm getting kind of jealous, honestly."
 
-"It's a bit of a problem if you're jealous."
+I know eavesdropping isn't good. But my feet wouldn't move from that spot.
 
-I'm getting more and more furious. I've come to realise Yui-san isn't interested in me, but then why is she even with me?
+"Being jealous doesn't really help me any."
 
-Tomorrow's my birthday. She said she'd celebrate it with me. Why is she with another girl right now?
+Anger built, steadily, hotter. I could tell, roughly, that Yui-san wasn't interested in her — but then why were they even together?
 
-It's infuriating. Yui-san's an idiot. A lecher. A womaniser.
+Tomorrow's my birthday. She said she'd celebrate with me. So why is she with some other girl right now?
 
-Fuming, I pulled my phone from my pocket and tapped the call history. Then I selected the name at the very top.
+Infuriating. Yui-san, you idiot. Pervert. Skirt-chaser.
 
-　You know what happens if you ignore my call, don't you?
+Furious, I pulled my phone out of my pocket and tapped my call history. Selected the name right at the top.
 
-After the ringtone, Yui-san's phone, still in her hand, rang a moment later.
+*If you ignore my call now, you know what that means, right?*
+
+After a few rings, with a small delay, the phone still in Yui-san's hand started ringing.
 
 "Ah."
 
-"Eh? Who's calling? Another girl?"
+"Eh, who is it? A call? Some other girl?"
 
-The girl beside her frowned in displeasure. Yui-san ignored her, silencing her with a palm over her mouth.
+The girl beside her frowned, displeased. Yui-san, ignoring her, held up a hand to stop her.
 
-"Sorry, just be quiet for a moment."
+"Sorry, quiet a sec."
 
-A moment later, the ringing stopped.
+A short delay, and the ringing stopped.
 
-"Hello? Kanata?"
+"Hello, Kanata?"
 
-"You sound incredibly cheerful, Yui-san."
+"You seem awfully happy about something, Yui-san."
 
-"Blimey!"
+"Whoa!"
 
-Hanging up, I called out from right beside her. Yui-san straightened up, startled.
+I hung up and spoke right from beside her, and Yui-san jolted upright, startled, spine snapping straight.
 
-"Ka-Kanata...!?"
+"K-Kanata...!?"
 
-Yui frantically shook off the girl's clinging right arm and stood up.
+Yui-san scrambled up, shaking off the girl still clinging to her right arm, standing.
 
-"G-Goodness me. What are you doing here? Since when?"
+"Y-you startled me. Why are you here? Since when?"
 
-Like someone caught red-handed cheating, Yui couldn't hide her flustered gaze, her eyes darting about.
+Like she'd been caught mid-affair, unable to hide her rattled nerves, Yui-san's eyes darted, restless.
 
-I glared at Yui with all my might. My eyes alone conveyed it. You — cheater.
+I glared at her with everything I had. Conveying it purely through my eyes. You — cheater.
 
-　Then, the girl whose arm Yui had flung away shot me a displeased glance before rising and grabbing Yui's right arm tightly once more.
+At that, the girl, having had her arm shaken off, glanced at me, unimpressed, then stood and grabbed Yui-san's right arm tight again.
 
-"So this is the junior who lives with Yui? Hmm, are you two... dating?"
+"Is this maybe the underclassman living with Yui? Hmm, so are you two dating?"
 
-She scrutinised me from head to toe, sizing me up, which was thoroughly irritating.
+She looked me over, head to toe, sizing me up, and it wasn't fun to be scrutinized like that.
 
-"We're not dating. Kanata's different from me, so don't say weird things."
+"We're not dating. Kanata's not like you, so don't say anything weird."
 
-I knew she said that to protect me, to stop rumours spreading. I knew it, but it still pissed me off.
+I understood exactly why she'd said that — to protect me, to keep rumors from spreading. I understood it, but it still made me furious.
 
-"Oh, I see. What a waste. Living together and not having sex with Yui? She's bloody brilliant at it."
+"Really? Such a waste, living together and not even sleeping with Yui. She's really good at it, you know."
 
-I could tell Yui was breaking out in a cold sweat. Deep inside, I felt my emotions turning to ice.
+I could tell Yui-san was breaking out in a cold sweat. I felt something in the pit of my stomach turning cold, calm.
 
-Anger, jealousy... once they pass, people become this calm, huh.
+Anger, jealousy — apparently, once they pass a certain point, a person just gets eerily calm.
 
-"Lately, Yui hasn't been paying me any attention at all, so I just assumed she'd found someone else. If that's not it, are you still angry about me biting you?"
+"Lately Yui hasn't been paying me any attention at all, so I figured maybe you'd gotten a girlfriend. If not, are you still mad about the biting thing?"
 
-Saying that, she gently stroked Yui's shoulder.
+She said it, gently stroking Yui-san's shoulder.
 
-I remember. That shoulder. That distinct bite mark. That wound from back then, this person—
+I recognized it. That shoulder. That distinct bite mark. That wound, from back then — it had been from this person.
 
-　A snap sounded in my head. Everything before my eyes turned crimson.
+Something snapped, sharp, inside my head. Everything in front of me went red.
 
-"Hey, cut it out—"
+"Hey, that's enough, seriously..."
 
-Just as Yui tried to restrain her, unable to bear it any longer, my body moved of its own accord.
+Right as Yui-san, unable to bear it, tried to stop her, my body moved on its own.
 
-I grabbed Yui by the collar with all my might and pulled her close. Standing on tiptoe to reach the taller woman, I bit down on her lips.
+I grabbed the front of Yui-san's shirt and yanked her toward me. Rising on my toes to reach someone so much taller than me, I bit down hard on her lips.
 
 "Ow...!"
 
-Something clattered to the floor and shattered. I pulled away from her lips, then shoved her chest hard.
+A sharp crash rang out, something falling, breaking. I released her lips, then shoved her chest, hard.
 
-"Huh... what...?"
+"Wha— eh...?"
 
-After stumbling back a couple of steps, Yui stared at my face, looking utterly bewildered, as if she had no idea what had just happened.
+Stumbling back two or three steps, Yui-san stared at me, blank, unable to process what had just happened.
 
-　She touched the lips I'd bitten, then her gaze fell to the smartphone lying at her feet.\
-She must have dropped it in shock, but earlier, there'd been that awful cracking sound.
+She touched the lip I'd just bitten, then dropped her gaze to the phone that had fallen at her feet.
 
-But I don't care. Because it's Yui's fault.
+She'd apparently dropped it out of shock, and just now, that unpleasant crack of a sound had been the screen shattering.
 
-"...Yui, you idiot."
+I don't care. Because this is entirely Yui-san's own fault.
 
-After glaring at the stunned Yui, I spun on my heel and bolted away as if fleeing.
+"...You idiot, Yui-san."
 
-　It was infuriating. It made my blood boil. I knew it, but I didn't want to see it.
+I glared at her, still frozen, stunned, and then spun on my heel and bolted, fleeing.
 
-That girl knew a Yui I didn't know.\
-She'd been connected to Yui more deeply than I ever had.
+Furious. Seeing red. I already knew — but I never wanted to actually see it.
 
-It felt like defeat, and the frustration was unbearable.
+That girl knows a Yui-san I don't know.\
+She's connected to Yui-san, far more deeply than I ever have.
 
-From heaven to hell. My last day as a nineteen-year-old was shaping up to be the worst day ever.
+I felt like I'd lost, and it stung, unbearably, more than I could stand.
+
+From heaven straight to hell. The last day of being nineteen was shaping up to be the worst day of my life.
