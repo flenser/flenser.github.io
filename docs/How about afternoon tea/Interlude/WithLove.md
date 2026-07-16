@@ -1,5 +1,5 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 3
 parent: Interlude
