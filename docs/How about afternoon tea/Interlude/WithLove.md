@@ -4,118 +4,125 @@ layout: episode
 nav_order: 3
 parent: Interlude
 sequence: 53
-title: With Love From London
+title: "Interlude: From London, With Love"
 ---
-With Love From London
+## From London, With Love
 
-Memory is truly a bitter thing; with time, the recollections one wishes to hold onto slip away like grains of sand through one's fingers. I only realised this after spring, when we chose to part, had passed, and summer had gone, leaving autumn in its wake.
+\
+Memory really is a resentful thing — as time passes, the memories you most want to keep just keep slipping away, spilling right through your fingers. I only really understood that once the spring I'd chosen to say goodbye had passed, summer had come and gone, and autumn had arrived.
 
-Time is cruel indeed. Merely your absence beside me has caused my world to lose all colour, and the seasons have swept past like the wind.
+Time is cruel. Just from you not being beside me, my whole world lost its color like this, and the seasons kept rushing past, like wind.
 
-　The British weather is perpetually overcast, shrouded in thick clouds. It felt as though it mirrored my own state of mind, and those disheartening days continued even now.
+England's weather is always dull, blanketed in thick cloud. It felt like a perfect mirror of my own heart, and these low, heavy days just kept going, even now.
 
-A Sunday with nothing to do. Lying in bed, I gathered Shachi-kun once more, the stuffed animal I'd hugged until it was worn out.
+A Sunday with nothing to do. On the bed, I readjusted my grip on the orca plushie, worn thin and limp from being hugged so much.
 
-"...I wish I could see you."
+"...I want to see you."
 
-　I picked up the pink perfume bottle left by my bedside. On nights when loneliness became unbearable, I wanted to fall asleep enveloped in that scent. I'd bought that bottle with its cute ribbon design thinking it would be my sleep aid.
+I picked up the pink perfume bottle, still sitting on the nightstand where I'd left it. On nights the loneliness got unbearable, I wanted to fall asleep wrapped in that scent. That's why I'd bought it, the bottle with its cute ribbon design — it had become my own kind of sleeping pill.
 
-The scent spread with a soft hiss. It was definitely Yui-san's scent. But it wasn't quite right. Something was missing. It just wasn't the same without her. Every time I thought that, I felt crushed and sank back into the bed.
+A small spritz, and the scent spread. Unmistakably, Yui-san's scent. And yet — something was different, something missing. It has to be her, the actual person. Every time I thought that, I felt struck down all over again, and sank into the bed.
 
-　I won't regret it. I mustn't. I did the right thing. Surely this wound will heal eventually. I keep telling myself these things, as if to convince myself.
+No regrets. I mustn't have any. I made the right choice. Surely, this wound will heal eventually too. Convincing myself, over and over, I kept turning it over in my mind.
 
-I thought that if the physical distance grew, I could accept it. I don't want to forget this feeling. Yet at the same time, part of me was utterly weary of this suffering, which might go on for who knows how long.
+I'd thought putting physical distance between us would help me let go. I don't want to forget this feeling — even while thinking that, some part of me was growing exhausted, unsure how much longer this pain would go on.
 
-I feel like I'm wallowing forever, like I've become the very embodiment of the 'troublesome woman' Yui-san disliked.\
-　I wonder how Yui-san is doing now. Has she forgotten all about me by now?
+Wallowing like this, endlessly — I feel like I'm the living embodiment of exactly the kind of "high-maintenance woman" Yui-san always hated.\
+I wonder how Yui-san's doing right now. Has she already forgotten about me?
 
-Being apart only brings such unpleasant thoughts to mind. Oh well, there's nothing else to do anyway. I'll just take a nap.\
-Just as I sighed and closed my eyes, there came a knock, knock, knock on my bedroom door.
+Being apart like this, nothing but unhelpful thoughts keep surfacing. Never mind, nothing to do anyway, might as well take a nap.\
+Just as I let out a sigh and closed my eyes, a knock sounded at my bedroom door.
 
-"Big sis, can I come in?"
+"Hey, sis, can I come in?"
 
-My brother Kaname's voice came from the other side. "Sure," I called back, and his face peeked through the door crack.\
-While we were apart, Kaname had become a high school student. He'd shot up in height since I last saw him, and by the time I returned, his rebellious phase had ended – he was practically a different person.
+My younger brother Kaname's voice came from the other side of the door. I called back, "sure," and he peeked his head through the gap.\
+While I'd been away, Kaname had grown into a proper high schooler. His height had shot up too, and by the time I got back, whatever rebellious phase he'd had was already over — he looked like a completely different person.
 
 "What's up?"
 
-Sliding smoothly into my room, he quietly closed the door behind him with his back turned, making me tilt my head in puzzlement.
+He slipped smoothly into my room and quietly closed the door behind him, and, puzzled by that, I tilted my head.
 
-"...Huh, something smells nice. Did you put on perfume, sis?"
+"...Huh, something smells nice. Sis, do you even wear perfume?"
 
-"Er, yeah... sometimes."
+"Um, yeah... sometimes."
 
-That was a lie. I'd never put any on myself. I couldn't say this was the scent of someone I liked, so I fumbled for an excuse. In the end, he didn't seem to care much, just shrugged it off with a "Oh well," pulled out my desk chair, and sat down.
+A lie. I've never once worn it myself. *This is the scent of someone I love* — unable to say that, I deflected, and Kaname, not particularly bothered, said, "well, whatever," pulled out my desk chair, and sat down.
 
-"Listen, I've got something important to discuss with you."
+"So, actually, I wanted to ask your advice about something."
 
-"Eh? What is it?"
+"Eh, what?"
 
-He looked so serious, it must be something really hard to say. He hardly ever came to me for advice instead of Mum or Dad.
+He said it with such a serious face that whatever this was, it clearly wasn't easy for him to bring up. Coming to me, rather than Mum or Dad, for advice — that had almost never happened before.
 
-　Wanting to gauge his true intentions, I stared straight back into those same light brown eyes of his.
+Wanting to read his intent, I looked straight into eyes the same pale brown as my own.
 
-"Actually, I... I've got a girlfriend now..."
+"Actually, I've got a girlfriend now..."
 
-"A girlfriend?"
+"A girlfriend."
 
-The phrase was too shocking; I repeated it. I stared blankly at my brother, who looked embarrassed and fidgeted, running his fingers through his not-particularly - long hair at the nape of his neck.
+The shock was enough that I just repeated the phrase back. I stared, blank, at my little brother, faintly embarrassed, restlessly smoothing down the not-especially-long hair at the back of his neck.
 
-　Here I am, still nursing the wounds of the biggest heartbreak of my life, and this little one... He seemed so tiny just the other day, and now he's got a girlfriend? I felt like burying my face in my hands.
+Here his big sister had just been through the worst heartbreak of her life, wound still raw, and this kid — until recently so small, and now suddenly has a girlfriend? I nearly put my head in my hands.
 
-"So, it's her birthday this month. Thing is... I've no idea what to get her."
+"So, um, it's her birthday this month. And... I don't know what to get her."
 
-Ah, I see. I get it. His body had grown considerably, but inside he seemed much the same. Seeing her brother fidgeting awkwardly, the kind-hearted sister decided to offer a helping hand.
+Ah, I see now. His body had grown a lot, but the inside apparently hadn't changed much. Watching my brother fidget, clearly struggling to get the words out, his kind big sister decided to throw him a line.
 
-"...Shall we pick out the birthday present together?"
+"...You want to pick out the birthday present together?"
 
-He looked up suddenly, nodding with sparkling eyes, and she felt all her irritation melt away. "Sure," he said. He beamed happily and immediately stood up, ready to go right now.
+His face lit up instantly, eyes shining, and he nodded, and something in me softened, disarmed. I said "sure," and Kaname smiled, happy, and immediately stood, saying we should go right now.
 
-　This too was part of being an older sister, she thought, rising to her feet. She hadn't planned on going out today, but it couldn't be helped. Having lazed around since Saturday, she turned two pages of the daily calendar in her room that she'd missed flipping.
+This is a sister's duty too, I told myself, standing up. I hadn't had plans today, but there was nothing to be done about it. I'd been lazing around since Saturday, so I flipped two pages ahead on the desk calendar I'd fallen behind on.
 
-It wasn't that she hadn't wondered why it had to be on a day like this.
+It's not that I didn't think — of all days, why today.
 
-Today was the 9th of October. Tomorrow was Yui-san's twenty-second birthday.
+Today is October ninth. Tomorrow is Yui-san's twenty-second birthday.
 
-After a few stops on the cramped underground train, I watched my brother earnestly selecting a present at the department store I'd taken him to, circling the various shops over and over.\
-I remembered how, at Valentine's, I couldn't decide which chocolates to give Yui-san either, circling the shops so many times that Yuri teased me about it.
+*
 
-"...Genetics are scary, aren't they?"
+A few stops on the cramped subway. At the department store I brought him to, watching my brother do lap after lap of shop after shop, agonizing seriously over the right present, I saw myself in him.\
+I remember doing the exact same thing at Valentine's, unable to decide on chocolate for Yui-san, circling the floor over and over, teased by Yuuri the whole time.
 
-"Eh? What?"
+"...Genetics really are something scary."
 
-"Nothing. Just thought you looked exactly like me."
+"Eh, what?"
 
-"...Well, we are brother and sister, so it's only natural we'd be alike."
+"Nothing. Just thinking you're exactly like me, Kaname."
 
-That's true, I suppose. Yui-san looks just like Yukiyasu-san too. Though I can no longer ruffle the hair of that head that's long since surpassed my own height, my little brother remains adorable no matter how old he gets.
+"...Well, we're siblings, of course we're alike."
 
-After much indecision, we ended up at a jewellery shop where he picked up a necklace. For my little brother, he has rather good taste. When I encouraged him by saying, "That's really cute, I think," he seemed to decide to buy it.
+Fair point — Yui-san and Yukiya-san look exactly alike too. I can't ruffle his hair anymore now that he's taller than me, but my little brother's still adorable, no matter how old he gets.
 
-It's for my adorable little brother, but why does my chest keep twinging? Everywhere we go, everything I see and hear pry open the drawers of memories, making my chest ache.
+After agonizing and agonizing, he finally landed on an accessory shop, and picked up a necklace. Not bad taste, for my own brother. *That's really cute, I think*, I said, nudging him along, and he seemed to settle on buying it.
 
-"...Big sis, you don't have a boyfriend? Did you leave him back in Japan?"
+It's for my sweet brother's sake, and yet — why does something ache, deep in my chest, the whole time? Everywhere we go, everything I see and hear pries open the drawer of memory, and my chest tightens, painful.
 
-Asked that suddenly, I faltered for just a moment.
+"...Sis, don't you have a boyfriend? Did you leave one back in Japan, maybe?"
 
-　I don't have a boyfriend, and what I left behind in Japan wasn't a man. I smiled and shook my head, saying, "Big sis isn't popular," to which he replied, "I don't think that's true," essentially.
+Asked so suddenly, I froze for just a beat.
 
-With his limited pocket money, he treated me to tea as a thank you. Then, on the way home, we stopped at a cake shop and bought just one shortcake to take back.
+No boyfriend, and what I left behind in Japan wasn't a man. Laughing, I shook my head. "Your sister's just not popular," I said, and Kaname replied, "I don't think that's true."
 
-　After I got back, neither Dad nor Mum asked me much about it. They must have known something had happened. But I had no intention of telling anyone about this.
+Out of his small allowance, Kaname treated me to tea as thanks. On the way home, we stopped by a cake shop and bought a single shortcake to bring back.
 
-I was afraid. Afraid that if I told someone, shared this pain, then this feeling would become a memory, and someday it would fade away without a trace.
+Since coming back home, neither my father nor my mother had pressed me for details. They must have understood, surely, that something had happened. But I had no intention of talking about it with anyone.
 
-I know it's contradictory. My chest hurts and it's painful, yet I don't want to forget this feeling.
+I was scared. Scared that telling someone, sharing this pain, would turn this feeling into nothing but a memory, and someday it would vanish without a trace.
 
-　The promise I made on Yui-san's birthday last year. Not keeping it was a thorn in my side.
+Contradictory, I know, even to myself. My chest aches, it's painful, and yet I don't want to forget this feeling.
 
-Returning to my room, I placed a candle in the shortcake I'd bought and lit it. Japan is ahead of us in time, so the date would change soon.
+The promise I'd made last year, on Yui-san's birthday. Not being able to keep it weighed on my heart.
 
-I stare intently at the second hand. I wonder who Yui-san is with right now. Is she home all alone? Did she think of me even for a moment? Such thoughts occupy my mind.
+*
+
+Back in my room, I stuck a candle into the shortcake I'd bought and lit it. Japan runs ahead of here in time, so the date there was about to change any moment now.
+
+I stared at the second hand. Who is Yui-san with, right now, I wonder. Is she home alone? Has she thought of me, even a little?
+
+Thinking that, I said it.
 
 "...Yui-san, happy birthday."
 
-The second hand points to twelve, and at the same moment, I blow out the candle.
+Right as the second hand swept past the top of the clock, I blew out the candle.
 
-May this feeling reach you faster than anyone else in the whole world.
+Please — let this feeling reach you faster than anyone else's in the whole world.

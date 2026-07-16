@@ -4,240 +4,265 @@ layout: episode
 nav_order: 1
 parent: Interlude
 sequence: 51
-title: Confirmation
+title: "Interlude: Comparing Notes"
 ---
-Confirmation
+## Interlude: Comparing Notes
 
-I realised I was attracted to women when I was in my first year of high school.
+\
+I first realized I loved women's bodies when I was a first-year in high school.
 
-She was a university student who came to our house as a tutor. From the moment I first saw her, I thought she was an incredibly lovely person.
+The university student who came to my house as my tutor — from the very first time I saw her, I thought she was impossibly lovely.
 
-She came to my house twice a week. With my brother having moved out and my father too busy with work to come home much, it was always just the two of us in the house.
+Twice a week, she'd come to my house. With my brother already out on his own, and my father too busy with work to come home properly, it was always just the two of us, alone.
 
-　I didn't know if she was homosexual like me.
+I don't know whether she was gay, the same way I was.
 
-Because I had fallen for her, I simply declared my feelings directly. When I realised our feelings were mutual, I felt as though I could fly to heaven.
+I'd simply fallen for her, and told her so, straight and without hesitation. When I learned the feeling was mutual, I felt like I was floating somewhere in heaven.
 
-We never studied at the desk. I'd whisper words of love to her as she tried to scold me, then push her down, and we spent most of our time together in bed.
+We never studied at the desk. I'd whisper love at her, pin her down, while she tried, every time, half-heartedly, to scold me back into working — and we spent nearly all our time together on the bed instead.
 
-I thought it didn't matter if I didn't study, since I was going to transfer internally anyway.
+Since I was on track for internal promotion anyway, I told myself studying didn't even matter.
 
-　After all, she was four years older than me and would graduate the year I started university.
+Because she was four years older than me, and she'd graduate the same year I started college.
 
-That’s what I thought, but when she suggested I apply to the same university, I changed my plans without a second thought. That’s how much I loved her.
+That's what I'd thought. But when she suggested I take the entrance exams for the same university, I changed my whole path without a second thought. That's how much I loved her.
 
-　Even now, I have memories that haunt my dreams. My eighteenth birthday. The day my father announced my engagement.
+*
 
-I simply couldn't bring myself to tell the father who had raised me alone that I loved women. I still remember vividly the pain in the palm of my hand, clenched tightly in my lap.
+Even now, there's a memory I still see in dreams. My eighteenth birthday. The day my father told me about the engagement.
 
-If I told him, perhaps he might accept it. But what if he didn't?
+I could never bring myself to tell the father who'd raised me alone that I loved women. I still remember, vividly, the ache of my own palms, gripped tight in my lap.
 
-　In Japan today, same-sex marriage isn't possible. Naturally, having children is out of the question. Could he truly accept it without opposition? I couldn't even imagine it.
+If I told him, maybe he'd accept it. But what if he didn't?
 
-Wouldn't it only hurt Father more? He must already be deeply regretting losing Mother, and falling out with Yuki-nii.
+Same-sex marriage isn't legal in Japan right now. Naturally, no children either. Would he really accept it, without opposing it at all? I couldn't even imagine it.
 
-I understand marriage is unavoidable. My parents, my grandparents – they've all married that way for generations.
+Would this only hurt my father more? He'd already lost my mother, already broken things with Yuki-nii — he had to be carrying such deep regret over both already.
 
-　Perhaps he sensed my gloomy expression. Father spoke to me gently, as if trying to reason with me.
+I understood that marriage was simply something I had to accept. My parents, my grandparents — they'd all married this way, for generation after generation.
 
-"Yui, you might feel conflicted now. But rest assured. Though Mum and I were married by our parents' arrangement, we truly loved each other. I was genuinely happy to be with her. So you, Yui, will absolutely find happiness too."
+Maybe my troubled expression showed. My father spoke to me, gently, as if trying to reassure me.
 
-Hearing that — I simply couldn't say anything more.
+"Yui, I know this might feel complicated right now. But don't worry. Your mother and I had a marriage our parents arranged too, and we genuinely loved each other. I was truly happy, being able to spend my life with her. So you'll definitely find happiness too, Yui."
 
-When I told her we were getting engaged, she smiled with a look of complexity.
+Once he'd said that — there was nothing left I could say.
 
-I didn't want to lie. And partly, I hadn't given it much thought, thinking marriage was still so far off.
+*
 
-For me at eighteen, the promise of graduating university, entering the workforce, and then several more years down the line felt like an unimaginably distant future.
+When I told her I'd gotten engaged, she smiled, complicated.
 
-It'll be fine, there's time. We can still be together. I genuinely believed that.
+I hadn't wanted to lie to her. And besides, marriage was still so far off, so I hadn't given it much serious thought.
 
-　Why couldn't I see that for her, a fourth-year university student, it was a reality looming right before her eyes?
+To eighteen-year-old me, graduating college, becoming a working adult, and then some promise even further beyond that — it felt like some impossibly distant future, too far away to even imagine.
 
-That naivety was probably my downfall.
+It's fine, there's still time. We can still stay together. I genuinely believed that.
 
-I loved the taste of her tinted lipstick, her feminine, soft figure. I couldn't resist the way her fingers dug into my back through my blouse when she clung to me.
+Why couldn't I understand — that to her, a fourth-year student, that future was already bearing down on her, close, real?
 
-　We promised to be together, but all we ever did was have sex.
+That immaturity, I think, was the real reason I lost her.
 
-As a high schooler, there was almost nothing I could do for her.
+*
 
-I wanted to do everything within my power for her. I wished desperately to grow up quickly.
+I loved the taste of her tinted lipstick, the softness of a woman's body. The way her fingers, clinging to me, dug into my back through my blouse — I loved that unbearably too.
 
-Even though I felt that way, strangely, not a single tear fell, even on the night she left me.
+We'd promised to date, but all we'd ever actually done was have sex.
 
-That day. I remember when she told me goodbye, crying.
+There was almost nothing a high schooler like me could actually do for her.
 
-"Yui-chan and I aren't a good match."
+I wanted to do everything I possibly could for her. I wished, desperately, to grow up faster.
 
-What didn't match? I just stood there silently, not even wiping away the tears falling from those eyes I loved so much.
+Even believing that, the night she left me, strangely, no tears came at all.
 
-Ah, I see. So I couldn't make this person happy.
+*
 
-That makes sense. Nobody wants a love affair with an expiry date, where you can't promise a future.
+That day. I remember it, being told, through tears, that it was over.
 
-It felt like reality had been thrust upon me.
+"You and I don't match, Yui-chan."
 
-　I've always been sensible. I didn't chase after her when she walked away so easily.
+Don't match — in what way? I just watched, silent, as tears spilled from those eyes I'd loved so much, without even wiping them away.
 
-Spilt milk can't be put back in the bowl. There's nothing I can do about it now.
+Ah, I see. So I can't make this person happy.
 
-I learned the weight of the word 'engagement' the hard way.
+Well, that made sense. Nobody chooses a love with an expiration date, no promise of a future, willingly.
 
-Even though she told me she loved me so much, she left so easily. Perhaps her feelings weren't that strong after all.
+It felt like reality had been shoved straight in my face.
 
-　I thought we could stay together a little longer. I never imagined parting would come so abruptly.
+I'd always been quick to understand things, even as a kid. I didn't chase after her as she walked away, so easily.
 
-I barely studied, yet I passed my chosen university entrance exam without much trouble. I hadn't felt particularly joyful, thinking I could just advance internally if I failed.
+Spilled water doesn't return to the tray. There's nothing to be done about it now.
 
-What meaning is there in entering university without her?
+I learned, painfully, exactly how much weight the word "engagement" actually carried.
 
-Feeling utterly hollow, I was taken to a jewellery shop by Shinji as a celebration of my passing the exam, where he presented me with an engagement ring.
+She'd said, so many times, that she loved me — and yet she left this easily. Maybe her feelings had never been that strong to begin with.
 
-　When the ring was slipped onto the ring finger of my left hand, the hand that loved her, I cursed my left-handedness for the first time.
+I'd thought we'd have more time together. I never imagined a goodbye this abrupt could come.
 
-I suppose I simply cannot stop loving women. Shinji isn't a bad person either. But loving men is something I just cannot do.
+*
 
-I don't know why. Because it's been like this since I was born. I was born this way. It wasn't my choice.
+Despite barely studying at all, I passed my target school's entrance exam easily. I hadn't been especially happy about it — I'd figured, if I failed, I could just take the internal promotion instead.
 
-Even while gazing at the engagement ring given to me, I imagined a future where I would buy one for someone else.
+What was even the point, entering a university without her in it?
 
-　The urge to give far outweighs the desire to receive.
+Hollow, empty, I let Shinji take me to a jewelry shop to celebrate passing my exams, and there, he gave me an engagement ring.
 
-I'd rather buy the ring than have it bought for me, and the same goes for sex. I'd rather hold someone than be held.
+*
 
-I wasn't entirely without guilt when I pushed him away as he leaned in for a kiss, or when I desperately told him I didn't want anything like that until we were married.
+The moment that ring slid onto the ring finger of the hand I'd used to love her, I cursed, for the first time, the fact that I was left-handed.
 
-But surely a little bit is permissible?
+I probably can't stop loving women. It's not that Shinji's a bad person. But I simply cannot love a man, no matter what.
 
-　For just those four years of university life, I could be my true self — the woman who loved women.
+I don't know the reason. It's just how I was, from the moment I was born. Born this way. Not something I ever chose.
 
-In exchange, I vowed never to have a lover again.
+Even while looking at the engagement ring given to me, I found myself imagining, instead, a future where I bought one for someone else, someday.
 
-—That pale blue box from Shinji has remained unopened ever since.
+The desire to give is always so much stronger in me than the desire to receive.
 
-I thought I might want to give one to someone someday. But since that would surely never happen, I bought myself a necklace in a red box instead. That was always my vow.
+Even with rings — I'd rather buy one than be given one. Sex, too. I'd rather hold someone than be held.
 
-　When I became a university student, I stopped hiding that I was homosexual. I was surprised by how many girls approached me – far more than I’d imagined.
+Pushing away Shinji when he tried to kiss me, telling him, in a moment of desperation, that I didn't want anything like that until we were actually married — it wasn't as if I felt no guilt over any of that.
 
-I didn’t mind the hassle; any cute girl would do. Each time it happened, the pain became just a memory.
+But surely, a little of this could be forgiven.
 
-It doesn’t hurt anymore.
+Just these four years of college, being allowed to be my real self — the one who loves women.
 
-After that love – which couldn’t really be called love – ended, I felt like I was at the very bottom of the deep, deep sea.
+In exchange, I swore firmly to myself: never again would I let myself have a girlfriend.
 
-Four years of university would pass in the blink of an eye.
+—That pale blue box Shinji gave me, I've never once opened it since.
 
-　The time I could touch a woman's body was also running out.
+Someday, I thought, I'd like to give something like that to someone myself. But since that will surely never come true, I bought myself a necklace in a red box instead. That, always, was my own vow to myself.
 
-Just as I was about to enter my third year, my father contacted me. He said there was a girl he wanted to have live with me in the house where I lived alone.
+*
 
-The daughter of a friend of my father's. Apparently, she was set to enrol at the same university starting in spring. I replied that there was a spare room and it was fine by me.
+Once I started college, I stopped hiding that I was gay. Far more girls than I ever expected came flocking toward me, and it startled me.
 
-When I went to pick her up at the airport and met Kanata for the first time, I thought, 'You've got to be joking.'
+As long as they didn't want anything complicated, any cute girl would do. Repeating it over and over, the pain slowly turned into nothing but memory.
 
-I hadn't been told such a lovely girl would be coming.
+It didn't hurt anymore.
 
-Living with her for four years will be quite tough, I thought.
+A love that couldn't even be called love had ended, and I sank down to the very bottom of a deep, deep sea.
 
-Someday my bad habits will be discovered. Thinking about how she'd react then made me feel a little scared.
+Four years of college would surely pass in the blink of an eye.
 
-I'd sworn so firmly to myself, "I won't fall seriously in love." That vow crumbled away in an instant.
+Only a little longer left, being able to touch women's bodies.
 
-　Her smile is adorable. The way she pretends to be aloof yet craves affection, the sweet tone she uses when asking for something, her slightly stubborn side – it's all so endearing, so utterly endearing I can't bear it.
+*
 
-She genuinely tried to understand me. She tried to be there for my pain.
+Right as I was about to become a third-year, my father called me. He said there was a girl he wanted to live with me.
 
-Kanata pulled me up from the deepest, darkest depths of the sea with astonishing ease.
+The daughter of a friend of his. Set to enter the same university that spring. I had a spare room, so I said sure, why not.
 
-Serious, sincere, the complete opposite of me.
+The moment I went to the airport and met Kanata for the first time, I thought — you've got to be kidding.
 
-　She tried so hard to peer into the depths of my shallow heart, built up with lies and evasions.
+Nobody told me someone this cute was coming.
+
+Living four years with this girl is going to be genuinely rough, I thought.
+
+Someday my bad habits would come to light. Imagining how she'd react, when that day came, scared me, just a little.
+
+*
+
+I'd sworn so firmly to myself — no serious love, not ever again. And that vow crumbled apart, embarrassingly easily.
+
+Her smile, so cute. That prickly exterior, hiding someone who secretly wanted to be spoiled. The sweet edge in her voice whenever she wanted something. The way she's just a little too stubborn to be honest. All of it — unbearably, endlessly precious to me.
+
+She tried, genuinely, seriously, to know me. Tried to sit with my pain, close beside it.
+
+Me, sunk at the very bottom of that deep, deep sea — Kanata pulled me up, so easily.
+
+Earnest, sincere, the exact opposite of me.
+
+She tried, with everything she had, to see straight into the depths of my heart, built up thin and hollow out of lies and deflection.
 
 I fell in love with that Kanata.
 
-Just one word from her – 'Don't go' – and I couldn't move a step from here.
+Just one word from her — *don't go* — and I couldn't move a single step from that spot.
 
-I truly felt grateful this girl was straightforward. It was fine for it to be just a one-sided crush. I thought that if this love were to be reciprocated, this time I truly wouldn't be able to recover.
+I was genuinely, deeply grateful this girl was straight. An unrequited love was enough. If this love ever actually came true, I don't think I'd ever be able to recover, not this time.
 
-　If I could just create happy memories, I could live on no matter what happened from here on.
+If I could just build happy memories with her, I felt like I could keep living, no matter what came after.
 
-I thought Kanata was the last gift God gave to pitiful me.
+I thought — Kanata must be some final gift, from God, to someone as pitiable as me.
 
-I wouldn't be so greedy as to want her heart too. As long as I loved her, it didn't matter if she didn't love me back.
+I wasn't greedy enough to want her heart too. It was enough that I loved her — it didn't matter if she didn't love me back.
 
-Truthfully, I knew. Kanata was different from the others.
+*
 
-　I shouldn't have touched her. Even if our feelings had been mutual, the day would come when I'd hurt Kanata.
+But really, I already knew. Kanata was different from every other girl.
 
-Even if we were happy now. The day would come when I'd make this girl I adored cry.
+I shouldn't have touched her. Even if our feelings connected, someday, without fail, a day would come when I'd hurt her.
 
-So, if I loved her, I shouldn't have done this.
+Happy now, sure. But a day would come when I'd make this girl I love so much cry.
 
-I knew it all, every single bit.
+So, if I truly loved her, I shouldn't have done any of it.
 
-Once I'd touched her, it was over. After that, it was like tumbling off a cliff – my feelings just kept swelling, accompanied by pain.
+I knew all of it. Every single bit.
 
-　I couldn't help but love her. Even knowing my own dishonesty would wound her deeply.
+But once I'd touched her, just once, there was no going back. After that, it was like tumbling off a cliff — my feelings just kept swelling, growing, dragging pain along with them the whole way down.
 
-I wanted to give her everything I could offer now.
+I couldn't help but love her. Even knowing that this unfaithfulness of mine would wound her, deeply.
 
-I've never once regretted loving a woman. But I've often wondered what future might have been possible had we been born into different circumstances.
+I wanted to give Kanata everything I had, right now, all of it.
 
-Yet simply gazing at her sleeping face beside me fills me so completely.
+I've never once regretted loving women. But I've wondered, over and over, what future I might have drawn, if I'd simply been born into different circumstances.
 
-When I wake tomorrow, if you're beside me, I need nothing else.
+Just watching her sleeping face beside me was enough to fill me completely.
 
-I was supposed to be the sensible type.
+If you were there beside me, waking up tomorrow, I wouldn't need anything else at all.
 
-The day Kanata left. When Ritsu asked if I was truly sure I didn't want to stop her, dragged along to the airport, my legs gave way and I couldn't move.
+*
 
-Sensible? That was a lie. That I didn't need to be loved? A colossal lie.
+I was supposed to be the type who understood things quickly.
 
-　I was terrified of hurting her more, of being hurt more. Terrified beyond endurance.
+The day Kanata left. Ritsu asked me, dragging me practically by force to the airport — was I really sure I shouldn't stop her? — and once we got there, my legs simply gave out, and I couldn't move at all.
 
-Even though I loved her so much it hurt, chasing after her and trying to stop her now, I couldn't do anything.
+Understanding things quickly — that was a lie. Saying it didn't matter if she never loved me back — that was an enormous lie.
 
-I couldn't even make a promise.
+I was terrified. Terrified of being hurt any further, and terrified of hurting her any further too. Terrified, unbearably.
 
-Kanata isn't homosexual. It's my fault she became this way. Because I fell in love with her. I twisted her pure heart.
+I love her, I love her so much, and yet even if I chased after her, held her back — right now, there's nothing I can actually do.
 
-　It was utterly selfish. My whims deeply wounded her.
+I can't even give her a promise.
 
-Because I wished for even a moment of happiness for her.
+Kanata isn't gay. This happened because of me. Because I fell in love with Kanata. I twisted someone pure, warped her, entirely for my own sake.
+
+I was far too selfish. My own selfishness wounded her, deeply.
+
+Because I'd allowed myself to wish, even briefly, for a little happiness of my own.
 
 Kanata is different from me.
 
-I mustn't pursue her any further. It would only hurt her.
+I shouldn't chase her any further. It would only hurt her more.
 
-I know this, so why am I now, undeterred, watching the departing aeroplane?
+I know that. So why, even now, am I standing here, hopeless, watching the plane fly away?
 
-My hand, clutching the returned necklace, hurts.
+The hand still gripping the returned necklace aches.
 
-　I realise my vision is blurred because I'm crying.
+My vision blurred, and I realized — I was crying.
 
-I think to myself, how stupid. If I cry, I won't even be able to watch her plane disappear.
+*What an idiot*, I thought, even of myself. Crying like this, and I can't even properly watch the plane carrying her away disappear.
 
-Thud. Someone slaps my back hard.
+A hard slap landed on my back.
 
-"...What are you crying for? Over one little heartbreak? Serves you right for making so many women cry all this time."
+"...What are you crying for, over one measly heartbreak. Karma, for all the girls you've made cry, up till now."
 
-Despite always swearing like a trooper, it was Ritsu's gentle voice. I propped up my body, threatening to collapse, with what little pride I had left.
+Ritsu's voice, gentle despite her usual sharp tongue, reached me. I braced my collapsing body with whatever scraps of pride I had left.
 
-　I know.
+*
 
-Spilt milk cannot be put back in the bowl. It's too late now. There's nothing I can do.
+I know.
 
-There were so many things I truly wanted to say.
+Spilled water doesn't return to the tray. There's nothing to be done about it now.
 
-Time and time again, I swallowed them down, swallowed them down, and poured every ounce of my feeling into those words: "I love you."
+There were so many words I actually wanted to say to her.
 
-Not a single bit of this feeling is a lie.
+Over and over, I swallowed them back, swallowed them back, and poured every last bit of feeling I had into that single word — "I love you" — every time I said it.
 
-It was pathetic, and tears came. I hated myself for being so powerless, unable to do anything.
+Not a single part of that feeling was ever a lie.
 
-　If only God would grant me one more chance.
+It felt so pathetic, tears came. I hated my own helplessness, unbearably, for being unable to do a single thing.
 
-I would do anything. I swear I'd never hurt that girl again.
+If God ever gave me just one more chance—
 
-If we ever meet again someday, then — surely.
+I'd do anything. I swear I would never hurt that girl again.
+
+If we ever meet again, someday — then, surely—
