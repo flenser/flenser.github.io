@@ -4,7 +4,7 @@ layout: episode
 nav_order: 10
 parent: Second year as a working adult, spring
 sequence: 64
-title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
+title: "Episode Sixty: Be Careless Like That Again, and Next Time I'll Really Eat You Up"
 ---
 ## Episode Sixty: Be Careless Like That Again, and Next Time I'll Really Eat You Up
 

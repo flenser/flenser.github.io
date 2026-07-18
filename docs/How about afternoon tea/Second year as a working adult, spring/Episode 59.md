@@ -4,7 +4,7 @@ layout: episode
 nav_order: 9
 parent: Second year as a working adult, spring
 sequence: 63
-title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
+title: 'Episode Fifty-Nine: Break It Off, Right Now'
 ---
 ## Episode Fifty-Nine: Break It Off, Right Now
 

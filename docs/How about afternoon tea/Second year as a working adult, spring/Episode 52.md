@@ -4,7 +4,7 @@ layout: episode
 nav_order: 2
 parent: Second year as a working adult, spring
 sequence: 56
-title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
+title: "Episode Fifty-Two: Don't You Want Sushi?"
 ---
 ## Episode Fifty-Two: Don't You Want Sushi?
 

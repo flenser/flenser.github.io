@@ -4,7 +4,7 @@ layout: episode
 nav_order: 6
 parent: Second year as a working adult, spring
 sequence: 60
-title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
+title: "Episode Fifty-Six: This Time, Let's Both Beat Yui Up Properly"
 ---
 ## Episode Fifty-Six: This Time, Let's Both Beat Yui Up Properly
 
