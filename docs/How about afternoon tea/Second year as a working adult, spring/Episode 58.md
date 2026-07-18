@@ -12,7 +12,7 @@ title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
 The weekend. With the welcome party for the former Web Production Division being held, I finished up work and headed toward the hotel venue with Mitsuya-san and Seno-san.\
 Two stops by train from the head office, and not far from the station once we got off, so the three of us walked together.
 
-Yamasato-san couldn't make it, having to pick her kid up from daycare, and I couldn't help feeling a small twinge of anxiety about the buffer between Mitsuya-san and Seno-san being absent.
+Manager Yamasato couldn't make it, having to pick her kid up from daycare, and I couldn't help feeling a small twinge of anxiety about the buffer between Mitsuya-san and Seno-san being absent.
 
 "Aozawa-san, do you have a boyfriend? You must, you're cute."
 
