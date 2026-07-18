@@ -4,7 +4,7 @@ layout: episode
 nav_order: 4
 parent: Second year as a working adult, spring
 sequence: 58
-title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
+title: "Episode Fifty-Four: What's Going to Happen to Us From Here?"
 ---
 ## Episode Fifty-Four: What's Going to Happen to Us From Here?
 

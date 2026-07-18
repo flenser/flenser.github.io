@@ -4,7 +4,7 @@ layout: episode
 nav_order: 3
 parent: Second year as a working adult, spring
 sequence: 57
-title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
+title: 'Episode Fifty-Three: I Just Thought — Maybe This Is Fate'
 ---
 ## Episode Fifty-Three: I Just Thought — Maybe This Is Fate
 

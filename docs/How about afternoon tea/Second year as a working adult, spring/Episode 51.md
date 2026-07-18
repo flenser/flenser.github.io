@@ -4,7 +4,7 @@ layout: episode
 nav_order: 1
 parent: Second year as a working adult, spring
 sequence: 55
-title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
+title: "Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup"
 ---
 ## Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup
 
