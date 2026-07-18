@@ -1,186 +1,193 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 1
 parent: Second year as a working adult, spring
-sequence: 54
-title: 'Episode 51: Clam Soup It Is for Lunch Today'
+sequence: 55
+title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
 ---
-Episode 51: Clam Soup It Is for Lunch Today
+## Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup
 
-Right then, once more. Kanata, happy birthday!
+\
+"Alright, once more, properly this time. Kanata, happy birthday!"
 
-She raised her mug of lemon sour, brimming to the brim, and clinked it against the beer mug offered to her.
+I clinked my brimming lemon sour against Yuuri's outstretched beer mug.
 
-A satisfying clink echoed, and then Yuri gulped the beer down into her stomach.
+After a crisp, satisfying clink, Yuuri tipped the beer back, gulping it down eagerly.
 
-　Yuri's hair, which had been dyed all sorts of colours like gold and silver during university, had settled into a much calmer shade since she'd entered the workforce. We'd changed just a little since those days.
+Yuuri's hair, dyed all kinds of colors back in college — gold, silver, everything — had settled into a proper, calm color now that she was a working adult, and we'd both changed, a little, since those days.
 
-"Thanks for celebrating with me again this year."
+"Thanks for celebrating my birthday again this year."
 
-"It's fine, it's fine. Let's eat and drink to our hearts' content. It's on me today."
+"No worries, no worries. Eat and drink as much as you want, I'm treating today."
 
-The alcohol seeped into my tired body. In the spring of my second year as a working adult, now twenty-four, I still couldn't handle beer, but I'd grown into a reasonable adult. Compared to my first year, I felt I'd gained a little more ease.
+Alcohol soaked pleasantly into my worn-out body. Second spring as a working adult, twenty-four years old now — I still couldn't drink beer, same as always, but I'd grown into a proper adult, in my own way. Compared to my first year working, I think I'd finally gained a little breathing room.
 
-"How's work lately, Kanata? Busy?"
+"How's work going lately, Kanata? Busy?"
 
-"Hmm, a bit hectic at the start of the month, but otherwise I'm getting home on time. What about you, Yuri?"
+"Mm, start of the month's a bit hectic, but the rest of the time I get to leave on schedule. What about you?"
 
-"Me? Still plenty of overtime, but it's enjoyable, so I manage somehow."
+"Overtime's still heavy for me, but it's fun, so I manage somehow."
 
-　After a year studying abroad, I returned to Japan and joined an IT-related venture company after graduating university. That said, I was assigned to the administrative department, so I was enjoying a fairly relaxed working life.
+After a year studying abroad, I'd come back to Japan, and once I graduated university, I took a job at an IT startup. Assigned to the administrative department, though, so I've been living a fairly comfortable working life.
 
-Yuri and I remained as close as ever after graduating university. No matter how busy we were, we always managed to meet up like this at least once a month.
+Yuuri and I have stayed just as close since graduating, and no matter how busy things get, we always make sure to see each other like this, once a month, without fail.
 
-We'd vent to each other, offer comfort, and somehow got through that whirlwind first year of working life together.
+Venting to each other, comforting each other, we'd somehow made it through the whirlwind of our first year working.
 
-　The drinks after work are truly delicious. Yuri, who can hold her drink better than me, already has half her mug gone.\
-After setting her mug down on the table, Yuri suddenly clapped her hands as if remembering something.
+A drink after work really is delicious. Yuuri, who holds her liquor far better than I do, had already drained her mug about halfway.\
+Setting her mug down on the table, Yuuri suddenly clapped her hands, like something had just occurred to her.
 
-"Come to think of it, I saw Ritsu the other day for the first time in ages. She's been transferred back here. Still seems busy as ever, was huffing and puffing."
+"Oh, right, I ran into Ritsu-san the other day, for the first time in ages. She got transferred back here. Still busy as ever, groaning about it the whole time."
 
 "Really? So Ritsu-san's back in Tokyo. I'd love to see her too..."
 
-After graduating university, Ritsu-san joined a major bank and her first posting was apparently in Osaka. Yuri seemed to have visited her a few times, but I never managed to see her even after returning to Japan.
+After graduating, Ritsu-san had gone to work for a major bank, apparently with her first posting in Osaka. Yuuri had gone to see her a few times, but even after I got back to Japan, I never managed to catch her.
 
-Time really does fly. It's been nearly four whole years since I returned to England.
+Time really does move fast. It's been a full four years now since I left for England.
 
-The days after parting ways with Yui were hellish.
+The first stretch after I'd parted from Yui-san had been genuinely hellish.
 
-Even so, the pain gradually faded with time, leaving only beautiful memories that still linger within my heart.
+Even so, the pain had gradually faded with time, leaving behind only the beautiful memories, still sitting in my heart even now.
 
-Yuri told me, "Stop dwelling on it forever and find a new love," and after returning to Japan, she dragged me along to several matchmaking parties. But since then, my heart seemed to have frozen solid. No matter how attractive the person trying to woo me was, my heart didn't flutter in the slightest.
+Yuuri kept telling me not to dwell on it forever, to find someone new, and dragged me to a few mixers after I got back to Japan — but my heart had apparently frozen solid ever since, and no matter how good-looking a man tried to court me, nothing in me so much as stirred.
 
-"Yuri, I'll be counting on you for my birthday next year too, alright?"
+"Yuuri, same time next year for my birthday, okay?"
 
-At that, Yuri gave a mischievous grin.
+At that, Yuuri gave a sly, teasing grin.
 
-"...You know, Kanata, you really ought to get yourself a boyfriend soon."
+"...Kanata, seriously, isn't it about time you got a boyfriend?"
 
-"Don't make it sound so simple. It's not something you can just decide to do, you know."
+"Don't say it that easily. It's not something you can just decide to make happen."
 
-Since Yuri is close with Ritsu-san, she surely must know what Yui-san is doing now.
+Yuuri's close with Ritsu-san, so she surely isn't entirely in the dark about what Yui-san's up to these days.
 
-　But since returning to Japan, we hadn't once spoken Yui's name aloud.\
-This autumn, Yui will turn twenty-six. I don't want to think about it, but she might already be married. I know Yuri's right – I should move on.
+But not once, since coming back to Japan, had either of us ever brought up Yui-san's name.\
+This autumn, Yui-san turns twenty-six. I don't want to think about it, but she might already be married by now, and I know, just like Yuuri says, that I should really move forward.
 
-Even so, I still spend my days clutching my worn-out orca soft toy as I sleep.
+Even so, I still spend my nights the same way I always have — hugging my worn-out orca to sleep.
 
-　I downed a lemon sour in one gulp, hoping to drown out the unpleasant feelings. Come spring, the pain I thought I’d forgotten would occasionally resurface.\
-Whether she knew it or not, Yuri, sitting right in front of me, celebrated my birthday like this every year. I was truly saved by her kindness.
+I tipped back the lemon sour, trying to chase the unpleasant feeling away. Every spring, the pain I thought I'd forgotten comes creeping back.\
+Whether she knows it or not, Yuuri, right in front of me, celebrates my birthday like this every single year, and her kindness genuinely saves me, every time.
 
 ＊＊＊
 
-　The next day, having met Yuri for the first time in ages and gotten overly excited, I ended up drinking too much. True to form, I was hungover, clutching my throbbing temples as I made my way to work.
+The next day, having gotten carried away and had far too much to drink catching up with Yuuri, I woke up predictably hungover, and dragged myself into work pressing at my throbbing temple.
 
-I arrived at the office at 8:53. Having walked slowly from the nearest station, I was cutting it rather fine.
+I made it to the office at 8:53 — I'd walked slowly from the station, so it was cutting it pretty close.
 
-I held my employee ID card up to the attendance system terminal and opened the office door.
+Holding my employee ID card up to the time-clock terminal, I opened the office door.
 
 "Good morning..."
 
-"Ah, Aosawa-chan, good morning!"
+"Ah, Aozawa-chan, morning~"
 
-Mitsuya-san, the woman seated next to my desk, raised her hand. She was two years my senior and had been my mentor for the previous year.
+Mitsuya-san, the woman who sits next to my desk, raised a hand in greeting. She's two years above me, and had been my training supervisor my whole first year here.
 
-　This company has a casual dress code, so you can basically wear whatever you like, but Mitsuya-san always wore a crisp jacket. Her shoulder-length dark brown hair was glossy, with the ends always perfectly trimmed. She gave off the impression of a woman who was thoroughly competent at her job.
+The company's dress code is casual, so technically anything goes, but Mitsuya-san always wears a crisp, sharp jacket, her shoulder-length dark brown hair glossy, ends always perfectly even. She gives off a real "competent working woman" impression.
 
-Those slanted eyes seemed a bit intimidating at first, but that impression vanished within a week of joining the company. She's easy-going and a really nice lady.
+Her sharp, narrow eyes had intimidated me a little at first, but that impression evaporated within a week of joining. She's easygoing, genuinely a good person.
 
 "Good morning, Mitsuya-san."
 
-"You look a bit down today. Feeling unwell?"
+"You seem low-energy. Feeling okay?"
 
-"Just a bit hungover..."
+"A little hungover..."
 
-"Well then, that means clam soup for lunch today, for Aosawa-chan’s sake."
+"Then today's lunch is definitely clam miso soup, for Aozawa-chan's sake."
 
-Saying that, Mitsuya-san flashed a bright smile, revealing her white teeth.
+Mitsuya-san said it, flashing a bright, toothy grin.
 
-Clam soup, huh? That must mean that set meal place we always go to. In that case, I’ll have the fried horse mackerel set today, I thought to myself as I pressed the power button on my laptop.
+Clam miso soup, huh — must mean that set-meal place we always go to. In that case, I'll get the fried horse mackerel set today, I thought, and pressed the power button on my laptop.
 
-"Aosawa-chan, the data’s come through from Accounting, so I’ll share it with you. Can you submit the monthly report to the manager by midday?"
+*
 
-"Yes, no problem. I'll have it done before lunchtime."
+"Aozawa-chan, the data's in from accounting, sharing it with you now. Can you get the monthly report to the manager before lunch?"
 
-My role in the Management Control Team mainly involves analysing various financial statements from Accounting and managing budgets.
+"Yes, no problem. I'll finish before noon."
 
-This period after the accounting close, when the data comes through, is the busiest.\
-Checking the shared data, I couldn't help but sigh. Oh dear, another deficit this month.
+The management team I belong to mainly analyzes the various financial statements coming up from accounting and manages the budget.
 
-　This company has multiple IT-related businesses, but the "Web Production Division" I belong to has been operating at a loss since before I joined.
+This period, right after accounting closes and the data comes in, is always the busiest stretch.
 
-Selling, general and administrative expenses are tracking within budget each month, but the crucial sales figures are utterly hopeless. They routinely fall a full ten per cent below budget.\
-Our job is budget management, so when the very foundation is crumbling, we're pretty much powerless.
+Checking the shared data, a sigh slipped out of me without meaning to. Right — another loss this month too.
 
-"Same old story this month, eh?"
+The company runs several IT-related business lines, but the "Web Production Division" I'm part of has been running an operating loss consistently, even before I joined.
 
-"Yeah. They seem to be trying to turn things around, but it's not really showing any effect. It's the third year now, so I'm thinking of putting in a transfer request myself."
+Overhead's tracking to budget every month like clockwork, but the crucial part — revenue — is a mess. Coming in a full ten percent below budget, without fail.\
+Our whole job is budget management, so once the foundation itself has collapsed like this, there's really nothing left to do.
+
+"Same as always this month, huh."
+
+"Yeah. They're apparently trying countermeasures, but the effect's barely visible. Third year running now, so I'm thinking I might actually submit a transfer request soon."
 
 "Eh?"
 
-Hearing that out of the blue, I instinctively stopped typing and turned around.\
-A transfer? No way. The Web Production Division is quite compact compared to others, and within that, the Management Control Team consists of just three people: the manager, myself, and Mitsuya-san.
+She said it so suddenly that I stopped typing and turned to look at her.\
+A transfer — no way. The Web Production Division is pretty compact compared to the others, and even within it, the management team is just three people: the manager, me, and Mitsuya-san.
 
-The thing is, this division has been shrinking year by year. From the company's overall perspective, it's not a department with particularly heavy operational weight, so it tends to be where young staff are assigned, partly for training purposes.
+The division's been shrinking year over year, carrying relatively little weight in the company as a whole, which is exactly why it tends to get new hires assigned here for training.
 
-"But... Mitsuya-san, please don't leave me behind."
+"No way... Mitsuya-san, please don't leave me behind here."
 
-As I clung to her, she glanced around nervously for a moment before beckoning me over with a few quick gestures. Wondering what was up, I hurriedly pulled my chair closer. Then Mitsuya-san began whispering in my ear.
+Clinging, I said it, and she glanced around briefly, then waved me over with a little beckoning gesture. Confused, I scrambled to pull my chair closer, and Mitsuya-san leaned in, whispering right at my ear.
 
-"Just between us... apparently our division's in a bit of a fix. There's all sorts of rumours going round – about shutting it down, selling it off, you name it."
+"Just between us... apparently our division's in pretty rough shape. There's talk floating around about shutting the business down, or selling it off, all kinds of rumors."
 
-"Huh!?"
+"Eh!?"
 
-Just when I thought I'd finally got the hang of the job after a year, hearing that whispered suddenly made me gasp out loud. "Shhh," Mitsuya-san admonished, raising her index finger, so I hurriedly covered my mouth with both hands.
+Just when I'd finally started getting the hang of the job after a full year — hearing something whispered like that so suddenly, a loud sound escaped me before I could stop it. Mitsuya-san shushed me, holding up a finger in warning, and I scrambled to clap both hands over my mouth.
 
-"You'd better submit a transfer request soon, Aosawa-chan. At the next personnel review, perhaps."
+"Aozawa-chan, you should probably put in a transfer request early too. Maybe at the next personnel review."
 
-Even if you say so... My shoulders slumped dejectedly as I turned back to my computer. This company has a free-spirited culture, good communication, and is generally easy to work for, but it seems I wasn't blessed with a favourable assignment.
+Easy for her to say. Shoulders slumping, I turned back to my computer. This company has a free, open culture, easy to work in — but it seems I just got unlucky with my assignment.
 
-What will become of my position...? While pondering this, I could only mechanically complete my morning tasks in a blue mood.
+*What's going to happen to my position...* I thought, gloomy, plodding through the morning's tasks with no other option.
 
-"Aosawa-chan, can you get out for lunch soon?"
+*
 
-Just as the clock hands pointed to twelve, Mitsuya-san snapped her laptop shut. Following suit, I closed mine too.
+"Aozawa-chan, ready for lunch soon?"
 
-"Ah, Mitsuya-san, I'll catch up shortly, so please go ahead. The manager asked me to run an errand for the accounting department, so I'll drop by there first."
+Right as the clock hands hit twelve, Mitsuya-san snapped her laptop shut. Following her lead, I closed mine too.
 
-"Right then, I'll wait downstairs in the entrance hall."
+"Ah, Mitsuya-san, go ahead, I'll catch up. Manager asked me to run something down to accounting, so I'll swing by there first."
 
-I gathered the receipts handed to me by the manager earlier when I submitted the monthly report, slipped them into a clear folder, tucked it under my arm, and hurried down to the floor below.
+"Okay, I'll wait at the entrance."
 
-Our manager doesn't seem to get on well with the accounting department staff, so I'm always shuttling between floors like a carrier pigeon. It has helped me get on well with the accounting staff, though.
+I gathered up the receipts the manager had handed me earlier, along with the monthly report submission, into a clear folder, tucked it under my arm, and hurried down to the floor below.
 
-　I'd only intended to drop off the receipts today, but ended up wasting a bit of time chatting about trivial matters.
+Our manager doesn't seem to get along well with the accounting team, so I always end up as the go-between, shuttling between floors like a carrier pigeon. Though thanks to that, I've gotten friendly with everyone in accounting.
 
-I had to hurry because I was keeping Mitsuya-san waiting downstairs. I pulled my smartphone from my pocket to send a message and hurried towards the lift at a trot.
+I'd only meant to drop off the receipts today too, but got pulled into some casual small talk and ended up losing more time than planned.
 
-Because I was staring intently at my phone screen, I didn't notice someone appearing from around the corner until it was too late. We collided head-on with a solid thud, and I stumbled back involuntarily.
+Mitsuya-san's waiting downstairs, I need to hurry. Pulling my phone out of my pocket to send her a message, I broke into a small jog toward the elevator.
 
-"Whoa!"
+Focused on my phone screen, I was too slow to notice someone rounding the corner ahead of me. We collided, head-on, hard, and I stumbled off balance.
 
-Not understanding what had happened, I was held up as if being embraced, and I apologised frantically.
+"Waah!"
 
-"I - I'm sorry...!"
+Not fully understanding what had just happened, I felt hands catch my body, steadying me, and I scrambled to apologize.
 
-"Are you alright?"
+"S-sorry, I'm so sorry...!"
 
-At that gentle voice asking me, my heart felt like it was being squeezed tight.
+"Are you okay?"
 
-I know it. This soft, gentle voice. How many times over these four years had I dreamt of the moment this voice called my name?
+At the gentle voice asking that — my heart clenched, sharp, folding in on itself.
 
-There was no way I could have misheard.
+I know it. That soft, kind voice. This whole past four years, I couldn't count how many times I'd dreamed of the moment that voice would say my name again.
 
-But why...? She shouldn't be here. Still confused, I slowly lifted my face.
+There's no way I could mishear it.
 
-Time slowed like slow motion. The moment our gazes met, as she held me, time froze, as if cut off.
+But why...? Because there's no way she should be here, of all places. Still bewildered, I slowly lifted my face.
 
-　There’s no way I could forget. Those eyes, as deep as the night sea, black as the ocean itself.
+Time seemed to slow, like slow motion, and the moment my eyes met the woman steadying me, everything froze, cut clean out of time.
 
-“Kanata…?”
+There's no way I could ever forget them. Those eyes, endlessly deep, black as a midnight sea.
 
-Her eyes widened in surprise. My heart, which should have been frozen solid, suddenly began to beat again as if revived, and it wouldn’t stop.
+"...Kanata?"
 
-Am I dreaming right now?
+Eyes widening, startled. My heart, which should have frozen solid, suddenly lurched back to life, pounding, refusing to stop.
 
-Because right now, before my eyes — there you are, a little more grown-up than back then.
+Am I dreaming, right now?
+
+Because standing right in front of me — is you. A little more grown-up than back then.

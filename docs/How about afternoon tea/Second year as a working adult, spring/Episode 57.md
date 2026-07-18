@@ -1,200 +1,209 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 7
 parent: Second year as a working adult, spring
-sequence: 60
-title: Episode 57 So... Can I Look Forward to Saturday Night Too?
+sequence: 61
+title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
 ---
-Episode 57 So... can I look forward to Saturday night too?
+## Episode Fifty-Seven: Then... Can I Look Forward to Saturday Night Too?
 
+\
 "Good morning, President."
 
-The morning office. Hearing that greeting from the entrance, I gently lifted my gaze from the monitor. Yui-san appeared briskly, greeting employees with "Good morning" as she walked, holding a drink cup from the milk tea specialist shop near the station in her hand.
+The morning office. A greeting like that reached me from the entrance, and I gently lifted my eyes from the monitor. Calling out "good morning" to employee after employee, Yui-san appeared, striding in briskly, a drink cup from the milk tea shop near the station in her hand.
 
-My desk is on the route to the president's office.\
-Every morning, I watch Yui-san's face as she passes by me and say, "Good morning."
+My desk sits right along the path to the president's office.\
+Every morning, I watch Yui-san's face as she passes by, and say "good morning" to her.
 
-"Right, good morning."
+"Yeah, morning."
 
-After watching Yui-san, who smiles warmly back at me, disappear into the president's office, my day begins.
+Looking me in the eye, giving me that soft, gentle smile, watching her disappear into the president's office — that's how my day begins.
 
-　It's already been nearly three weeks since I joined the company. The intensive week-long induction training ended smoothly, and last week, Mitsuya-san, assigned to the same department as me, began taking on more and more work thanks to her innate skills, quickly becoming a valuable asset.
+*
 
-Meanwhile, being in my second year as a graduate recruit, I entered a six-month OJT training period last week. Currently, I'm starting work under the constant guidance of Manager Yamazato of the Budget Management Section within the Management Control Department, where I belong.
+Nearly three weeks now since I joined the company. The intensive week of onboarding training wrapped up without a hitch, and since last week, Mitsuya-san, assigned to the same department, has already been handed more and more work thanks to her innate skill, transforming almost overnight into a fully functioning contributor.
 
-She's in her late thirties, a working mother right in the thick of raising her child. She's gentle and kind, working reduced hours from nine to four. It seems she only returned from a year's childcare leave six months ago; photos of her husband and adorable baby adorned her desk.
+Meanwhile, since I'm only in my second year out of college, I entered a six-month on-the-job training period starting last week. Right now I'm working closely under Yamasato-manager, who oversees the budget management section within the management department I'm part of.
 
-　Besides myself and Mitsuya-san, there is one other member of the Budget Management Section. She is Seno-san, seated diagonally in front of me, with bright brown hair loosely tied back.
+She's around her late thirties, a working mother in the thick of raising kids. Gentle, easygoing, working shortened hours from nine to four. Apparently just back from a full year of parental leave, about six months ago now — her desk has photos of her husband and an adorable baby displayed on it.
 
-　She has full, plump lips and round eyes that are quite striking. She's the same age as Mitsuya-san and Yui-san, twenty-six this year.\
-Despite her somewhat childlike features, her figure is curvaceous in all the right places, giving her an alluring air. The impression she gives is... slightly calculating, or perhaps a bit too cunning.
+Besides me and Mitsuya-san, there's one more person on the budget management team. Seno-san, seated diagonally in front of me, light brown hair loosely tied back.
 
-She seems incredibly popular with the male employees... but she didn't get on well with Mitsuya-san.
+Full, plush lips and round, wide eyes make a strong impression — same age as Mitsuya-san and Yui-san, twenty-six this year.\
+Despite a face that reads almost childlike, her figure fills out in all the right places, carrying real allure. The impression she gives off — a little calculated, maybe, a bit too aware of her own effect.
 
-　When we joined the company, the two employees who were transferred out of this department as a result apparently gained promotions and moved to other sections.
+Apparently very popular with the male employees... but she and Mitsuya-san don't get along at all.
 
-Regarding Seno-san being the only one left behind without promotion, Mitsuya-san dismissed it bluntly: "Well, that's only to be expected. She has no motivation and her work is slow."
+With our arrival, apparently, the two employees who'd been bumped out of this department got promoted and moved elsewhere.
 
-After three weeks, I realised this company is incredibly easy to work for. Taking a light break once an hour is encouraged, and stepping away briefly is never frowned upon. It's simply very free. Mitsuya-san, a smoker, was particularly pleased about this.
+As for why only Seno-san stayed behind without moving up, Mitsuya-san dismissed it flatly: "Well, obviously — she's got zero motivation and she's slow at her job."
 
-　Non-smokers benefit too, of course. The break room is always available, and there's a cup-style vending machine where drinks cost just ten yen each. Since the system automatically deducts payments from your salary when you scan your ID card, there's no need to carry cash.
+*
 
-Manager Yamazato explained that these changes were introduced after the president changed, to boost work efficiency.\
-Apparently, the previous president was a rather intimidating figure, seemingly stuck in the Shōwa era. Performance kept deteriorating, and the office atmosphere was always tense.
+Three weeks in, what's struck me most is how genuinely easy this company is to work at. Taking a short break once an hour is actively encouraged, and stepping away from your desk briefly never draws so much as a raised eyebrow. Just generally, freely relaxed. Mitsuya-san, a smoker, has been thrilled about it.
 
-Initially, there was apparently mixed opinion about the appointment of the very young Yui-san as president, but now everyone unanimously says, "It's good the president changed."
+Non-smokers benefit too, of course. The break room's open anytime, and there's a cup-style vending machine where coffee costs just ten yen a cup. Hold up your employee badge and it's automatically deducted from your paycheck, so there's no need to carry cash around at all.
 
-The space here is packed with the results of Yui-san's efforts during her presence. I thought to myself, I want to learn the job as quickly as possible so I can be of help to Yui-san.
+Yamasato-manager told me all of this had been introduced once the president changed, specifically to improve work efficiency.\
+Apparently the previous president had been the type still dragging around old Showa-era attitudes, a scary man. Performance had kept declining under him too, and the office atmosphere had always been tense.
 
-　"You must be getting tired. Why not take a little break?" Manager Yamazato suggested. So, I took my empty teacup and a rather large pouch and headed for the kitchenette.
+At first, apparently, there'd been mixed opinions about someone as young as Yui-san taking over as president — but now, everyone seems to agree, unanimously: "things got so much better once the president changed."
 
-Perhaps because all the staff used the vending machine in the break room, the kitchenette was always empty. Well, it was only ten yen, and you could get coffee with the push of a button – naturally, that was easier and more convenient.
+Every corner of this company is packed, edge to edge, with the effort Yui-san must have poured in during the years we were apart. I want to learn the job as fast as I possibly can, so I can become a real help to her too. That's what I found myself thinking.
 
-　I took out a small, single-serving tea set from the pouch. The kitchenette had a water dispenser, after all. If hot water was available, tea was my only choice over coffee.
+*
 
-I pressed the red button on the dispenser and poured hot water into the teapot to warm it. Just as I opened the tin of tea leaves I'd brought, a sound made me turn around.
+"You must be getting tired by now. Go take a little breather," Yamasato-manager said, so I picked up my now-empty teacup and a somewhat large pouch and headed for the break kitchen.
+
+Since everyone else uses the vending machine in the break room, the little kitchen area's always empty. Makes sense, I suppose — ten yen and one button gets you coffee, so obviously that's the easier option.
+
+I pulled a small single-serving tea set out of my pouch. There's a water dispenser back here too. If hot water's available, tea over coffee, every time, no question.
+
+I pressed the red button on the dispenser and poured hot water into the teapot to warm it. Just as I opened the tin of tea leaves I'd brought, I heard a sound behind me and turned.
 
 "Oh, Kanata?"
 
-　I bumped straight into Yui-san, who was holding a mug in one hand, and my heart leapt. When our eyes met, Yui-san smiled softly, looking pleased.
+Running straight into Yui-san, mug in hand, my heart lurched, startled. Catching my eye, Yui-san smiled, soft, clearly pleased.
 
 "Tea time already?"
 
-Yui-san lined up beside me, set down her mug, tore open the tea bag wrapper, and peered at me.
+Settling in beside me, Yui-san set her mug down and peered into my face while tearing open a tea bag wrapper.
 
-"Yui-san, of all people... are you having tea? I thought you preferred coffee."
+"You're the one having tea, Yui-san...? I thought you liked coffee better."
 
-If you go to the break room, you can easily get coffee. I remember that back in university, Yui-san preferred coffee over tea. She liked the coffee beans from my part-time job.
+You could just go to the break room and get coffee easily. Back in college, I remember Yui-san leaning coffee over tea. She'd loved the beans from my old part-time job.
 
-Come to think of it — there was something off this morning too. Because what Yui-san was holding wasn't coffee, but milk tea.
+Actually — I'd noticed something felt off this morning too. What Yui-san had been carrying wasn't coffee, but milk tea.
 
-After plopping the tea bag into the mug, Yui-san pressed the red button on the water dispenser and poured hot water.
+Dropping the tea bag into her mug, Yui-san pressed the dispenser's red button and poured in hot water.
 
-"Ah, yes. That was the case... but Kanata, you left loads of tea at my place, didn't you? I didn't want it to go to waste, so I started drinking it, and before I knew it, I'd grown to like it."
+"Ah, yeah. That's true, but... you left a bunch of tea behind at the house, didn't you. Didn't want to waste it, so I started drinking it, and somewhere along the way I just got into it."
 
-Hearing her say that, I vaguely recalled events from four years ago. In Yui's kitchen, I always kept tea stocked for enjoying afternoon tea.
+Hearing that, a hazy memory of four years ago surfaced. I'd always kept a stock of tea in Yui-san's kitchen, for enjoying afternoon tea.
 
-　The thought that she’d drunk the tea I’d left behind made me happy, yet at the same time, my heart twinged as I pictured her, alone in that house, brewing the tea I’d left behind.
+The tea I'd left behind, and she'd actually been drinking it — happiness welled up at that, but at the same time, imagining Yui-san alone in that house, brewing the tea I'd left, something in my chest gave a small, sharp ache too.
 
 "...Earl Grey?"
 
-The scent of bergamot wafted from the mug. When I pointed it out, Yui laughed, "Impressive, recognising it by smell. That’s amazing."
+The scent of bergamot rising off her mug. When I pointed it out, Yui-san laughed. "Wow, you can tell just from the smell? Impressive."
 
-"Yui, the lid...?"
+"Yui-san, where's the lid...?"
 
-I too discarded the water I'd warmed in the pot once, then asked as I added the tea leaves.
+I asked, dumping out the water I'd used to warm my own pot and adding the tea leaves in.
 
-"The lid?"
+"Lid?"
 
-"The mug's lid. It tastes better if you let it steep."
+"For the mug. It steeps better with a lid on."
 
-To be more precise, it tastes better brewed in a teapot. After pouring the water, I gently closed the pot's lid and pressed the timer.
+More than that, honestly, it's better brewed in a proper teapot. After pouring in the water, I gently closed the pot's lid and hit the timer.
 
-　Yui-san blinked in surprise, murmuring, "Oh, really?" Honestly. You could look up how to brew tea properly in no time.\
-But I felt a little pleased. That something I liked, you'd come to like too, because of my influence. If that was the case, I wanted you to enjoy it even more, if possible.
+Yui-san blinked, puzzled, and murmured, "huh, didn't know that." Honestly. Something as simple as how to brew tea properly, she could've just looked it up.\
+But it made me a little happy too. That something I love, because of my influence, you've come to love too. If that's true, I want you to be able to enjoy it properly, at its best.
 
-Even tea sold in ordinary shops is delicious, but there are shops that stock even finer leaves.
+Ordinary store-bought tea's good enough, sure, but there are shops that carry even better leaves.
 
-"If you've come to like tea too, Yui... I know a lovely tea shop. Shall we go together sometime...?"
+"If you've actually come to like tea, Yui-san... I know a good tea shop I'd recommend. Want to go together sometime...?"
 
-I asked casually, and Yui's face lit up with a smile. She's so poised and impressive at work, but when it's just the two of us, she smiles like she did back in our student days. It makes my heart tighten.
+I asked it casually, and Yui-san's face lit up instantly. Sharp and cool while working, but when it's just the two of us, she smiles the exact same way she did back when we were students, and something in my chest clenched, tight.
 
-"Is that alright? Wait, let me check my schedule."
+"Really? Wait, let me check my schedule."
 
-Yui-san promptly pulled her smartphone from her pocket. It suddenly occurred to me.
+Yui-san immediately pulled her phone out of her pocket. Come to think of it, a question occurred to me.
 
-"Yui-san, do you manage your own schedule?"
+"Yui-san, do you handle your own schedule?"
 
-Given how large the company is, it wouldn't be unusual for her to have one or two secretaries.
+A company this size, it wouldn't be strange at all to have a secretary or two.
 
-"Yes. I'm starting to think I'm reaching my limit doing it myself though... Ah, this Saturday's free. What about you, Kanata?"
+"Yeah. Starting to think I'm hitting my limit managing it myself, honestly... Ah, this Saturday's open. What about you, Kanata?"
 
-Not after work on a weekday, but on a day off. That meant we could spend a long time together. I fought hard to keep the joy from showing on my face and replied, "I'm free." Yui-san smiled happily again.
+Not after work on a weekday — a whole day off. That means we'd get to spend a long stretch of time together. Fighting to keep my happiness from showing too plainly on my face, I answered, "I'm free," and Yui-san smiled, pleased, all over again.
 
-"...It's been a while since I've been on a date with Kanata, hasn't it?"
+"...It's been a while since I've gone on a date with you."
 
-"A, a date?"
+"D-date?"
 
-Yui-san is the sort of person who casually says things like that without meaning it, so I couldn't tell if she was serious or joking.\
-Just as I was about to frantically deny any such intention, the timer beeped, pi-pi-pi, so I grabbed the kettle to cover my tracks.
+Yui-san's the type to say things like that easily, without even meaning anything serious by it, so I can never tell if she's being genuine or just joking.\
+Just as I scrambled to deny it — *that's not what I meant* — the timer beeped, and I grabbed the pot, glad for the distraction.
 
-"Ah... Yui-san, you should take the tea bag out soon or it'll become bitter."
+"Ah... Yui-san, you'd better take your tea bag out soon too, or it'll go bitter."
 
-"Oh, right. I forgot."
+"Oh right, forgot."
 
-I poured the tea into the cup. Yui-san also pinched the string of her tea bag and removed it from her mug. Just seeing the colour, I knew it would turn bitter.\
-I thought I should teach her how to brew tea properly next time I go to buy tea leaves.
+I poured the tea into my cup. Yui-san pinched the string of her tea bag and pulled it out of her mug too. One glance at the color told me — that's definitely going to be bitter.
 
-"Kanata. At Friday's welcome party, try not to drink too much so it doesn't interfere with your date, alright?"
+I should teach her how to brew it properly too, next time we go buy tea leaves together. I thought that, quietly.
 
-On Friday, a welcome party for us former WEB Production Division employees was scheduled at our company's hotel. It seemed to be a buffet-style party, and apparently alcohol would be served. We'd been told we could wrap up work at 4 PM, so I was looking forward to it a little too.
+"Kanata. Try not to drink too much at Friday's welcome party, okay? Don't want it interfering with our date."
 
-"It'll be fine. I can handle a bit of alcohol now..."
+Friday, a welcome gathering was scheduled at our own company's hotel, for us former Web Production Division employees. Apparently a standing buffet-style party, with alcohol available too. We'd been told we could wrap up work at four, so I'd been looking forward to it, a little, myself.
+
+"I'll be fine, I can actually hold my alcohol a bit now..."
 
 "Really?"
 
-I was a bit more resilient than back then. Still weaker than most, though. Whether she knew I was putting on a brave face or not, Yui-san smiled and brought her lips close to my ear.
+A little stronger than back then, I suppose. Though I still seem weaker than most people. Whether she noticed my bravado or not, Yui-san laughed and brought her lips close to my ear.
 
-I caught the scent of a refreshing citrus perfume.
+A crisp, citrus scent of perfume reached me.
 
-"So... can I look forward to Saturday night too?"
+"Then... can I look forward to Saturday night too?"
 
-She whispered to me, I hastily scrambled back. Looking forward to what exactly? As for alcohol, I have a history.\
-Even that night I first lay with Yui-san — I haven’t forgotten that I was drunk and made the first move.
+Whispered like that, I scrambled back, putting distance between us in a panic. Look forward to — to what? I have a *record*, when it comes to alcohol.\
+The very first night Yui-san and I came together — I haven't forgotten. That I was the one who pushed for it, drunk.
 
-Seeing my face flush bright red, Yui-san chuckled heartily. Only then did I realise she was teasing me, and I shoved her shoulder hard.
+Face going red, unmistakably, Yui-san burst out laughing at me. Only then did I realize — I'd been teased — and shoved her shoulder with everything I had.
 
-"Honestly... Yui, you haven't changed one bit!"
+"Seriously... Yui-san, you haven't changed one single bit, have you!"
 
-"Just kidding. I'm only inviting you to have a drink together. Nothing deeper than that."
+"Just kidding. I just meant, let's drink together. No deeper meaning to it."
 
-I felt a pang of irritation, but somehow I thought she might be telling the truth. Since we'd met again, I'd noticed Yui no longer kept her nails short and neat like she did in university. So I understood... she wasn't involved with women now.
+Annoyed, but honestly, I think that part really is true. I'd noticed since we reconnected — unlike back in college, Yui-san doesn't keep her nails short and neat anymore. Which means, I understand, she's not currently involved with any women.
 
-That was nice, but there was another difference from the old Yui that bothered me intensely.
+That makes me happy, but there's one more thing, different from the Yui-san of back then, that's been nagging at me.
 
-"Um, Yui, come to think of it—"
+"Um, Yui-san, come to think of it..."
 
-"Hmm?"
+"Hm?"
 
-She took a sip of her tea from the mug and looked at me.
+Bringing her mug to her lips, taking a sip of tea, she looked at me.
 
-"...You've changed your perfume. Why?"
+"...You changed your perfume, didn't you. Why?"
 
-　It's different from university. It's not that perfume, and I just can't stop wondering about it.
+Different from back in college. It bothers me, endlessly, that it's not that same scent anymore.
 
-"Perfume? Ah, yes. I am using a different one now."
+"Perfume? Ah, yeah. I'm wearing something different than before."
 
 "Why?"
 
-When I stared up into those dark eyes, Yui-san looked troubled. As if to say, "Why do you ask?" It was written all over her face.
+Looking straight up into those black eyes, Yui-san's face went faintly troubled. *Why, huh* — her expression seemed to say, unsure how to answer.
 
 "Kanata, do you dislike this scent?"
 
-"I don't dislike it... but it's like you're a different person."
+"I don't dislike it, but... it's like you're a different person."
 
-"Did you prefer the old one?"
+"Was the old one better?"
 
-I nodded honestly. I'd never admit it, but during the time apart, I'd endured nights of unbearable loneliness without seeing Yui-san, relying on that perfume to get me through. And now, the you I've reunited with is wearing a completely different scent. It's not fair.
+Honestly, I nodded. I'd never say it out loud, but during all that time apart, missing Yui-san unbearably, I'd gotten through so many lonely nights with that very perfume. And now, reunited, you're wearing a completely different scent. It's not fair.
 
 "...I told you I didn't want you to change it."
 
-I think it was around the time I was agonising over what to get Yui-san for her birthday. When Yui mentioned changing her perfume, I tried to stop her. I definitely said I didn't want her to change it back then.\
-I realise it's incredibly selfish and unreasonable of me to expect her to stay the same while we're apart, especially after I was the one who distanced myself.
+I think it was right around when I'd been agonizing over what to get her for her birthday. Yui-san had mentioned switching perfumes, and I'd stopped her. I definitely said, back then, that I didn't want it to change.\
+I'm the one who left, and now, even during the time we were apart, I'm asking her to have kept things the same for me — I know how selfish, how unreasonable that sounds, even to myself.
 
-Yui just smiled at me like that and gently stroked my cheek.
+Yui-san just laughed at that and gently stroked my cheek.
 
-"Sorry, sorry. ...If you say so, Kanata, maybe I'll go back to it."
+"Sorry, sorry. ...If that's what you want, Kanata, maybe I'll switch back."
 
-I almost mistook it. Those eyes gazing at me so lovingly — I almost thought they hadn't changed since back then. I almost thought she'd felt the same way about me all along.
+I could almost let myself misread it. Wondering if those eyes, gazing at me so fondly, haven't actually changed at all, since back then. Wondering if she'd felt exactly the same as I have, this whole time.
 
-Reluctantly, her hand slipped away, and then she grasped the mug.
+Reluctantly, that hand pulled away, and she picked her mug back up.
 
-"...Right, I really ought to be off now. Looking forward to Saturday."
+"...Well, guess I should head back. Looking forward to Saturday."
 
-With that, she smiled brightly and left.
+Saying that, smiling bright, Yui-san left.
 
-　I let out a sigh, then took a sip of the slightly cooled tea.
+I let out a small sigh and took a sip of my tea, gone slightly cold by now.
 
-Today is only Monday. This week is going to feel like a very long week indeed.
+Today's still only Monday. This week's shaping up to be a long, long one.
 
-And before Saturday arrives, I really must go and buy some new clothes somewhere. With that thought in mind, I too left the staff kitchen.
+And before Saturday comes, I need to go buy some new clothes somewhere. Thinking that, I left the break kitchen too.

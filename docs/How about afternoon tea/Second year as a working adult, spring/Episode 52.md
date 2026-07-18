@@ -1,151 +1,157 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 2
 parent: Second year as a working adult, spring
-sequence: 55
-title: 'Episode 52: Fancy some sushi?'
+sequence: 56
+title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
 ---
-Episode 52: Fancy some sushi?
+## Episode Fifty-Two: Don't You Want Sushi?
 
-The silence that had frozen us as we gazed at each other was shattered by a voice I knew well.
+\
+What cut through the silence, the two of us frozen there staring at each other, was a voice I also knew well.
 
-"Aosawa-san, you mustn't run in the corridor. It's dangerous, isn't it?"
+"Aozawa-san, you shouldn't run in the hallway. It's dangerous."
 
-Startled, I turned my gaze towards the direction I hadn't noticed, hidden by Yui-san's shadow. The man in the navy suit was the president of this company where I worked.
+Startled, I turned toward the direction I hadn't noticed, blocked from view by Yui-san. The man in the navy suit was the president of the company I work for.
 
-"I-I'm terribly sorry..."
+"S-sorry, I'm so sorry..."
 
-I apologised reflexively, struggling to regain my balance after nearly falling and leaning my weight onto Yui-san.\
-I'd been in a state of utter confusion since earlier. Why was Yui-san at my company, and with the president? What was going on?
+I scrambled to apologize, and steadied myself where I'd nearly toppled, my weight still leaning against Yui-san.\
+I'd been in a fog of confusion this whole time. Why is Yui-san here, at my company, with the president? What's going on?
 
-"President Ichinose, are you alright? Our employee... I'm terribly sorry."
+"*President Ichinose*, are you alright? I'm terribly sorry about my employee."
 
-"Eh... President...!?"
+"Eh... president...!?"
 
-What did he just say? President Ichinose...!? I couldn't help but cry out. Yui looked down at me and chuckled softly.\
-Just like back then. Those same dark eyes, that same lustrous long hair. But she seemed to have matured slightly since then, her beauty polished even further.
+What did he just say? President Ichinose...!? The sound escaped me before I could stop it, and Yui-san looked down at me and laughed, soft.\
+Same as back then. Those black eyes, that glossy long hair. But she'd grown up, just slightly, since then, and her beauty had somehow only sharpened further with it.
 
-"It's fine, don't worry about it. Are you alright, Kanata? No injuries?"
+"It's fine, please don't worry about it. Kanata, are you okay? Not hurt?"
 
-Hearing that gentle voice, unchanged from back then, I found myself nodding. Then the director's eyes widened in surprise.
+At that voice, unchanged from back then, gentle as ever, I found myself nodding, small, without thinking. At that, the president's eyes went wide, startled.
 
-"Eh? President Ichinose, you know Aosawa-san?"
+"Eh? President Ichinose, you know Aozawa-san?"
 
-"We were senior and junior at university. I never imagined we'd meet here like this."
+"We're senior and junior from university. I never imagined I'd run into her somewhere like this."
 
-Saying that, Yui-san touched my hand, which was still frozen in shock. My heart leapt in surprise. As I stood there dumbfounded, Yui-san smoothly snatched the smartphone I was holding.
+Saying that, Yui-san reached out and touched my hand, still frozen in shock. My heart lurched, startled. While I stood there, dumbstruck, Yui-san smoothly plucked the phone right out of my hand.
 
-"Ah!"
+"Ah."
 
-"Kanata, I'm glad you're not hurt, but walking while using your phone is dangerous. You really must look where you're going."
+"Kanata, good thing you're not hurt, but walking while looking at your phone is dangerous. You need to actually watch where you're going."
 
-As she spoke, Yui's thumb swiftly swiped across the screen of my confiscated phone.
+Saying that, Yui-san's thumb glided smoothly across the screen of the phone she'd taken.
 
-"Eh? Wait, hold on, Yui, what are you doing..."
+"Eh, wai— wait, Yui-san, what are you doing..."
 
-I remembered I'd been trying to send a message to Mitsuya-san earlier, leaving the screen unlocked.\
-　After Yui-san did something on my phone, a ringtone immediately sounded from the breast pocket of her jacket, cutting off almost instantly.\
-It dawned on me a moment later that she must have made a call from my phone.
+I remembered — I'd just been in the middle of sending Mitsuya-san a message, and the screen had still been open.\
+After Yui-san did something on my phone, an instant later, a ringtone sounded from the chest pocket of her jacket, and cut off again just as quickly.\
+A beat late, I realized — she'd apparently called herself, from my phone.
 
-Right, my phone number — I'd changed it since then. As ever, Yui-san really is thorough in that sort of thing.
+Right — my number. I'd changed it, since back then. As careful and thorough as ever, Yui-san really doesn't miss a beat, even now.
 
-"Hello?"
+"There."
 
-Saying that, Yui-san returned my smartphone to me, gazed into my flustered eyes, and smiled warmly.
+Handing my phone back to me, Yui-san looked into my still-shaken eyes and smiled, bright.
 
-"...Well then, see you later."
+"...I'll see you later, then."
 
-She patted my head once as I stood there dazed, clutching the phone tightly to my chest. Then, turning back to the president, she said, "Shall we go?"
+Still clutching my phone tight to my chest, dazed, she gave my head a single pat, then turned back to the president and said, "Shall we?"
 
-　Later? What does that even mean? Without giving me a moment to question the meaning of her words, she simply left me behind. Watching their backs disappear, my heart pounded relentlessly, as if it were about to break.
+*Later* — what did that even mean? Without giving me a chance to ask, the two of them walked off easily, leaving me behind, and my heart kept pounding, wild, like something broken.
 
-　Then, as if suddenly remembering, I hurried towards the entrance, apologised to Mitsuya-san for being late, and headed to our usual set-meal restaurant.
+*
 
-Because of that sudden incident, I couldn't taste the fried horse mackerel set meal I'd gone to the trouble of ordering at all. Honestly, I hardly remember what I talked about with Mitsuya-san during lunch either.
+Then, remembering myself, I hurried to the entrance, apologized to Mitsuya-san for being late, and headed to our usual set-meal place.
 
-　That’s how shaken I was by the sudden reunion. Even after returning to my desk in the afternoon, I couldn’t focus on work at all, my mind constantly on Yui-san.
+Because of what had just happened, I couldn't taste a single bite of the fried horse mackerel set I'd ordered. Honestly, I barely remember what Mitsuya-san and I even talked about over lunch.
 
-And then, President? Yui-san is only twenty-five. I never imagined she’d become president so early, no matter what.
+That's how shaken I was by the sudden reunion — even back at my desk in the afternoon, I couldn't focus on work at all, my mind stuck entirely on Yui-san.
 
-I wanted to know. What Yui-san was doing right now. Once I started wondering, I couldn’t stop.
+And *president*, of all things. Yui-san's only twenty-five. I never expected she'd already become a company president, this fast, no matter how you looked at it.
 
-　Mitsuya-san was away in a meeting this afternoon, so I was the only one around the desks now. After glancing around nervously, I quietly opened my computer browser.
+I want to know. What Yui-san's been doing, all this time. Once the curiosity took hold, I couldn't stop it.
 
-Until now, I’d deliberately avoided looking up what Yui-san was doing. So I wouldn’t want to see her. So I wouldn’t feel lonely. It was the only self-defence mechanism I had.
+Mitsuya-san was out for a meeting all afternoon, so it was just me at my desk. Glancing around, careful, I quietly opened a browser on my computer.
 
-But now, having encountered her again like this, my fingers couldn’t stop searching.
+Up until now, I'd deliberately avoided looking up what Yui-san was doing. So I wouldn't want to see her. So I wouldn't feel lonely. That had been the one and only way I knew to protect myself.
 
-　Ichinose Yui. I typed that into the search engine and hit enter. Almost immediately, the answer I sought came back.
+But now, having run into her again like this, I couldn't stop my fingers from searching.
 
-"Ichinose Grand Hotel Co., Ltd... Representative Director, Ichinose Yui..."
+*Ichinose Yui* — I typed it into the search engine and hit enter. The answer I'd wanted came back immediately.
 
-The moment I saw that company name, a memory I'd been forgetting suddenly flashed back. That hotel where we watched the fireworks together that summer. It was definitely written there. At the entrance, it said "Ichinose Grand Hotel".
+"Ichinose Grand Hotel Co., Ltd. ...Representative Director, Ichinose Yui..."
 
-The Ichinose Group originally comprised numerous companies. The current president of Ichinose Holdings, a pure holding company, is Yui-san's father.\
-And so, Yui-san became president of one of the subsidiaries operating under that umbrella.
+The instant I saw that company name, a half-forgotten memory came flashing back. That summer, the hotel where we'd watched the fireworks together. It really had been there, written at the entrance — "Ichinose Grand Hotel."
 
-But even so, why on earth was she meeting with our president...? I don't think it was for business negotiations. If it were, it would have been proper for us to send someone over. There's no reason Yui-san would need to make a special trip to our company.
+The Ichinose Group has always had a number of subsidiary companies. The current president of Ichinose Holdings, the pure holding company at the top, is Yui-san's father.\
+And Yui-san, apparently, had been appointed president of one of the subsidiaries under it.
 
-We're an IT firm, and we've never done any business with the Ichinose Group before. I can't see any connection whatsoever to the hotel business Yui-san manages.
+But even so, why was she meeting with my company's president...? Doesn't seem like a business negotiation. If it were, protocol would say we should've gone to her. There'd be no reason for Yui-san to bother coming to our company herself.
 
-Sighing in utter confusion about what was happening, I suddenly felt my phone vibrate and straightened up in alarm. A message appeared on the screen.
+We're an IT company, and there's never been any dealing with the Ichinose Group before. I can't find a single connection to the hotel business Yui-san runs.
 
-'I'll be waiting at the entrance at six.'
+I let out a sigh, completely unable to make sense of what was going on, when my phone suddenly buzzed, and I straightened up sharp. A message floated up on the screen.
 
-The instant I saw that message, my heart began racing again, beating wildly and refusing to slow.
+*"I'll be waiting at the entrance at six."*
 
-Not a single day in these past four years has passed without me thinking of Yui-san. I've wanted to see her all this time. I've wanted to see her so badly I couldn't stand it. But now, part of me just wants to run away.
+The instant I saw that message, my heart, once again, easily picked up its pace, and wouldn't slow back down.
 
-Because what if she's married? What then?
+This past four years, there hasn't been a single day I forgot about Yui-san. I've wanted to see her this whole time. Wanted to see her so badly it hurt. And yet, right now, some part of me wants to run away.
 
-　I regretted not having the presence of mind earlier to check if she was wearing a ring.
+Because — what if she's already married? What do I do?
 
-What did Yui intend to talk about when she met me? My emotions were in such turmoil that I couldn't reply to the message she'd sent — yet time passed relentlessly, and before I knew it, it was quitting time.
+I regretted, painfully, not having had the composure earlier to even check whether she was wearing a ring.
+
+What does Yui-san intend to talk to me about, meeting like this? My feelings churned into a tangled mess, and I couldn't even bring myself to reply to the message — and mercilessly, time slipped past, and before I knew it, quitting time had arrived.
 
 ＊＊＊
 
-"Good work today..."
+"Thank you for your hard work..."
 
-I greeted her in a barely audible voice, scanned my ID at the attendance terminal, then left the office. My heart pounded relentlessly the whole time – in the lift, all the way from the entrance to the exit. I couldn't calm down.
+I said the parting greeting in a voice on the verge of vanishing entirely, held my ID up to the time-clock terminal, and left the office. My heart wouldn't stop pounding the whole time I was in the elevator, the whole way from the entrance to the exit, restless.
 
-She said she'd be waiting, but would Yui really be there?
+She said she'd be waiting, but is Yui-san actually going to be there?
 
-　Stepping outside, her nerves making her grip her bag's handle tightly, she felt her heart clench.
+Nervous, gripping the strap of my bag tight, I stepped outside, and my heart clenched, sharp.
 
-It wasn't a dream after all. There she was, in her suit, apparently waiting for me. She raised her hand and smiled at me. Against her chest, the single-diamond necklace shone, unchanged from that day.
+Sure enough, not a dream. There she was, in a suit, apparently waiting for me, raising a hand and smiling. At her chest, glinting, that same single-diamond necklace as back then.
 
 "Kanata, good work today."
 
-What am I to do? I can't help but stare. We lived together for a year, and I should have built up some immunity to her extraordinary beauty... but that immunity seems to have vanished somewhere over the past four years.
+What do I do, I'm staring. We'd lived together a whole year, so I should have built up at least some resistance to this person's extraordinary beauty... but apparently whatever resistance I'd had disappeared somewhere over these past four years.
 
-Yui really is beautiful, incredibly so. I don't know anyone else as beautiful as her.
+Yui-san really is beautiful. Genuinely, overwhelmingly. I don't know anyone as beautiful as Yui-san.
 
-My heart was pounding, I could feel my face growing hot, and not wanting her to notice, I instinctively turned my face away. Then, I started walking as if to escape.
+My heart raced, and I could feel my face heating up — not wanting her to notice, I turned my face away, and started walking, as if fleeing.
 
-"Hey, Kanata, where are you off to? Don't ignore me."
+"Huh, Kanata, where are you going? Don't ignore me."
 
-She called after me, catching up from behind. I didn't want her to see my flushed face. To avoid that, I had no choice but to keep moving forward.
+She said it, chasing after me from behind. I don't want her to see my flushed face. The only way to manage that is to keep moving forward.
 
-"Where? I'm heading home. My nearest station is this way..."
+"Where — home, obviously. My station's this way..."
 
-"Don't say that. How about dinner together? It's been ages since we last saw each other."
+"Don't say that, how about dinner together? We finally ran into each other after all this time."
 
-She walked up beside me, peering at my face with perfect composure. If I went to have dinner with her, I'd absolutely have to catch up on everything.
+Falling into step beside me, she peered calmly into my face. If I go to dinner with her, there's no avoiding an update on how we've each been.
 
-I want to talk more. But I'm scared. If I heard Yui say she'd got married, I'd probably cry. I'm scared.
+I want to talk more. But I'm scared. Scared that if I hear from Yui-san's own mouth that she's married, I might actually cry.
 
-Would Yui laugh if she knew I still liked her, even after four years?
+Would Yui-san laugh, if she knew — that even now, four years later, I still love her?
 
-Not knowing how to respond, I let my gaze wander. Then, as if to seal the deal, Yui grabbed my hand.
+Not knowing how to answer, my gaze wandering, Yui-san pressed further, taking my hand for good measure.
 
-"Fancy some sushi? Actually, I've already booked a place."
+"Don't you want sushi? I actually already made a reservation."
 
-Eh, sushi? My feet stopped dead. Oh no, I'd done it. Yui smiled gently at my simple-mindedness, lured by food, and pulled me along softly.
+Eh, sushi? My feet came to a dead stop before I could help it, and I thought, *ah, I've done it now.* Yui-san smiled, bright, at how easily I'd been lured in by food, and gently pulled my hand along.
 
-"You can eat whatever you like until you're full. So let's go. Shall we?"
+"Eat whatever you want, as much as you want, until you're full. So let's go. Okay?"
 
-　It wasn't just my gluttony that made me silently let myself be led along by Yui-san's hand.
+*
 
-It was because there was no hard ring on that left hand that was holding mine.
+Silently letting myself be led along by Yui-san's hand wasn't only because of my weakness for good food.
 
-So I felt a deep sense of relief – and without thinking, I accepted that hand pulling mine along.
+It was because the left hand pulling mine along carried no hard, unmistakable feel of a ring.
+
+And so, from the very bottom of my heart, relief washing through me — I found myself, without meaning to, accepting the hand pulling mine along.

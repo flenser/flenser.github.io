@@ -1,152 +1,155 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 6
 parent: Second year as a working adult, spring
-sequence: 59
-title: "Episode 56: This Time, Let's Both Give Yui a Proper Thrashing"
+sequence: 60
+title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
 ---
-Episode 56: This Time, Let's Both Give Yui a Proper Thrashing
+## Episode Fifty-Six: This Time, Let's Both Beat Yui Up Properly
 
-"Kanata-chan, it's been ages! You've grown into such a young lady since I last saw you!"
+\
+"Kanata-chan, long time no see! You've turned into such a grown woman while I wasn't looking!"
 
-As I opened the front door, there stood Ritsu-san, her familiar, lively voice and bright smile unchanged from those days. Behind her stood Yūri.
+Opening the front door, there stood Ritsu-san, that same nostalgic, lively voice and bright smile unchanged from back then. Yuuri stood right behind her.
 
-"Ritsu-san, it's been ages. Thank you for coming."
+"Ritsu-san, it's been so long. Thank you for coming."
 
-Right after meeting Yui-san, I decided to go to her company. During the subsequent HR interview, I told them so without hesitation.
+Right after seeing Yui-san again, I'd decided, without hesitation, to go work at her company, and I'd told them exactly that, without wavering, at the HR interview held a few days later.
 
-That's why I ended up moving near the office. When I complained to Yuri about how tough packing was, she offered to help — and that's how Ritsu-san ended up coming too.
+Which meant I'd be moving closer to the office, and when I complained to Yuuri about how much of a hassle packing was, she offered to help — and somewhere along the way, Ritsu-san had ended up coming too.
 
-　I heard later that, surprisingly, most members of the web production department had decided to join the new company. Mitsuya-san too, of course.\
-And no wonder – the salary offered during the interview was a full thirty thousand yen higher than the base pay at our current company.
+I'd heard afterward, surprisingly, that almost the entire Web Production Division had decided to move to the new company. Mitsuya-san included, of course.\
+No wonder, really — the salary offered at the interview came out thirty thousand yen higher than our current base pay.
 
-After the announcement, the initial commotion within the company gradually subsided. The handover of duties concluded, and the date for our transfer was set in quick succession.
+The office, restless after the announcement, had gradually settled down, the handover of work wrapped up, and the transfer date got fixed in place, one thing after another, smooth as clockwork.
 
-　My flat is a one-bedroom, not exactly spacious, but having lived here since my third year of university, I've accumulated quite a bit of stuff. My new place is also a one-bedroom, but I figured I'd use this as an opportunity to get rid of all the clothes and books I don't need.
+My apartment's a one-bedroom, not exactly spacious, but I've lived here since junior year of college, so I'd accumulated a fair amount of stuff. The new place is a one-bedroom too, so I figured I'd use this as a chance to clear out clothes and books I didn't need anymore.
 
-　I poured iced tea into glasses as we both entered the living room. I'd seen Yuri frequently, but it had been four years since I last saw Ritsu-san – that one time was the last.
+I showed the two of them into the living room and poured iced tea into glasses. I'd been seeing Yuuri regularly, but I hadn't seen Ritsu-san since that one time — four years, now.
 
-"Ritsu-san, when did you return to Tokyo?"
+"Ritsu-san, when did you get back to Tokyo?"
 
-"I moved back at the end of March. I enjoyed Osaka, but I have more friends in Tokyo, so I was lucky to get transferred. I saw Yui the other day too, after ages, and I was really shocked to hear about Kanata-chan."
+"Moved back at the end of March. Osaka was fun too, but I've got more friends here in Tokyo, so getting transferred back felt lucky. Ran into Yui again recently too, actually — heard about you, Kanata-chan, and I was genuinely shocked."
 
-　With that, Ritsu chuckled heartily. Her hair was still the same length, loosely curled, but the bright colour from her university days had now settled into a subdued dark tone. Her gentle, slightly drooping eyes remained unchanged, bringing back a wave of nostalgia.
+Ritsu-san said it, laughing brightly. The length of her loosely curled hair was the same as always, but the bright color from her college days had settled into a calm, dark tone now. Her gentle, downturned eyes hadn't changed at all, and a wave of nostalgia washed over me.
 
-"I was shocked too. I never imagined I'd meet Yui-san again like this."
+"I was shocked too. I never imagined I'd end up reuniting with Yui-san like this."
 
-It made me think that fate really does exist.
+Maybe there really is such a thing as fate, bringing people back together.
 
-"About that thing, I wanted to ask you, Kanata... Are you really sure it was the right decision to work at your senior's company? I mean, she hasn't broken off the engagement yet, has she? Isn't it hard being so close?"
+"Actually, about that — I wanted to ask you, Kanata... are you really sure it's fine, deciding to work at your senior's company? I mean, she hasn't even broken off the engagement yet, has she? Doesn't it hurt, being close to her like that?"
 
-Yuri suddenly murmured this as she sipped her iced tea. Her expression made it clear she was finding it difficult to say, and I immediately realised she was worried about me.
+Sipping her iced tea, Yuuri suddenly let it slip out, quiet. Something in her expression made it clear she'd been struggling to bring it up, and I realized immediately — she was worried about me.
 
-　Before I could reply, Ritsu turned to Yuri and said,
+Before I could answer, Ritsu-san turned to Yuuri and spoke first.
 
-"You can trust Yui. That girl really changed after Kanata dumped her. She was utterly devastated afterwards... But she studied desperately, worked her absolute guts out. That Yui, you know? You can trust her. She'll be absolutely fine."
+"You can trust Yui on this. That idiot really changed, after Kanata-chan turned her down. She was a genuine wreck afterward, honestly hard to even look at... but she studied like crazy, worked herself half to death. Yui, of all people. You can trust her. It's going to be fine."
 
-Though she's always swearing and grumbling, it's clear Ritsu genuinely cares deeply for Yui-san. Because at times like this, Ritsu always ends up defending her.
+For all her usual sharp tongue, it's clear Ritsu-san genuinely, deeply cares about Yui-san. Because in moments like this, she's always the one defending her.
 
-Then Yuri, not to be outdone, interrupted Ritsu with a "But—"
+Not backing down, Yuuri cut back in.
 
-"Ritsu-san. I'm worried that Ichinose-senpai might hurt Kanata again. Kanata was really down after they split up, you know! She's so cute, yet she's been stuck on senpai all this time, not even getting a boyfriend, just..."
+"Ritsu-san. I'm worried Ichinose-senpai might hurt Kanata again. Kanata was genuinely wrecked too, after they split up, you know! As cute as she is, she never once dated anyone, still hung up on senpai this whole time, for years—"
 
-　I was a bit taken aback hearing Yuri say "cute". I hurriedly grabbed Yuri's arm, sensing she'd only get more worked up if left alone. Realising she thought of me that way made me feel just a little embarrassed.
+Hearing Yuuri call me "cute" caught me off guard. I scrambled to grab her arm before she could work herself up any further. Realizing she'd thought of me that way this whole time left me a little embarrassed.
 
-"Ah, um, Yuri, calm down..."
+"U-um, Yuuri, calm down..."
 
-Then Ritsu-san widened her eyes in surprise, saying, "No way!"
+Ritsu-san's eyes went wide, startled. "No way."
 
-"Eh, not a single one? Kanata-chan, you mean you haven't dated anyone since then? For four whole years?"
+"Eh, not one? Kanata-chan, you're saying you never dated anyone this whole time? Four whole years?"
 
 "That's right! Right, Kanata?"
 
-"Eh, ah... well... yes, but..."
+"Eh, ah... yeah... that's... true..."
 
-You don't have to be so shocked... Is that weird? Actually, Yuri knew I'd been hung up on Yui-san all this time...
+No need to be that shocked about it... or is it strange? Also — Yuuri knew, this whole time, that I'd been carrying this torch for Yui-san...
 
-　I hadn't realised at all, but apparently I'm really transparent. Does it show on my face or in my attitude? I could feel my cheeks burning, almost as if they were about to pop.
+I hadn't been aware of it at all myself, but apparently I really am an easy read. Does it show on my face, in how I act? My cheeks went hot enough that I felt like they might actually let off steam.
 
-"How devoted... I can certainly understand why Yuri would be worried..."
+"Poor thing, honestly... I get why Yuuri's worried, now that I hear it."
 
-"Right!? Next time she makes Kanata cry, even if she is Ritsu-san's best friend, I won't forgive her."
+"Right!? If she ever makes Kanata cry again, even if you're her best friend, Ritsu-san, I won't forgive her."
 
-Yuri slammed her iced tea glass down on the table and declared loudly. I’d thought myself lucky to have such a good friend, but she knew I still liked Yui-san, and from the way the conversation had gone, I was sure Ritsu must have picked up on it too.\
-Embarrassed, I covered my flushed face with both hands.
+Yuuri slammed her iced tea glass down on the table and declared it, loud and proud. Having such good friends made me happy, but it also meant Yuuri knew I still loved Yui-san even now, and from the flow of the conversation, Ritsu-san had probably picked up on it too.\
+Embarrassed, I covered my reddened face with both hands.
 
-"Right then. If by any chance that ever happens, this time we'll beat the living daylights out of Yui together. Give her a proper thrashing. Seriously."
+"Okay. If, by some chance, that ever happens, this time, let's both beat Yui up properly. Beat her senseless. For real."
 
-After clasping hands firmly and sealing their ominous pact, Ritsu and Yuri reconciled. I was the one involved, yet somehow I felt left out.\
-　Feeling unbearably awkward, I tried to change the subject. After moistening my mouth with iced tea, I told them in a weak voice.
+Gripping hands tight together, Ritsu-san and Yuuri sealed some ominous pact, and reconciled. I was supposed to be the actual party involved here, and yet somehow I'd been left completely behind.\
+Unable to bear it any longer, I wet my lips with iced tea, trying to change the subject, and said, weakly, to the two of them:
 
-"Um... we should probably get packing soon..."
+"Um... should we maybe get started on the packing..."
 
-"Ah, sorry, we forgot."
-
-Hearing them both say that in unison, I felt deflated and slumped my shoulders.
+*"Ah, sorry, forgot,"* they said, together, in perfect unison, and, deflated, my shoulders slumped.
 
 ＊＊＊
 
-Then, thanks to their help, the move went smoothly, and before I knew it, the memorable day of my first day at work arrived.\
-Just for today, I dressed in a suit I wasn't quite used to and made my way to the office. The weather was warm enough to hint at summer approaching. Bringing my parasol had been the right call.
+After that, thanks to their help, the move wrapped up without a hitch, and before I knew it, the memorable first day of work had arrived.\
+Today only, dressed in a suit I wasn't especially used to wearing, I walked the road toward the office. The weather was warm enough to already feel the edge of summer coming on. Good thing I'd brought a parasol.
 
-Ever since that day I sulked about not getting a message, Yui-san started messaging me every day.
+Ever since that day I'd sulked about her not reaching out, Yui-san had started messaging me every single day.
 
-　Just simple things like 'Good morning', 'Good night', or 'What did you have for dinner?', but it made me incredibly happy that Yui-san found time in her busy schedule to think of me and send me messages.
+Good morning, good night, what she'd had for dinner — nothing but small, harmless things, but knowing Yui-san carved out time, even in the middle of her busy schedule, to think of me and send those messages made me genuinely, deeply happy.
 
-Last night too, a message arrived from Yui-san.
+Last night too, a message had come from Yui-san.
 
-'Looking forward to seeing Kanata at the office tomorrow.'
+*"Looking forward to seeing you at the office tomorrow."*
 
-No emojis, just her usual simple message, but that was fine. Because surely, I was the only one. That Yui-san, who's usually so bad at keeping in touch, sending messages every single day to someone.
+No emoji, nothing decorative, always simple — but that's fine. Because surely, I'm the only one. The only person that terrible-at-keeping-in-touch Yui-san sends a message to, every single day.
 
-From today, our relationship is president and employee. I'm sure we won't be able to chat casually around the office anymore. Even so, if you're there every day, even just in the corner of my vision, I'm sure my working life will be more enjoyable than it has been until now. I felt that way.
+Starting today, our relationship is company president and employee. There's no way we'll get to talk casually at the office. Even so, I thought — if you're there, even just at the edge of my vision, every single day, this working life is bound to be far more fun than before.
 
-"Good morning, Aosawa-chan."\
+*
+
+"Aozawa-chan, morning."
+
 "Good morning, Mitsuya-san."
 
-The company building where I first visited Yui-san was easily twice the size of the one I'd been working in until now. It appeared to be owned by the Ichinose Group, with their offices occupying three entire floors of the building. Other group companies seemed to be housed on different floors of the same building.
+Visiting Yui-san's company for the first time, the building turned out to be easily double the size of the one I'd worked in before. Apparently owned by the Ichinose Group, the office leases three whole floors of it. Other group companies occupy separate floors of the same building too.
 
-After receiving a brief explanation about the building, we waited in a conference room as spacious as a university lecture theatre.\
-　We, the nearly thirty former employees of the Web Production Division, had been informed beforehand that the production team members would be assigned to a newly established department, while sales and administrative staff would be placed in departments suited to their aptitudes.
+After a brief explanation about the building, we were shown to wait in a conference room as large as a university lecture hall.\
+We'd been told in advance — nearly thirty of us, former Web Production Division employees, would be split up: production team members going to a newly established department, sales and admin staff assigned wherever suited them.
 
-Today, after the induction ceremony, we would receive our official appointment letters. Following that, there would be an orientation, and our actual department assignments would be made at a later date.
+Today, after the entry ceremony, there'd be formal appointment notices. Orientation after that, with actual department placement coming later.
 
-"I came without hesitation, thinking the pay would be better, but I'm still a bit nervous, you know."
+"Came here without a second thought once I heard about the raise, but I'm getting a little nervous now, honestly."
 
-"Yeah..."
+"Yeah, me too..."
 
-We'd decided to keep it quiet within the company that I knew Yui-san beforehand. Otherwise, it'd probably make things awkward for her too. That said, I doubt most employees ever get the chance to speak with the president.
+I'd decided to keep it quiet at the office that Yui-san and I already knew each other. It would only make things harder for her otherwise. Not that an ordinary employee gets many chances to talk to the president anyway.
 
-Five minutes before the appointed time, the conference room door opened. When Yui-san appeared, a murmur rippled through the room.
+Five minutes before the scheduled time, the conference room door opened. The room stirred, murmuring, the moment Yui-san appeared.
 
-"That person is the president? Wow, she's absolutely stunning..."
+"That's the president? Whoa, she's gorgeous..."
 
-　Mitsuya-san murmured in surprise. Of course she is, Yui-san is incredibly beautiful, I thought, feeling a surge of pride even though it wasn't about me.\
-I was genuinely stunned the first time I met Yui-san too. I like her in casual clothes, but she looks absolutely stunning in a suit as well. Thinking this, I followed Yui-san with my eyes as she took the stage.
+Mitsuya-san murmured it, startled too. *That's right, isn't she gorgeous* — I felt a swell of pride, even though it had nothing to do with me.\
+I remembered being genuinely stunned too, the first time I met Yui-san. I love her in casual clothes, but she looks wonderful in a suit too. Thinking that, I followed her with my eyes as she stepped up to the podium.
 
-I thought our eyes met just once, when Yui-san looked up. Yui-san smiled softly and took hold of the microphone.
+Once she lifted her face, our eyes met, just once, I think — a small click. Yui-san smiled, soft, and took hold of the microphone.
 
 ＊＊＊
 
-"They say God doesn't give two gifts to one person, right? But there are people who get two, even three. The world's unfair, isn't it..."
+"They say heaven doesn't give two gifts to one person, right? But apparently some people get two, even three. The world's really unfair..."
 
-Mitsuya-san sighed as she said this, gently rubbing her shoulders, stiff with tension and fatigue.
+Mitsuya-san said it with a sigh, rubbing at her shoulders, stiff from nerves and exhaustion.
 
-　The induction ceremony, appointment letter handover, and orientation flew by in a flash.\
-I hadn't had time to speak with Yui-san, but when she handed me my letter, she looked me straight in the eye and smiled. Just that alone made today worthwhile.
+The entry ceremony, the appointment notices, orientation — the whole day had flown by in a blink.\
+There'd been no time to actually talk with Yui-san, but when she handed me my appointment notice, she'd looked straight into my eyes and smiled, and that alone was more than enough to satisfy me today.
 
-"Still, it's good we're in the same department again. Management Control."
+"Still, good thing we ended up in the same department again. Management."
 
-"That's right. I'm glad I got to be with Aosawa-chan."
+"Yeah. Glad it's with you, Aozawa-chan."
 
-The manager from the former management team apparently requested an internal transfer rather than going to Yui-san's company. So, only Mitsuya-san and I ended up assigned to the Management Department.
+The manager of our old management team had apparently requested an internal transfer instead of moving to Yui-san's company. Which meant Mitsuya-san and I were the only two assigned to the new management department.
 
-I hear the job content hasn't changed much either. What's more, looking at the seating chart, my desk was right near the president's office. I'd been thinking it would be a shame if it were on another floor, but it seems management departments are grouped near the president's office, so I reckon I was lucky.
+I'd heard the job content wouldn't change all that much. And checking the seating chart, our desks turned out to be right near the president's office. I'd worried a little, about ending up on some different floor, but apparently the management-related departments were all clustered close to the president's office — lucky, I thought.
 
-Admittedly, the first day was tiring, but my mood was incredibly bright.
+The first day really had been exhausting, but my mood, overall, felt bright and clear.
 
-After all, from tomorrow, I'd get to see Yui-san every day.
+Because starting tomorrow, I get to see Yui-san every single day.
 
-That alone made any worries about the future vanish somewhere.
+Just that alone was enough to chase away whatever anxiety I had about what's ahead.
 
-My steps felt light. I had a feeling the gears that had been stuck for four years were about to start turning again.
+My steps feel light. Gears that had stopped turning for four whole years — I had a feeling they were about to start moving again.
