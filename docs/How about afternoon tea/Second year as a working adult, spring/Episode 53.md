@@ -1,181 +1,189 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 3
 parent: Second year as a working adult, spring
-sequence: 56
-title: 'Episode 53: I Just Wondered If It Might Be Fate'
+sequence: 57
+title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
 ---
-Episode 53: I Just Wondered If It Might Be Fate
+## Episode Fifty-Three: I Just Thought — Maybe This Is Fate
 
-Led by the hand, I was brought to a sushi restaurant frequented by Yui-san, one with an undeniably upmarket appearance. Before stepping inside, I must admit I felt rather daunted, but once settled at the counter, the delightful aroma of vinegared rice made my stomach rumble loudly.
+\
+Led by the hand, we arrived at a sushi restaurant with the unmistakable air of a high-end establishment, evidently one of Yui-san's regular spots. Honestly, I'd hesitated before stepping inside, but the moment I settled onto the counter seat, the pleasant smell of vinegared rice set my stomach growling.
 
-　Not knowing where to start, I left it to the chef for my first piece. I dabbed a little soy sauce onto the glistening, translucent white flesh and took a bold bite.
+I had no idea where to even start, so I ordered the chef's choice, and for the very first piece, glossy, translucent white fish, I dipped it lightly in soy sauce and took the plunge.
 
-One mouthful, and my eyes widened involuntarily.
+One bite, and my eyes widened, unbidden.
 
-"Mmm, delicious...!"
+"Mm— this is delicious...!"
 
-Seeing me murmur in delight, Yui-san, seated beside me, smiled happily.
+At the small sound of appreciation that escaped me, Yui-san, sitting beside me, smiled, happy.
 
-"Kanata, you still eat so deliciously. It's adorable."
+"You still eat like it's the best thing you've ever had, Kanata. Cute."
 
-"Adorable," she said. Hearing that, I felt a sudden tightening deep in my chest. Hastily averting my gaze, Yui-san smiled and brought her own sushi to her mouth.
+*Cute* — hearing that, something deep in my chest clenched, tight. Flustered, I looked away, and Yui-san laughed and brought a piece of sushi to her own mouth too.
 
-"So, Yui-san, you always eat such delicious things, don't you..."
+"You always eat this delicious food, Yui-san..."
 
-Well, she is the president, after all. She must earn a hefty salary too. Seeing her like this now, I felt she had gained a more mature composure compared to back then.
+No wonder, being a company president. She must earn plenty too, and watching her now, properly, I feel like she's carrying even more of an adult's poise than she did back then.
 
-　As I watched her with interest, Yui-san shook her head with a smile.
+Impressed, I said as much, and Yui-san laughed and shook her head.
 
-"I don't eat like this all the time, you know. Only on special occasions. When work slows down a bit, or as a treat for myself."
+"I don't always eat like this. Only on special days. When work eases up, or as a reward to myself, that kind of thing."
 
-Freshly made sushi arrived from behind the counter. Squid this time, perhaps? With delicious sushi arriving one after another, this place felt like heaven.
+A freshly formed piece of sushi arrived from across the counter. Squid, this time, maybe. One delicious piece after another kept coming, and it felt like this place was some kind of heaven.
 
-"Then why did you bring me here today? Did the business talks with my company go well, or something?"
+"Then why'd you bring me here today? Did the negotiation with my company go well, or something?"
 
-With a pop, I stuffed another piece into my mouth and tentatively probed. Honestly, I couldn't fathom any connection between Yui's company and mine.\
-Not sure if she'd tell me, I asked anyway. Yui just smiled and shook her head again.
+Taking another bite, I tried, just a little, to probe. Honestly, I have no idea at all what connection there could be between Yui-san's company and mine.\
+I didn't know if she'd actually tell me, but I tried asking anyway, and Yui-san laughed again and shook her head.
 
-"No. Not that... It's because I got to see you again. Today's a special day for me."
+"No. That's not it... it's because I got to see you again, Kanata. Today's a special day, for me."
 
-Staring straight into my eyes, Yui said it so casually. Oh, for heaven's sake. Hearing that, I couldn't stop my heart from racing against my will.\
-I should have known she was the sort to say things like that so nonchalantly. Regaining the immunity I lost over these four years is going to take a while longer.
+Looking straight into my eyes, Yui-san said it, easy as anything. Ah, come on. Hearing something like that, my heart, against my own will, wouldn't stop racing.\
+I should have already known — this is exactly the kind of person who says things like this without a second thought. It seems like it'll take a while yet before whatever resistance I lost over these four years comes back.
 
-"Um... Yui-san, why were you at our company? We haven't done business together before, have we?"
+"Um... why were you at my company today? We've never had any dealings before, have we?"
 
-Well, there was no helping it now. I decided to just ask outright.\
-When she saw my face that afternoon, Yui-san had genuinely looked shocked. So she definitely hadn't known I worked for this company.\
-It felt like nothing short of divine mischief – such a truly coincidental reunion.
+Well, no helping it now. I decided to just go ahead and ask, plainly.\
+Earlier, the instant she saw my face, Yui-san had genuinely looked startled. So she couldn't have known I worked at this company.\
+It felt like nothing short of some prank of God's, this coincidental reunion.
 
-"Well, we haven't done any business with Kanata's company yet. Why I was here... that's still a secret."
+"No dealings with your company, not right now. Why I was there — still a secret."
 
-She still wouldn't tell me. I understood, of course. If business did come up in the future, I'd be an employee of a client company. She couldn't carelessly leak information.
+Figured she wouldn't tell me. It's true, if there might be dealings between our companies down the road, I'd essentially be an employee of one of her business partners. So I understand — she can't afford to let information slip carelessly.
 
-"I won't tell anyone... you could tell me, you stingy Yui-san."
+"I won't tell anyone... you could just tell me, you know. You're so stingy, Yui-san."
 
-"Sorry, don't sulk. I can't say now, but you'll find out eventually."
+"Sorry, don't sulk. Can't say it right now, but you'll understand eventually."
 
-Really? When I gave her a sceptical look, Yui-san just laughed and stuffed another piece of sushi into her mouth, as if to distract me. I followed suit, taking another bite. The rich, fatty otoro was so exquisite it felt like my cheeks might literally fall off.
+I wonder if that's really true. I sent her a doubting look, and Yui-san laughed and, deflecting, brought another piece of sushi to her mouth. Drawn along, I took another bite too. The rich, fatty otoro was so good it felt like my cheeks might fall right off.
 
-　Only now did it occur to me that talking while eating something delicious isn't a good idea. This flavour threatened to gloss over everything, everything.
+A little late, I thought — talking while eating something this delicious isn't really fair. It felt like every last thing could get glossed over, forgiven, buried under how good the food tasted.
 
-Suddenly, as if remembering something, I stared at Yui-san's left hand. Slightly long nails with polish. On her white, long ring finger, there was still no ring.\
-Earlier, I'd felt relieved she wasn't wearing one, but knowing Yui-san, I couldn't quite dismiss the possibility she simply wasn't wearing it.
+Almost as an afterthought, I found myself looking at Yui-san's left hand. Nails done, slightly grown out. On that long, pale ring finger — still no ring.\
+I'd felt relieved earlier, no ring on her hand, but knowing Yui-san, I couldn't quite rule out the possibility she was simply choosing not to wear one, even so.
 
-　My curiosity got the better of me, and words I should have kept to myself slipped out.
+Unable to shake the curiosity, words that should have stayed locked inside my heart slipped out before I could stop them.
 
-"...You're not married yet, are you?"
+"...You're still not married, then."
 
 "Hm? Ah, yeah."
 
-Noticing my gaze fixed on her left ring finger, Yui answered nonchalantly.
+Maybe she'd noticed my eyes fixed on her ring finger, because Yui-san answered like it was nothing at all.
 
 "When... are you going to?"
 
-I didn't want to ask, but I did. I know it's contradictory. Then those dark eyes fixed on mine, as if seeing straight through my thoughts. As ever, I couldn't tell what those dark eyes were thinking.
+I didn't want to ask, and yet I wanted to know. Contradictory, even to myself. Those black eyes fixed on mine, steady, as if trying to see straight through to what was inside my heart. Same as always, I can never tell what's going on behind them.
 
-"I won't. I've no intention of marrying."
+"I'm not going to. I don't intend to get married."
 
-"Eh...? W-what about the engagement? Did you call it off?"
+"Eh...? Wh-what happened to the engagement? Did you break it off?"
 
-"No, not yet. But once this quarter's accounts are finalised, I intend to tell Father. If I want to push through my own ideas, I can't just show up empty-handed without any track record, can I? This company had been underperforming for ages, so I saw it as an opportunity. I asked to be put in charge, promising I'd deliver results within three years. And this year marks the third year... I intend to deliver solid results and prove that we can manage just fine without Shinji."
+"No, not yet. But once this fiscal year closes, I'm planning to tell my father. If I want to push my own opinion through, I can't exactly show up empty-handed with nothing to back it up, right? This company had been struggling for a long time, so I figured it was my chance. I asked to be given management, promising results within three years. This is the third year now... I wanted to actually deliver, and prove that I'll be fine without Shinji."
 
-　Frankly, I was surprised. After all, during university, Yui hadn't seemed particularly keen on company management. She didn't even appear interested. Amazing. People can change this much in just four years.
+Honestly, that caught me off guard. Because back in college, Yui-san had never seemed especially eager about running the company. Didn't seem interested in it at all, really. Incredible. People really can change this much, in four years.
 
-"...Yui, you must have worked incredibly hard."
+"...Yui-san, you really worked hard, didn't you."
 
-　I thought about Yui's four years of effort and hardship. While I was whining and clinging to memories, Yui had kept pushing forward, working tirelessly. The thought that perhaps only I had been left behind all that time made me feel terribly sad.
+I thought of the effort, the hardship, Yui-san must have carried these four years. While I was sniveling, clinging to memories, Yui-san had kept pushing forward, further and further, this whole time. Realizing I might be the only one left behind, stuck back in that old time — something in me ached, unbearably.
 
-"Getting dumped by Kanata woke me up. Realising that if you give up, you'll never get what you want – that was all thanks to Kanata."
+"Getting turned down by you, that's what woke me up. If you give up, you'll never get anything you actually want — I only realized that thanks to you, Kanata."
 
-　Thanks to me, eh? I wonder what it is Yui-san truly wants.\
-After breaking off the engagement, what next? Does she want a new romance... or something like that?
+Thanks to me, huh. What is it that Yui-san actually wants?\
+Breaking off the engagement, and then what? A new love, maybe, something like that... I wonder.
 
-Four whole years have passed since then. Am I no longer in Yui-san's heart?
+Four whole years have passed, since then. Am I already gone, from inside Yui-san's heart?
 
-"I... don't recall ever rejecting Yui-san."
+"...I don't remember ever turning you down, Yui-san."
 
-True, I did say we should part ways, but I did tell you I liked you. So, in my mind, I didn't break up with you.\
-When I blurted that out in desperation, Yui-san laughed out loud, "Ahaha."
+It's true I said I'd leave. But I told you, properly, that I loved you. So, in my own heart, I never turned you down.\
+Grasping at whatever I could, I said it, and Yui-san laughed, out loud.
 
-After leaving the shop, it had grown completely dark outside. I'd harboured just a tiny bit of hope, but she didn't invite me to the next place.\
-Well, I suppose that makes sense. Tomorrow's a weekday too, and unlike me, Yui-san must be busy.
+*
 
-"Kanata, I'll drive you home. My car's parked nearby."
+Once we left the restaurant, it had gone completely dark outside. I'd allowed myself, just a little, to hope — but she didn't invite me anywhere else.\
+Fair enough, I suppose. Tomorrow's a weekday too, and unlike me, Yui-san's surely busy.
 
-"Eh, it's alright, you don't need to go to that trouble. I can catch the train home."
+"Kanata, let me drive you home. My car's parked nearby."
 
-Feeling bad, I shook my head from side to side. Yui-san bent down slightly and peered up at my face. Her mischievous eyes stared intently into mine.
+"Eh, it's fine, you don't need to go that far. I can take the train."
 
-"...You don't need to be so wary. I'm not going to attack you or anything, you know?"
+Feeling bad, I shook my head, side to side, and Yui-san bent down slightly to peer into my face. Those mischievous eyes stared straight into mine.
 
-"N-no, it's not that! It's just... I thought you were busy, Yui-san..."
+"...You don't have to be this on guard. I'm not going to jump you, you know?"
 
-"If that's the case, don't worry about it. Come on, let's go."
+"Th-that's not what I meant! I just figured you'd be busy, Yui-san..."
 
-Saying that, she took my hand. That warm palm, unchanged from those days. I couldn't possibly pull away; I could only let myself be led silently by that hand.
+"Don't worry about that. C'mon, let's go."
 
-The car parked in the lot was different from the one I remembered Yui-san driving. A white luxury saloon. This time, it didn't seem to be a Japanese make.
+She said it and took my hand. A warm palm, unchanged from back then. Unable to shake it off, I had no choice but to let myself be led along, silent.
 
-"...Yui-san, you've changed your car, haven't you?"
+*
 
-"Hm? Ah, yes. But this is also Yuki-nii's hand-me-down, you know. I don't really mind what it is, as long as it runs."
+The car parked in the lot was different from the one I remembered from Yui-san back then. A white luxury sedan. Not a Japanese make this time, it seemed.
 
-Saying that, she opened the passenger door for me, just as she always had. But getting into this unfamiliar car, I noticed a scent different from my memory.
+"...You changed cars, Yui-san."
 
-Yui-san got into the driver's seat a little later. Huh— I thought. I hadn't noticed it earlier, but being alone with her in this enclosed space, the scent felt different from back then.\
-Oh, I see... Yui-san... you changed your perfume.
+"Hm? Ah, yeah. Still a hand-me-down from Yuki-nii, though. I don't really care what I drive, as long as it runs."
 
-The car began to move slowly.
+Saying that, opening the passenger door for me — that hadn't changed either. But climbing into the unfamiliar car, the scent inside was different from what I remembered.
 
-Over these four years, I hadn't changed a bit. But Yui-san had. Suddenly, a sharp ache welled up inside me, stinging deep in my chest.
+A beat later, Yui-san climbed into the driver's seat. Huh, I thought. I hadn't noticed it earlier, but now, alone together in this enclosed space, the scent was different from back then.\
+Right — Yui-san must have changed her perfume.
 
-"This is fine here. That's my flat, you see..."
+The car eased into motion, smooth.
 
-She flicked on the hazard lights and pulled over beside the building. With no further plans, I'd already arrived home.\
-Could it be that, in Yui-san's mind, I'd truly become just a memory? Perhaps she'd simply been surprised by our chance meeting, felt nostalgic, and invited me to dinner for that reason alone. Maybe she genuinely felt nothing more now.
+These four years, I hadn't changed a single thing. But Yui-san has. Something in me ached, suddenly, sharp, a small sting deep in my chest.
 
-Would this be the last time I saw Yui-san? As I hastily unbuckled my seatbelt, Yui turned back towards me.
+*
 
-"Oh, right, Kanata. Do you have any business cards? I'll give you mine, so hand yours over."
+"This is fine here. That's my apartment, right there..."
 
-"Eh? A business card?"
+She flicked on the hazard lights and pulled over beside my building. No promise of a next time, and already, we'd arrived home.\
+Maybe, in Yui-san's heart, I really have become nothing but a memory. Surprised by the coincidental reunion, maybe just a little nostalgic, and that's the only reason she invited me to dinner — maybe there's really nothing left, no feeling at all, beyond that.
 
-I didn't usually carry them, but I was sure I had one tucked away in my wallet.\
-Fumbling frantically in my bag for it, Yui pulled a cardholder from her inside pocket and handed me one of hers.
+Is this the last time I'll get to see Yui-san? Fleeing, I reached to undo my seatbelt, and Yui-san turned to face me.
 
-　Then, Yui stared intently at the card I handed her.
+"Oh, right, Kanata. Do you have a business card? I'll give you mine, so let me have one too."
 
-"Web Production Division... Management Control Team..."
+"Eh, um, a business card?"
 
-After reading out my department, Yui suddenly smiled happily.
+I don't usually carry them around, but I think I had exactly one tucked in my wallet.\
+Fumbling, I pulled a card from my bag, and Yui-san took a card case from her inner pocket and handed one to me in exchange.
 
-"Um, what is it?"
+Then she studied the card I'd handed her, closely.
 
-"Oh, nothing. I just thought... maybe it's fate that we've met again like this."
+"Web Production Division... Management Team..."
 
-Hearing that, my heart leapt. Please don't speak of fate so lightly.\
-Even if you didn't mean it, those words carry such immense weight for me.
+Reading my department title out loud, Yui-san smiled, softly pleased.
 
-"...Yui-san, you're still the same in that way. Womaniser."
+"Um, what's wrong?"
 
-Saying this with a sulky tone, Yui-san smiled and reached out to me. Startled, I froze, and she gently stroked the edge of my ear.
+"No, nothing. Just thought — maybe, getting to see you again like this, this really is fate."
 
-"I've been meaning to say this for ages... you're still wearing those earrings, aren't you?"
+Hearing that, my heart lurched, sharp. Please don't say something like "fate" so lightly.\
+Even if you don't mean anything by it, that word carries real, heavy weight, for me.
 
-I gasped involuntarily. Wearing these earrings, given to me by Yui-san, had become so natural to me that I hadn't even noticed I was wearing them today. Embarrassed, my cheeks grew hot.
+"...You really haven't changed, Yui-san. Charming everyone, same as always."
 
-"I-is that not alright?　...I mean, I just like them, there's no deeper meaning or anything..."
+I said it, sulking, and Yui-san laughed and reached a hand toward me. Frozen, startled, she gently traced the edge of my ear.
 
-"No, it's not that. I'm really happy."
+"I've been meaning to say this the whole time... you're still wearing those earrings."
 
-Her hand, which had been gently stroking my ear, withdrew, then clasped mine tightly.\
-Why? How come? Why would she hold my hand?\
-Uncertain of her true meaning, I timidly looked up at Yui-san, and her eyes softened into a gentle squint.
+Startled, I caught my breath. Wearing these earrings, the ones Yui-san gave me, had become so natural to me that I hadn't even registered I still had them on today. Embarrassed, my cheeks went hot.
 
-"Hey, Kanata. ...Will you meet me again?"
+"I-Is that a problem? ...I just really like them, that's all, no deeper meaning..."
 
-Those eyes, as deep and dark as ever, captured my heart and wouldn't let go.\
-For four years, I'd been so terribly lonely, so terribly sad. It might be an excuse, but I think it was because I'd felt the warmth of that hand again — a hand I thought I'd let go of.
+"No, it's not a problem. I'm really happy."
 
-Even though I knew I shouldn't, all I could do was nod silently.
+Gently, the hand at my ear pulled away, and then took my hand instead, squeezing tight.\
+Why? What is this? Why is she holding my hand?\
+Unable to read her intent, I looked at her, hesitant, and her eyes narrowed, gentle.
+
+"Hey, Kanata. ...Will you see me again?"
+
+Those black eyes, endlessly deep, unchanged from back then, caught my heart and wouldn't let go.\
+These four years, I've been so terribly lonely, so alone. Maybe it's an excuse, but I think it's because I felt, again, the warmth of a hand I'd once let go of.
+
+Even knowing I shouldn't, all I could do was nod, silent.

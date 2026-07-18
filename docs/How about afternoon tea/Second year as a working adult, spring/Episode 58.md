@@ -1,240 +1,250 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 8
 parent: Second year as a working adult, spring
-sequence: 61
-title: 'Episode 58: Is it better to have a wealthy partner?'
+sequence: 62
+title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
 ---
-Episode 58: Is it better to have a wealthy partner?
+## Episode Fifty-Eight: Is It Better If Your Partner Is Rich?
 
-Weekend. A welcome party for the former web production division was being held, so after finishing work, I headed to the venue hotel with Mitsuya-san and Seno-san.\
-It was only two stops by train from the head office, and not far from the nearest station, so the three of us walked together.
+\
+The weekend. With the welcome party for the former Web Production Division being held, I finished up work and headed toward the hotel venue with Mitsuya-san and Seno-san.\
+Two stops by train from the head office, and not far from the station once we got off, so the three of us walked together.
 
-　Manager Yamazato couldn't attend as she had to pick up her child from nursery, so I couldn't say I was entirely without a twinge of unease about the absence of someone to act as a buffer between Mitsuya-san and Seno-san.
+Yamasato-san couldn't make it, having to pick her kid up from daycare, and I couldn't help feeling a small twinge of anxiety about the buffer between Mitsuya-san and Seno-san being absent.
 
-"Aosawa-san, do you have a boyfriend? You must, you're so cute."
+"Aozawa-san, do you have a boyfriend? You must, you're cute."
 
-Seno-san doesn't get on well with Mitsuya-san, but she tends to speak to me quite frankly, so I personally don't find her difficult.
+Seno-san doesn't get along with Mitsuya-san, but she's fairly casual and friendly with me, so I don't particularly mind her.
 
 "No, I don't."
 
-"Really? Well then, let's go to a mixer together sometime."
+"Really? Then let's go to a mixer together sometime."
 
-Seno-san's popular with men, yet she doesn't have a boyfriend. I find that a bit — no, quite surprising.
+Seno-san's popular with men, and yet no boyfriend — a little, or actually quite, surprising.
 
-But a mixer, huh — what should I do? As I let my gaze wander, searching for a way to politely decline, Mitsuya-san suddenly pulled me closer, her arm firmly around my shoulder.
+But a mixer, huh — what do I do. Is there a graceful way to turn this down, I wondered, eyes wandering, when Mitsuya-san suddenly pulled me in close by the shoulder.
 
-"Seno-san, Aosawa-chan is currently in the midst of a relationship. Don't drag her down the wrong path."
+"Seno-san, Aozawa-chan's in the middle of a relationship right now. Don't drag her into bad habits."
 
-I was grateful she covered for me like that, but Seno-san narrowed her eyes with a sly grin at Mitsuya-san's slightly barbed remark.
+Grateful as I was that she'd covered for me, Mitsuya-san's slightly barbed delivery made Seno-san's eyes narrow, amused.
 
-"Oh, come off it, Mitsuya-san. Are you sulking because you weren't invited? Fine, I could invite you along. You don't have a boyfriend anyway, do you? You're such a workaholic."
+"Aw, come on, Mitsuya-san. Mad you didn't get invited? Fine, I'll invite you too. You don't have a boyfriend either, right? Too much of a work demon for that."
 
-Caught between them, the tense atmosphere made my breath catch in my throat.
+Caught between them, I nearly choked on the tension in the air.
 
-Mitsuya-san's slanted eyes sharpened further, a strained smile playing on her lips.
+Mitsuya-san's narrow eyes sharpened further, and she forced out a strained smile.
 
-"...You're only going to mixers because you don't have a boyfriend either, aren't you?"
+"...You're the one going to mixers because you don't have a boyfriend either, aren't you?"
 
-"I'm not looking for romance. I'm searching for a future partner. If he's not wealthy, he's not worth dating."
+"I'm not looking for romance. I'm hunting for a future partner. No point dating anyone who isn't rich."
 
-Not wealthy, eh? It's true. Having listened to various adult women, I've come to understand that once you pass your mid-twenties, women do tend to become more practical.
+Not rich, no point dating them, huh. It's true, past mid-twenties, women do tend to get more practical about this kind of thing — I've picked that up from listening to various older women talk.
 
-　The kind of love you could pursue purely on feelings back in student days gradually becomes harder with each passing year.\
-You start choosing partners based on their job, income, status.
+Love that could run purely on feeling back in college gets harder and harder to sustain, year by year.\
+You start choosing partners by profession, by income, by status.
 
-I suppose that’s not just true for Seno-san, but probably for any woman.
+Not just Seno-san, either — probably true for most women, one way or another.
 
-Yui-san was wealthy from the moment we met, but even if she hadn't been, I would still—
+Yui-san had already been rich when I met her, but even if she hadn't been, I would have—
 
-As if to interrupt that train of thought, Mitsuya-san let out a deep sigh.
+Just as that thought threatened to unspool further, Mitsuya-san cut it off with a heavy sigh.
 
-"I couldn't care less about your preferences, but make sure you don't drag Aosawa-chan into this."
+"Don't care what your type is, just don't drag Aozawa-chan into it."
 
-Seno-san gave a faint smile and replied with a rather vacant "Aye."
+Seno-san gave a thin smile and a breezy "okaaay" in response.
 
-　Mitsuya-san seems the type who prefers independent relationships, so she probably doesn't care about a partner's income or status. Their values must be polar opposites.
+Mitsuya-san's the type who favors independent relationships, so she probably doesn't care about a partner's income or status at all. Complete opposite values, I'd guess.
 
-I suppose it makes sense that these two just don't get along.
+No wonder these two don't get along.
 
-Lost in such thoughts, we arrived at the venue in no time.
+Caught up in thinking all that, we arrived at the venue before I knew it.
 
 ＊＊＊
 
-As expected, the cuisine at a high-class hotel is something else. After brief greetings, the toast was made and the array of dishes laid out immediately caught the eye.
+High-class hotel cuisine really is a different tier. After brief opening remarks and a toast, the spread of dishes laid out immediately caught every eye in the room.
 
-　Standing reception was perfect. Apparently, we could eat and drink as much as we liked today. The company was footing the bill, of course.
+Glad it was buffet-style. Apparently we could eat and drink as much as we wanted today, company's treat, of course.
 
-I’d assumed that since it was a welcome party, I’d have to wander the tables with a bottle of beer in hand. But Seno-san informed me, "Since the president changed, the culture of female staff going round to pour drinks has disappeared. Feel free to move about as you please."\
-So, taking her up on that, I piled my plate high with food.
+I'd half-expected, given it was a "welcome party," that we'd have to make the rounds table to table, bottled beer in hand, pouring for people — but Seno-san filled me in: "Since the president changed, that whole custom of female employees going around pouring drinks disappeared, so feel free to just move around freely."\
+Taking her at her word, I piled my plate generously with food.
 
-"...Hotel food really is delicious, isn't it?"
+"...Hotel food really is delicious."
 
-Mitsuya-san remarked thoughtfully, her mouth full of prawns in chilli sauce. Seno-san, beer in hand, grinned broadly.
+Mitsuya-san said it, savoring, mouth full of shrimp with chili sauce. Seno-san, beer in hand, grinned.
 
-"Didn't they explain this during your induction training? Show your staff ID and you get 20% off restaurant meals. You should try it sometime."
+"Didn't they mention it during onboarding? Show your employee badge and restaurant meals get twenty percent off — you should go try it sometime."
 
-"Eh, twenty percent off? I think I got the benefits booklet... did you read it, Aosawa-chan?"
+"Eh, twenty percent off? I think I got a benefits booklet, but... Aozawa-chan, did you read it?"
 
-Asked by Mitsuya-san, I shook my head vigorously from side to side. I hadn't known we had such generous benefits.
+Asked by Mitsuya-san, I shook my head, side to side. I had no idea the benefits were this generous.
 
-"Well, I'd never dream of paying for dinner myself, though."
+"Well, personally, I'd never pull out my own wallet on a dinner date."
 
-Saying that, Mitsuya-san stuck out her tongue and laughed. Ah, so this is what they mean by a little devil type.\
-　She took a big bite of roast beef. Mmm, just as expected. It was incredibly delicious. The taste made it easy to understand why our company's restaurant business was doing so well.
+Seno-san said it, sticking her tongue out with a laugh. Ah, I see — this must be what people mean by "little devil" types.\
+I took a bite of roast beef. Yeah, just as expected — genuinely delicious. Explains why our company's restaurant business is doing so well.
 
-"...Seno-san, really, her attitude is completely different with men and women, isn't it?"
+"...Seno-san, you really do act completely differently around men versus women, huh."
 
-Mitsuya-san pointed this out to Seno-san with an exasperated look. Seno-san just laughed and shook his head.
+Mitsuya-san pointed it out, exasperated. Seno-san laughed and shook her head.
 
-"It's not that I treat men and women differently. There's no point in smiling at anyone but the wealthy. Even you, Aosawa-san, would prefer a rich partner if you were dating, right?"
+"I'm not changing my attitude based on gender. No point handing out smiles to anyone who isn't rich. Aozawa-san, wouldn't you rather date someone rich too?"
 
-Suddenly thrown into the conversation, I hurriedly pulled my focus back from my meal.
+Suddenly put on the spot, I scrambled to pull my attention back from my food to the conversation.
 
-"Er... I suppose so?"
+"Um... I guess so?"
 
-Admittedly, having money is better than not having it. But if you asked me if it was absolutely necessary, I wouldn't say so.
+It's true, I think having money is better than not having it. But if asked whether it's absolutely necessary, I don't think that either.
 
-　Because I can honestly say that even if Yui-san became penniless, my feelings for her wouldn't waver one bit.
+Because I can say, with full confidence, that even if Yui-san lost every last yen she had, this feeling of mine wouldn't waver, not even slightly.
 
-"What do you think, Mitsuya-san? Would you prefer a wealthy partner?"
+"What do you think, Mitsuya-san? Is it better if your partner's rich?"
 
-Struggling to answer, I turned the question to Mitsuya-san. She placed her hand on her chin, thought for a moment, then spoke.
+Struggling for an answer myself, I redirected to Mitsuya-san. She put a hand to her chin, thought it over for a moment, then spoke.
 
-"Hmm, if it's someone I like, I suppose it's fine if they earn less than me. I work too, after all."
+"Hmm, if it's someone I actually love, I don't mind if their income's lower than mine. I work too, after all."
 
-At that, Seno-san suddenly burst out laughing.
+At that, Seno-san burst out laughing.
 
-"Really? Mitsuya-san, you're surprisingly romantic, aren't you?"
+"Really? Mitsuya-san, you're surprisingly the romantic type."
 
-"...You're definitely mocking me, aren't you?"
+"...You're definitely making fun of me right now."
 
-This must be what they mean by being like cats and dogs. I took a sip of my lemon sour with a wry smile.
+Sworn enemies — is this what people mean by that phrase? I gave a wry smile and took a sip of my lemon sour.
 
-　Having eaten my fill, my plate was now completely empty. Leaving the two of them still bickering, I decided to head over to the Chinese food section next. The moment I made up my mind, I caught sight of Yui-san over Seno-san's shoulder and my heart skipped a beat.
+Having eaten my way through my plate completely, I figured I'd leave the two of them to their bickering and head to the Chinese food corner next — but just as I stood, I caught sight of Yui-san past Seno-san's shoulder, and my heart lurched.
 
-Yui-san had been going from table to table, greeting the staff, so I'd been thinking she'd probably come to this table too.
+She'd apparently been making the rounds table to table, greeting employees, for a while now, so I'd figured she'd make it to ours eventually too.
 
-　I set my lemon sour glass down on the table. Best leave getting food for later, I decided. Just then, Seno-san seemed to notice Yui-san.
+I set my lemon sour glass down on the table. Guess I'll go get more food after all. Just as I thought that, Seno-san seemed to notice Yui-san too.
 
-"Ah, President! We've been waiting for you! Please come over to this table too."
+"Ah, President! We've been waiting, come over to our table too~"
 
-Suddenly changing her tone, Seno-san hooked her arm around Yui-san's and pulled her sharply towards her.\
-Yui-san's arm sank into Seno-san's ample bosom.
+Her tone shifting instantly, Seno-san hooked her arm through Yui-san's and pulled, firm.
 
-　At that moment, I didn't miss the fact that Yui-san glanced at Seno-san's chest for just an instant.
+Yui-san's arm sank into the fullness of Seno-san's chest.
 
-A wave of unpleasant emotion boiled up deep within my chest. ...Yui-san, still lewd.
+At that moment, Yui-san's gaze flicked, just for the briefest instant, toward Seno-san's chest — and I didn't miss it.
 
-"Sorry I'm late, I was going round to each table one by one."
+Something unpleasant welled up, boiling, in the pit of my stomach. ...Yui-san, you pervert.
 
-Yui-san said this with a perfectly normal expression.
+"Sorry for the wait, I've been going table to table."
 
-"Have you both settled into the work yet, Mitsuya-san and Aosawa-san?"
+Yui-san said it, expression giving nothing away.
 
-I struggled to suppress the urge to puff out my cheeks in annoyance at that forced smile. Because that arm... Seno-san still had her grip on it.
+"Mitsuya-san, Aozawa-san, are you two getting used to the job?"
 
-While Mitsuya-san and Seno-san chatted cheerfully, I downed the lemon sour in one gulp, emptying it into my stomach.
+Given a polite, company-face smile, I fought hard to keep myself from puffing my cheeks out in a sulk. Because that arm — still caught in Seno-san's grip.
 
-Seizing a moment when they were deep in conversation, I picked up my empty plate and left the table.
+While Mitsuya-san and Seno-san exchanged pleasantries with her, smiling, I tipped my lemon sour back and drained it in one go.
 
-　Normally, leaving your seat when the president has come to your table is incredibly rude. I knew that perfectly well. I knew it was utterly inconsiderate.
+Catching a moment while they were absorbed in conversation, I grabbed my empty plate and slipped away from the table.
 
-But I couldn't bear it. I simply couldn't watch Yui-san arm-in-arm with another woman.
+Normally, leaving your seat while the president's standing right there talking to you would be enormously rude. I was fully aware of that. I knew how out of line it was.
 
-As I heaped a large portion of prawns in chilli sauce onto my plate to settle my churning stomach, a voice suddenly called out from behind me, making me turn round.
+But I couldn't stand it. I genuinely couldn't bear watching Yui-san with her arm linked through some other woman's.
 
-"Good evening, Aosawa-san."
+*
 
-This man — Niiyama-san — wore a deep navy suit, his hair slicked back with so much wax it gleamed under the lights, and had that distinctive smile where only one corner of his mouth turned up.
+Piling my plate with a heap more shrimp chili, trying to settle my roiling stomach, someone suddenly called out from behind me, and I turned.
 
-He was a male employee from the old web production department's creative team. I'm not particularly fond of him.
+"Aozawa-san, good work today."
 
-"Good evening..."
+Navy suit, hair slicked flat and shiny enough with wax to catch the light, that distinctive half-smirk — this was Niiyama-san.
 
-Niiyama glanced at the plate piled high with prawns in chilli sauce and chuckled softly.
+A male employee from the former Web Production Division's production team. I've never really been comfortable around this person.
 
-"You eat a lot, Aosawa-san, don't you? Doesn't look like it, does it?"
+"Good work to you too..."
 
-Was he mocking me? Unsure, I stared back at his eyes. Then he held out the glass of lemon sour he was holding towards me.
+Glancing at the mountain of shrimp chili on my plate, Niiyama-san let out a small laugh.
 
-"You finished yours earlier, didn't you? Here."
+"Aozawa-san, you eat a lot more than you look like you would."
+
+Is that supposed to be teasing? Unsure, I just stared back at him, and Niiyama-san held out the lemon sour glass he'd been holding.
+
+"You drained yours a second ago, right? Here."
 
 "Thank you..."
 
-"I've been wanting to talk to you for ages, but you never left the table."
+"I've been wanting to talk to you this whole time, but you never left that table."
 
-My face grew hot, probably from downing that drink earlier. Still, I didn't care. I took the lemon sour and gulped it down.
+My face had already gone warm, probably from downing that drink too fast earlier. Not caring, I took the offered lemon sour and drank it down too.
 
-I glanced sideways at the table. Seno-san was still holding Yui-san's arm.
+I glanced sideways at the table. Seno-san still had Yui-san's arm.
 
-　My chest felt like it was burning. Why doesn't she shake her off? I couldn't say that out loud, of course...
+Something in my chest prickled, hot. *Why don't you shake her off* — not that I could ever say that out loud.
 
-"Why don't we come over here and have a drink?"
+"Come drink with us over here, if you want."
 
-At this point, it was just drinking to drown my sorrows. When Niiyama-san suggested it, I nodded silently.
+Might as well drown my sorrows at this point. At Niiyama-san's suggestion, I nodded, silent.
 
-Because seeing them clinging to each other like that right in front of me? Keeping a straight face? There was no way I could do that.
+Because there was no way, absolutely no way, I could keep a straight face watching them stay pressed together like that right in front of me.
 
-Then, I lost track of how much time passed. While listening to  Niiyama-san talk, I stuffed myself full of food and washed it down with alcohol until, before I knew it, I was staggering so badly I couldn't walk straight.
+*
 
-Even after the closing remarks ended and everyone began heading home, Mitsuya-san and Seno-san seemed to notice me still leaning against the wall.
+I don't know how much time passed after that. Half-listening to Niiyama-san talk, stuffing myself with food, washing it all down with drink after drink — by the time I noticed, I was swaying too badly to walk straight.
 
-"Hey, why did you let Aosawa-chan drink so much?"
+Once the closing remarks wrapped up and everyone started heading home, Mitsuya-san and Seno-san apparently noticed me still propped against the wall.
 
-"Eh? My fault? Sorry, I didn't know she couldn't hold her drink."
+"Hey, why'd you let Aozawa-chan drink this much?"
 
-Mitsuya-san confronted Niiyama-san in a slightly angry tone.
+"Eh, my fault? Sorry, I didn't know she was such a lightweight."
 
-It wasn't Niiyama-san's fault. It was mine for guzzling it down. As I slumped down, slumping into a crouch, Seno-san gently stroked my shoulder.
+Mitsuya-san, voice sharp with something close to anger, confronted Niiyama-san.
 
-"Aosawa-san, are you alright?"
+It's not his fault. It's my own fault, for drinking that much. My legs gave out and I sank into a crouch, and Seno-san gently rubbed my shoulder.
 
-Of course, Seno-san doesn't know I like Yui-san. So I understand it's unavoidable, and I know it's wrong to feel jealous... but seeing that attitude, I couldn't help but wonder.
+"Aozawa-san, you okay?"
 
-After all, she said she "likes rich people," and that she "doesn't treat men and women differently"... so maybe she's fine with women too. Or was it just that we were close? I couldn't tell. I still didn't know what kind of person Seno-san was.
+Seno-san obviously has no idea I love Yui-san. So I know it's unfair, misplaced, to feel jealous toward her — but after seeing that, some suspicious part of me can't help wondering, just maybe.
 
-"Ah, right. I'll walk Aosawa-san home."
+Because she said she likes rich people, and "not changing her attitude based on gender" — does that mean women are fair game too? Or is she just naturally that touchy-feely with people? I don't know. I don't know Seno-san well enough yet to say.
 
-Some incomprehensible exchange was happening above my head. Walk me home? Me?
+"Ah, right. I'll walk Aozawa-san home."
 
-I didn't want Niiyama-san to know where I lived. Just as I lifted my face to say I could manage alone, a calm voice rang out.
+Some exchange I couldn't quite follow happened above my head. Walk home — me?
 
-"I'll take her home. You all can go now."
+Ugh, I don't want Niiyama-san knowing where I live. I'll say I can get home myself, I thought, lifting my face just as a calm, composed voice cut through.
 
-I recognised that voice immediately as Yui-san's. Pushing through the crowd, Yui-san appeared and crouched down to meet my eyes.
+"I'll take her home, so the rest of you can head out."
 
-"Are you alright? Can you stand?"
+I recognized that voice as Yui-san's immediately. Pushing through the small crowd, Yui-san crouched down to meet my eyes.
 
-Hearing that beloved, gentle voice, I nodded involuntarily. Yui-san smiled softly, took my hand, and helped me up.
+"You okay? Can you stand?"
 
-　Even so, my legs felt wobbly, and she supported me as if holding me close.
+At that beloved, gentle voice, I nodded, unable to help myself. Yui-san smiled, soft, took my hand, and pulled me to my feet.
 
-I couldn't tell if my heart was racing because of the alcohol or because of Yui-san.
+Still unsteady on my feet, she ended up supporting me, practically holding me up.
 
-"President, it's alright. I'll see her home."
+Whether my heart's racing from the alcohol or from Yui-san, I honestly can't tell anymore.
 
-It seemed Mitsuya-san had offered out of concern, but Yui-san shook her head with a bright smile.
+"President, it's fine, I'll walk her home."
 
-"No, I'm fine. I'll take a taxi home, so don't worry. Everyone, thank you for your hard work today."
+Mitsuya-san offered, concerned, but Yui-san smiled brightly and shook her head.
 
-Having said that, Yui-san took my arm and supported me.
+"No, it's fine. We'll take a taxi, don't worry about it. Thank you all for your hard work today."
 
-In the back seat of the taxi, I leaned against Yui-san's shoulder and closed my eyes. I'd done a bad thing to Mitsuya-san and Seno-san too.
+Saying that, firm and final, Yui-san took my hand and guided me along, still supporting my weight.
 
-　But I was glad Yui-san cared about me. I was relieved she'd come.
+*
 
-"Kanata, are you alright? Feeling sick?"
+In the back seat of the taxi, I leaned against Yui-san's shoulder and closed my eyes. Felt bad, toward both Mitsuya-san and Seno-san.
 
-Her dark eyes looked at me with concern. I was so happy I couldn't help but smile weakly.
+But I was happy Yui-san had come for me. Relieved she'd shown up.
+
+"Kanata, you okay? Not feeling sick?"
+
+Those black eyes, watching me with real concern. Happiness welled up despite myself, and a loose, helpless smile spread across my face.
 
 "I'm... fine."
 
-She'd told me not to drink too much because tomorrow was our date.\
-But at least I could stay with Yui-san until we got home.
+She'd told me not to drink too much, since tomorrow was our date. And here I'd gone and done exactly that.
 
-　I hugged her tightly, as if reclaiming the arm Seno-san had snatched away earlier, and closed my eyes again, feeling safe.
+But at least, this way, I get to stay with Yui-san until we get home.
 
-I'd complain about her being conscious of Seno-san's chest later. Once we got home and got out of the taxi.
+Hugging tight to the arm I'd stolen back from Seno-san earlier, I closed my eyes again, relieved.
 
-That's what I thought, but I was so drunk at the time, I hadn't realised at all that the taxi was heading towards Yui-san's flat, not my house.
+I'll save my complaints about her staring at Seno-san's chest for later. Once we get home, once I'm out of the taxi. That's when.
+
+Or so I'd intended — but by then, I was genuinely, thoroughly drunk, and had absolutely no idea, none at all, that the taxi wasn't heading toward my apartment, but toward Yui-san's condo instead.

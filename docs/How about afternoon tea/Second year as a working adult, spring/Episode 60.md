@@ -1,172 +1,182 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 10
 parent: Second year as a working adult, spring
-sequence: 63
-title: "Episode 60: If you're that careless, next time I really will eat you"
+sequence: 64
+title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
 ---
-Episode 60: If you're that careless, next time I really will eat you
+## Episode Sixty: Be Careless Like That Again, and Next Time I'll Really Eat You Up
 
-You stand before me, gazing at me with such tenderness. That look of yours, I adore it beyond measure. It always makes my heart burn deep within.
+\
+Standing right in front of me, you're gazing at me like something precious. I love that look in your eyes so much. It always sets something warm burning deep in my chest.
 
-But the moment I returned her gaze, I realised instantly this was a dream.
+But looking back at her, I understood immediately — this is a dream.
 
-For the smiling you was just a little younger than now, still the same as when I first fell in love back in my school days.
+Because the you smiling at me is just slightly younger than now, exactly as you looked back when I first fell in love, as a student.
 
-In the four years before we met again, I had this dream countless times. I remember how my longing to see you surely conjured these dreams, and how I felt utterly crushed each time I awoke.
+Over the four years before we met again, I had this same dream, over and over. My longing to see her must have been conjuring it up, and I remember, every time I woke, feeling struck down all over again.
 
 "...Yui-san."
 
-I call your name, savouring it.
+I said her name like I was savoring it.
 
-"Yes?"
+"What is it?"
 
-Your gentle voice returns. Those eyes gazing at me, unchanged from then to now. Just being looked at like that makes me feel like I might forget to breathe.
+That gentle voice answered back. Those eyes, watching me, unchanged now or then. Just being looked at like that is enough to make me forget to breathe.
 
 "Hold me tight."
 
-When I murmured it, she smiled happily and drew my body close.
+Murmured like that, she smiled, happy, and pulled my body into an embrace.
 
-Back in our school days, that's how it was. Whenever I begged to be held, Yui-san would always embrace me like this.
+That's how it always was, back in college. Whenever I asked to be held, Yui-san always held me, exactly like this.
 
-As I pressed myself against her body, I could smell Yui-san's scent, the one I loved so much.
+Nestling into her body, that beloved scent of Yui-san's reached me.
 
-Ah, I love you. I really do love you. I love you so much I can't stand it. No matter how far apart we were, this feeling never changed.
+Ah, I love this. I really do love you. I love you so much I can't stand it. However far apart we were, this feeling never once changed.
 
-"...Kanata, I love you so much."
+"...I love you so much, Kanata."
 
-As if reading my thoughts, you held me tight and whispered sweetly.
+As if reading straight through my feelings, the you holding me whispered it, sweet.
 
-This is a convenient dream. It only plays out this way because I want you to say it. I know that, yet I'm so happy I can't help but squeeze you back tightly.
+This is a convenient dream. Because I want to hear those words, it just reproduces them for me. Knowing that, I'm still happy, and I can't help hugging that body back, tight.
 
 "...Yui-san, kiss me."
 
-Because it's a dream. I can say anything freely. The Yui-san of that time would surely respond. I don't know about the Yui-san of now.
+Because this is a dream. I can say anything I want, freely. The Yui-san from back then would surely answer. Whether the Yui-san of now would — I don't know.
 
-Just as I wished, the Yui-san in my dream smiled happily and gently pressed her lips to mine.
+Just as I'd wished, the dream Yui-san smiled, happy, and brought her lips gently close to mine.
 
-Please don't wake me, I prayed as I closed my eyes too.\
-I want to stay in this dream forever. If possible, forever. That was my wish—but.
+Please don't wake up, I wished, closing my eyes too.\
+I want to stay in this dream forever. If possible, forever. I wished that, and yet—
+
+*
 
 "...Kanata, wake up. Kanata."
 
-"Mm, mmm..."
+"Mm, mnh..."
 
-Still enveloped in a fluffy drowsiness, I slowly lifted my eyelids as my shoulder was shaken. I was having such a wonderful dream. Blinking repeatedly, as if rebooting my foggy head, I met the gaze of those dark eyes peering down at me from an unfamiliar ceiling.
+Still wrapped in a soft, hazy drowsiness, my shoulder shaken, I slowly lifted my eyelids. I'd been having such a good dream. Blinking hard, trying to reboot my foggy head, I met an unfamiliar ceiling, and those black eyes peering down at me.
 
-"Hmm, what's that...? Yui-san... ?"
+"Mm, huh...? Yui-san...?"
 
-Perhaps I'm still seeing the continuation of my dream. But it seems different from the dream I had just now. Before my eyes stands a slightly more mature Yui-san, different from the one in my dream.
+Maybe I'm still dreaming the continuation. But it seems different from before. In front of me is a Yui-san slightly more grown-up than the dream one.
 
-When I called her name, she smiled softly and gently stroked my cheek.
+Saying her name, she laughed softly and gently stroked my cheek.
 
-"...Come on, wake up. We promised to go on a date, didn't we?"
+"...Hurry up and wake up. You promised we'd go on a date, remember?"
 
-Hearing that, my consciousness shot back up instantly. Almost immediately, memories of last night flashed back.
+Hearing that, consciousness surged back all at once. And right behind it, last night's memories came flashing back.
 
-"...Blimey!"
+"...Waah!"
 
-Startled, I bolted upright. Without thinking, I reached down to check if I was dressed, my hand going straight for my chest. Seeing me like that, Yui laughed out loud.
+Startled, I bolted upright. Without thinking, I clapped a hand to my chest, checking whether I was still dressed, and Yui-san, watching me do it, burst out laughing.
 
-"Kanata, you're overreacting. There's no need to be so scared, I didn't do anything. Don't you remember last night?"
+"Kanata, you're way too startled. You don't have to be that scared, I didn't do anything. Don't you remember last night?"
 
-I felt my face flush so hotly it made a hissing sound.
+I could feel my face heating up enough that it might actually make a sound.
 
-There was no way I could have forgotten. Getting completely drunk, having Yui-san look after me, begging her to hold me – everything. I remembered every single word I'd said to Yui-san.
+There's no way I don't remember. Getting thoroughly drunk, being nursed by Yui-san, asking her to hold me — all of it. I remember, word for word, exactly what I said to her.
 
-　But... admitting it was too embarrassing, and I found myself shaking my head from side to side.
+But — admitting that was far too embarrassing, and I found myself shaking my head, side to side, without meaning to.
 
 "...I don't remember."
 
-As I blurted out this desperate excuse, mischievous eyes peered down at my face.
+I forced it out, and mischievous eyes peered into my face.
 
 "...Hmm?"
 
-Feeling awkward, I looked away, and Yui-san laughed again at my reaction.
+Embarrassed, I looked away, and Yui-san watched me and laughed again.
 
-"...Well, it doesn't matter if you don't remember. Come on, have a bath. I've run the water for you."
+"...Well, it's fine if you don't remember. More importantly, go take a bath. I've already run the water."
 
-Yui-san seemed unusually refreshed, so she must have woken before me and already bathed.\
-Despite drinking so much last night, I miraculously avoided a hangover and felt perfectly fine, which was a relief.\
-After all, I'd been looking forward to our date too.
+Yui-san looked unusually fresh and put-together, so she must have gotten up before me and already finished bathing herself.\
+Despite drinking that much last night, miraculously, I seemed to have avoided a hangover, and I was genuinely relieved my condition felt completely normal.\
+Because I'd been looking forward to today's date with Yui-san too.
 
-　Taking the offered dressing gown, I let her lead me by the hand towards the bathroom.
+Taking the loungewear she held out, I let myself be led by the hand toward the bathroom.
 
-Sinking into the bath, I felt warmth seep slowly into my very core. The unfamiliar bathroom wasn't as large as the one at home, but it was reasonably spacious and clean.
+*
 
-　Sinking into the water up to my shoulders, I let out a sigh. Every time I recalled last night's blunder, I felt so embarrassed I could have vanished.
+Sinking into the tub, I felt warmth slowly spreading from the very core of my body. The unfamiliar bathroom wasn't quite as large as the one at that old house, but it had a decent size to it, and it was beautiful.
 
-I was relieved Yui-san didn't press me further when I said I didn't remember.
+Submerged up to my shoulders, I let out a sigh. Every time I remembered last night's blunder, I wanted to disappear from sheer embarrassment.
 
-I just hope she hasn't realised I still like her...
+It helped that Yui-san hadn't pressed any further after I claimed not to remember.
 
-After drying myself with a bath towel and wringing out my hair, I slipped into the fresh underwear handed to me before entering the bathroom. Apparently, she'd popped to the convenience store to buy them while I was asleep. As ever, I thought, Yui-san really is thoughtful.
+I hope she hasn't figured out that I still love her...
 
-Sliding my arms into the white hoodie she'd called loungewear, it was, as I'd expected, a little large. Well, with a ten-centimetre height difference, that was to be expected. This was the first time I'd worn her clothes, and I found myself vaguely thinking it felt rather like we were dating.
+*
 
-While my body was still warm, I scanned the dressing area, intending to dry my hair, but it wasn't there. The hairdryer that should have been there was missing.
+After drying off with a towel and squeezing the water from my hair, I put on the brand-new underwear that had been handed to me before I came to the bathroom. Apparently she'd gone out to a convenience store to buy it while I was asleep. As considerate as ever, that Yui-san.
 
-Could it be... This scene felt strangely familiar. Smiling faintly, I headed towards the living room, towel still draped over my shoulders.
+Slipping my arms through the white hoodie she called loungewear, it was, just as I expected, a little too big. Makes sense, with a ten-centimeter height difference between us. This was the first time I'd ever worn her clothes, and it left me thinking, vaguely, that this felt like we were actually dating.
 
-　Opening the door and peeking out, my hunch proved right. Yui-san, holding the hairdryer, was waiting for me on the sofa.
+Wanting to dry my hair while my body was still warm, I scanned the changing room — but it wasn't there. The hair dryer that should have been there, wasn't.
 
-"Come here, I'll dry your hair."
+Maybe... this feels like something I've seen before, I thought, with a faint smile, and headed to the living room, towel still draped over my shoulders.
 
-Drawn in by Yui-san's beaming smile and beckoning hand, I smiled back and made my way towards the sofa.
+*
 
-It had been ages since she'd dried my hair like this.\
-　Her familiar, unhurried movements, unchanged from those days, felt nostalgic. Being like this made it feel like we'd gone back in time, and a tingling sensation stirred deep within my chest.
+Opening the door and peeking my head in, my guess turned out right. Yui-san, hair dryer in hand, was waiting for me on the sofa.
 
-If only Yui still felt the same way... When next spring comes, might our relationship change in some way?
+"C'mere, I'll dry your hair."
 
-If fulfilling her promise to Father – to achieve results within three years – becomes the stepping stone to breaking off the engagement... I wish there was something I could do to help.
+Smiling brightly, beckoning me over, I found myself smiling too, drawn along, and walked toward the sofa.
 
-　I want to give this relationship a name. The love that couldn't be four years ago. This time, I want to be your lover. Is it alright to wish for that?
+It really had been a while since she'd dried my hair like this.\
+That same practiced touch, unchanged from back then, felt nostalgic. Being like this made it feel like I'd stepped back in time, and something in my chest went ticklish, warm.
 
-Lost in these restless thoughts, I suddenly realised my hair was already dry. She switched off the hairdryer, lightly smoothed my hair into place, and then those wonderfully soothing fingers withdrew.
+If Yui-san still feels the same way now — once next spring comes, will something between us change?
 
-"Right, all done."
+If fulfilling that promise to her father — delivering results within three years — becomes the foothold for breaking off the engagement... I wish there were something I could do too, to help make that happen.
 
-The body soap, the shampoo – everything. Being enveloped in the same scent as Yui-san all over made me smile naturally, I was so happy.
+I want to put a name to this relationship. A love that couldn't come true four years ago. This time, I want to be your girlfriend. Am I even allowed to wish for that?
+
+Lost in restless thought, before I knew it, my hair had dried completely. She switched off the dryer, smoothed my hair gently into place, and those pleasant fingers pulled away.
+
+"There, all done."
+
+Same body wash, same shampoo too. Being wrapped, head to toe, in the same scent as Yui-san made me happy, and a smile came naturally.
 
 "Thank you."
 
 "Mm."
 
-I don't know how Yui-san lived while I was away. But seeing her treat me like this, so specially, I couldn't help but wish that I was the only one she ever did this for, then and now.
+I don't know how Yui-san's been living, during the time I wasn't here. But I couldn't help wishing — that this kind of special treatment, back then and now, has only ever been for me.
 
-Just as I turned to see her face, suddenly, I was hugged tightly from behind, my heart leaping in surprise.
+Wanting to see her face, I turned to look back, and right at that moment, I was suddenly pulled into a tight embrace from behind, and my heart jolted, startled.
 
 "Um, Yui-san...?"
 
-Back in school — it felt perfectly natural to be hugged like this. Now, even the slightest touch makes me tense.
+Back in college — being held like this had felt completely natural. Now, even the slightest touch makes me tense.
 
-Seeing me frozen, Yui-san smiled and whispered into my ear.
+Laughing at me, frozen and unable to move, Yui-san brought her lips close to my ear and whispered.
 
-"Last night, drunk Kanata was utterly adorable... but do be careful with the alcohol. If you're too careless, next time I might just eat you up for real."
+"Drunk Kanata last night was really cute too... but be careful with alcohol, okay? Be careless like that again, and next time I'll really eat you up."
 
-She definitely saw through my lie about "not remembering".
+So "I don't remember" really was an obvious lie, and Yui-san had clearly seen right through it.
 
-Seeing me blush and look down, Yui laughed, then gently released her embrace.
+Face flushing red, I ducked my head, and Yui-san laughed and gently loosened the arms holding me.
 
-"Right then, shall we have breakfast?"
+"Alright, let's eat breakfast."
 
-　Talking like this, Yui-san was just the same as back then. Wondering if my heart could handle today's date, I could only nod.
+Talking like this, Yui-san hasn't changed at all from back then. Wondering if my heart could actually survive today's date, all I could do was nod.
 
-While I was bathing, Yui-san had apparently made salad and soup. Freshly toasted bread, soaked in plenty of butter, was laid out on the dining table. Even after eating so much last night, my stomach growled loudly again.
+While I'd been bathing, Yui-san had apparently made salad and soup. Freshly toasted bread, soaked through with butter, was set out on the dining table, and even after eating that much last night, my stomach growled again, loud.
 
-　When I clasped my hands together and said, "Let's eat," she replied, "Enjoy your meal."
+Pressing my hands together for "itadakimasu," I got "dig in" back.
 
-I doubt my self from just a few months ago would have believed that a day would come when mornings like this, sharing breakfast together as if it were the most natural thing in the world, would arrive.
+If I'd told myself, even just a few months ago, that a morning like this — eating breakfast together, just like it used to be so natural — would ever come again, I don't think I would have believed it.
 
-　Yet here she was, right before me, her gentle eyes fixed on me. After watching me take a crisp bite of toast, she brought hers to her mouth a moment later.
+Right now, Yui-san really is here in front of me, those gentle eyes looking at me. She watched me bite into my toast with a crisp sound, then, a beat behind, brought her own toast to her mouth too.
 
-"...Yui-san's loungewear is a bit too big."
+"...Your loungewear was a little big on me, Yui-san."
 
-Her clothes smell so lovely, I'm grateful she lent them to me. But still, the sleeves are a tad long.
+Her clothes smell so wonderful, so being lent them made me happy — but still, the sleeves hang a little loose.
 
-"True. It's cute in its own way though... Shall we pop out and buy some loungewear for you today too? So you can stay over whenever you like."
+"True, huh. That's cute in its own way, but... should we go buy you your own loungewear today too, while we're at it? So you're ready anytime you want to stay over."
 
-Stay over whenever... What on earth does she mean by that?
+*Anytime you want to stay over* — what does she mean by that, exactly?
 
-She said it with her dark eyes narrowing mischievously, leaving me unsure how to respond. I fumbled for an answer, stabbing my fork into a cherry tomato on the salad instead.
+Her black eyes narrowed, mischievous, saying it like that, and, not knowing how to answer, I busied myself instead, stabbing my fork into a cherry tomato in my salad, to cover the moment.

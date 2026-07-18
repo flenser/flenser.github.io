@@ -1,231 +1,237 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 5
 parent: Second year as a working adult, spring
-sequence: 58
-title: 'Episode 55: I Reckon You Could Send a Message In Three Seconds Flat'
+sequence: 59
+title: 'Episode Fifty-One: Today's Lunch Is Definitely Clam Miso Soup'
 ---
-Episode 55: I Reckon You Could Send a Message In Three Seconds Flat
+## Episode Fifty-Five: A Message Only Takes Three Seconds to Send, You Know
 
-"Good work today!"
+\
+"Thank you for your hard work!"
 
-Eighteen minutes past six. I hold my employee ID card up to the clocking-in system as if slamming it down, then hurry towards the lift.
+6:01 PM. I slapped my employee ID against the time-clock terminal and hurried toward the elevator.
 
-The boss only just told me off the other day about not running in the corridors, but I couldn't care less now.
+I'd just been warned by the president about running in the hallways, but that's really not something I have the luxury of caring about right now.
 
-I press the 'Down' button repeatedly, then catch my breath. Just my luck, the lift was far above my floor, and I nearly let out a sigh.
+I jabbed the "down" button over and over, then tried to steady my breathing. Of all times, the elevator was way up on some floor far above mine, and a sigh nearly slipped out of me.
 
-I wish it would hurry up. As I waited, fidgeting, a voice suddenly called out from behind me, making me jump and straighten up.
+*Come on, hurry.* Restless, waiting, a voice suddenly called out from behind me, and I startled, snapping my spine straight.
 
-"Aosawa-san, heading home already?"
+"Aozawa-san, heading home already?"
 
-Turning around, I saw Niiyama-san from the production team standing there, holding a convenience store iced coffee. Even though it was already quitting time, he seemed to be heading back to work.
+Turning around, I found Niiyama-san from the production team, iced coffee from the convenience store in hand. Even though it's already past clock-out time, he looked like he was headed back to work.
 
-　He's twenty-seven, three years my senior, and has been a key member of the production team since I joined the company.
+He's three years my senior, twenty-seven, and has been a core member of the production team the whole time I've been here.
 
-"Yes. It's quitting time... so I'm heading home."
+"Yes. It's clock-out time, so... I'm heading home."
 
-Ah, I thought, caught by someone I don't particularly like. Just my luck, the lift was stuck on a higher floor and wouldn't come down. Niiyama-san narrowed his eyes and stared at me intently, uttering a low "Huh".
+*Ugh, of all people to run into*, I thought. Of course, right when I don't want it to, the elevator stops on some upper floor and refuses to come down. Niiyama-san narrowed his eyes, *heh~*, and studied me closely.
 
-　As far as I know, Niiyama-san works overtime almost every day; I've never seen him leave on time.
+As far as I know, Niiyama-san works overtime almost every single day — I've never once seen him leave on schedule.
 
-Leaving on time is a good thing. Overtime isn't exactly fashionable these days. While I genuinely believe that myself, I sometimes get the feeling he doesn't think very highly of leaving early. To be honest, I found Niiyama-san a bit difficult.
+Leaving on time is a good thing. Overtime's not exactly fashionable these days. I genuinely believe that myself, and yet I always get the vague sense this particular person doesn't think much of it — honestly, if I'm being frank, I've never been especially comfortable around Niiyama-san.
 
-"Rushing off like that — date with your boyfriend?"
+"Rushing home in such a hurry — got a date with your boyfriend?"
 
 "...No. I don't have a boyfriend."
 
-Not a boyfriend. Not a date. But the person I like is waiting downstairs right now. So I don't have time to chat with you.
+Not a boyfriend. Not a date. But the person I love is waiting for me downstairs right now. So I don't have time to stand here chatting with you.
 
-I felt myself getting a bit annoyed, but managed to hold it in and feign calm. Finally, the long-awaited lift arrived, so I ignored Niiyama-san and stepped inside.
+I nearly bristled, but managed to hold it back and keep my face neutral, and finally, the long-awaited elevator arrived — I ignored Niiyama-san entirely and stepped inside.
 
-"Hey, Aosawa-san. If you don't have a boyfriend, fancy going on a date with me sometime?"
+"Hey, Aozawa-san. If you don't have a boyfriend, want to go on a date with me sometime?"
 
-This guy, grinning with one side of his mouth turned up like that, really gets on my nerves. I absolutely hate his hair too – plastered flat with so much wax it reflects the lights.
+That smirking half-grin of his — I really can't stand it. Not a fan of that hair, either, slicked down so heavily with wax it catches the light.
 
-"...Thanks for your hard work today."
+"...Have a good evening."
 
-Without answering his invitation, I hammered the 'Close' button without a word.
+Without answering the invitation, I hammered the "close" button, no room for further discussion.
 
-Over these past four years, I've changed quite a bit myself. I'm gradually learning to properly decline even the most forceful invitations that would have swept me along before.
+I've changed, at least a little, over these four years. Pushy invitations like that, the kind I probably would've gotten steamrolled by before, I'm gradually getting better at turning down properly now.
 
-　I caught my reflection in the lift mirror and hastily smoothed my hair. I'd discreetly touched up my make-up in the washroom before clocking out. So I should be fine.
+Catching my reflection in the elevator mirror, I hurried to smooth down my hair. I'd touched up my makeup in the restroom before clocking out, so it should be fine. It has to be fine.
 
-I placed a hand over my chest, trying to steady the relentless pounding of my heart, and took a breath. The lift finally reached the ground floor, and I left the company building with a perfectly composed expression.
+Pressing a hand to my chest, trying to steady the ceaseless, restless pounding, I took a breath. The elevator finally reached the ground floor, and I stepped out of the building, doing my best to look like nothing at all was going on.
 
-　The infuriating person who’d ignored me for three weeks was waiting with her usual smile.
+*
 
-“Kanata, good work today.”
+The infuriating object of my affection, who'd left me hanging for three whole weeks, was waiting for me with that same unbothered smile as always.
 
-When we met the other day, Yui-san was wearing a suit, probably for a business meeting, but today she was in casual clothes. Still in great shape. I almost get lost staring.
+"Kanata, good work today."
 
-“…Good work today.”
+Last time we'd met she'd been in a suit, probably because of the negotiation, but today she was in casual clothes. Still such a good figure. I nearly found myself staring.
 
-The night I was told about the business sale, a simple message arrived from Yui-san.
+"...Good work to you too."
 
-　‘Can we meet Friday night?’ That was all. I wanted to ask if she had nothing else to say, but I’d decided to save my complaints until I saw her face.
+The night the business sale had been announced, a simple message arrived from Yui-san.
 
-I’m glad to see her. But I’m still a bit sulky. Yui seemed to sense from the tone of my first words that I wasn’t in the best mood. She tilted her head to look at my face, so I abruptly looked away.
+*"Can I see you Friday night?"* — just that, nothing more. I'd wanted to say, isn't there something else you should be saying first, but I'd decided to save the complaints for when I could actually see her face.
 
-"Yui, you've been terribly busy since then, haven't you..."
+I'm happy to see her. But I'm also, undeniably, still a little sulky about it. Yui-san seemed to catch, just from the tone of my first word, that I wasn't in the best mood. She tilted her head and peered into my face, and I turned away, pointedly.
 
-"Ah, yeah. Work's been piling up lately..."
+"You've been really busy since then, huh, Yui-san..."
+
+"Ah, yeah, work's been slammed lately..."
 
 "Hmm..."
 
-Well, she is the president. With the sale and all, she obviously doesn't have time like she did in her student days. Yui and I are in completely different positions now. But still.
+She's the president, after all. What with the sale and everything, of course she wouldn't have the kind of time she did back in college. Yui-san and I are in completely different positions now. But still.
 
-"...I reckon you could spare three seconds to send a message."
+"...A message only takes three seconds to send, you know."
 
-　When I said that rather sarcastically, Yui let out a soft chuckle. Why are you laughing? I was about to complain, looking up at her face. But then, those incredibly gentle eyes were fixed on me, and I found myself unable to say anything.
+I said it with an edge, and Yui-san let out a small laugh. *Why are you laughing*, I looked up at her, ready to complain — and found eyes so gentle looking back at me that the words died in my throat.
 
-"Were you waiting for me to get in touch?"
+"Were you waiting for me to contact you?"
 
-"...Well, you did say you wanted to meet again. And yet, you didn't even... send a single message..."
+"...Well, you're the one who said 'see me again.' And then you didn't send a single message..."
 
-Oh dear, am I being terribly 'difficult' right now? Realising this fact only now made me feel a little timid, and as my voice grew fainter and fainter, Yui-san smiled and took my hand.
+Wait, am I turning into an extremely "high-maintenance woman" right now? Realizing that, a little too late, I felt myself losing my nerve, my voice trailing off smaller and smaller, and Yui-san laughed and took my shrinking hand in hers.
 
-"Yes, you're right. Sorry for being so thoughtless. I'll be more careful next time. To make it up to you, let's go eat something you like today. Anything you want. What would you like?"
+"Yeah, you're right. Sorry for being thoughtless. I'll be more careful from now on. As an apology, let's go eat whatever you want tonight. Anything at all. What are you in the mood for?"
 
-Deep inside my chest, something tingled. Ever since I was younger, I'd always liked you – the way you'd cheer me up without complaint whenever I sulked over silly things.
+Something in my chest went restless, itchy. This is exactly why I've always loved you — you never complain, no matter how easily I get sulky over something stupid, you always try to win me back.
 
 "Anything?"
 
-"Yes, anything."
+"Yeah, anything."
 
-That gentle gaze fixed on me felt so familiar, it made my chest tighten.
+That gentle gaze, watching me — so achingly familiar, my chest clenched, tight.
 
-"Then... I'd like some dashimaki tamago. From an izakaya."
+"Then... I want dashimaki tamago. The izakaya kind."
 
-When I said it like I was begging, Yui-san asked me back, "Is that really all right?" That's all right. Honestly, as long as you're with me, even a chain izakaya is fine.
+I said it, wheedling, and Yui-san asked, "that's all you want?" That's plenty. As long as you're there, I don't care if it's some chain izakaya.
 
-I nodded, and Yui-san smiled, saying "Right then," and took my hand.
+I nodded, and Yui-san laughed, said "got it," and took my hand.
 
 ＊＊＊
 
-"Have you heard from the president yet?"
+"Did you already hear, from the president?"
 
-As I was topping the fluffy, dashi-scented rolled omelette with grated daikon, she suddenly asked that. I looked up at Yui-san sitting opposite me.
+Just as I was topping my fluffy, dashi-fragrant egg roll with grated daikon, the question came out of nowhere, and I looked up at Yui-san across the table.
 
-"Heard" must mean about that business sale. I gave a single nod, then stuffed a mouthful of rolled omelette in. Yeah, izakaya dashimaki tamago really is the best.
+*Heard* probably meant the whole business-sale thing. I nodded, small, once, then took a bite of the dashimaki tamago. Yeah — izakaya dashimaki tamago really is the best.
 
-"I never imagined Kanata was in that division. I was genuinely shocked."
+"I never imagined you'd be in that division, Kanata. I was genuinely shocked."
 
-"...I was the one who was shocked. Because you never said a word about it, Yui-san."
+"...I'm the one who's shocked. You never once mentioned it."
 
-"I'm sorry. I really wanted to tell you sooner, but I thought it was only right for the president to tell you himself, not someone from outside. I decided to keep quiet until I heard it had been announced to the staff."
+"Sorry. I honestly wanted to tell you sooner, but I felt like this kind of thing should come from the president himself, not from some outside party. I decided to stay quiet until I heard it had actually been announced to the employees."
 
-Well, thinking about it now, I suppose it couldn't be helped. You can't exactly announce, "We're acquiring the division you're in right now."
+Fair enough, I suppose, thinking about it now. There's no way she could've just said, "hey, we're about to acquire the division you work in."
 
-"I see... I heard the interviews start next week. About salary conditions and such. They did say that if I wish to stay, they'll try to accommodate me as much as possible, if feasible..."
+"I see... They said interviews start next week. About salary terms, all that. If I want to stay, they said they'd try to accommodate it as much as possible, but..."
 
-Production department staff will be transferred to Yui-san's company without question. However, I heard that sales and administrative staff might remain depending on individual circumstances. Whether requests will be granted remains uncertain.\
-What Yui-san likely wants is the production team. Sales and administration are probably just extras.
+Anyone in the production department gets moved to Yui-san's company, no question. But apparently, for sales and administrative staff, staying behind might be possible depending on individual circumstances. Whether that request would actually go through, I have no idea.\
+What Yui-san wants is probably the production team's people. Sales and admin are probably just an afterthought, tacked on.
 
-"...Kanata, what do you want to do?"
+"...What do you want to do, Kanata?"
 
-Those dark eyes fixed on me intently. I knew she was asking seriously, so I stopped eating and looked back at Yui.
+Those black eyes fixed on me, serious. I could tell she genuinely meant the question, so I set down my chopsticks and looked back at her.
 
-"Honestly, I'm torn. I've only just joined, and I liked my current job and this company..."
+"Honestly, I'm torn. I mean, I only just joined this company, and I liked my current job, this company too..."
 
-"Kanata, you were in the management team, weren't you? Our company has a Management Control Department too, so if you come, I intend to assign you to the same department."
+"You were on the management team, right? We have a management department too, so if you come over, I'd plan to assign you to the same kind of role."
 
-Hearing her state it so clearly, I wondered — if I wasn't imagining things — whether Yui-san actually wanted me to join.
+Said so plainly, so definitively, that I found myself thinking — unless I'm flattering myself, maybe Yui-san actually wants me to come.
 
-"Um... Yui-san, wouldn't you mind? Having me there?"
+"Um, wouldn't it bother you, Yui-san? Having me there?"
 
-When I timidly asked this, Yui-san's eyes widened in surprise, as if she hadn't expected such a question.
+I asked, tentative, and Yui-san's eyes went round, startled, like she'd never expected to be asked something like that.
 
-"Not at all. Quite the opposite, actually. I'd be delighted."
+"No way. If anything, I'd be happy."
 
-Wasn't she uncomfortable? Even if I wasn't her ex-girlfriend, wasn't she hesitant about bringing a woman she'd once been involved with into her own company?
+Wouldn't it be awkward, though? Even if I'm not technically an ex, bringing someone she once had a relationship with into her own company — wouldn't there be some hesitation about that?
 
-I—I wouldn't mind working under Yui-san. But some conditions would worsen. Like the office location, for instance.
+I — don't mind the idea of working under Yui-san. But there are downsides too. The office location, for one.
 
-"I see. ...But I'm still a bit hesitant. It would mean a longer commute too."
+"I see. ...But I'm still a little torn. It'd mean a longer commute too."
 
-"Why not move? I bought a flat near the office, you could live there?"
+"Just move, then. I bought a condo near the office. You could live there, you know?"
 
 "Eh?"
 
-Suddenly told that, now it was my turn to widen my eyes. She bought a flat? Near the office?
+Said so suddenly, this time it was my turn for my eyes to go round. Bought a condo? Near the office?
 
-"Yui-san, you don't live in that house anymore...?"
+"Yui-san, are you... not living in that house anymore...?"
 
-What had become of that house where Yui-san and I lived for a year? I felt nostalgic for those times we'd snuggle up on the sofa watching films. If she really wasn't living there anymore, I thought it would be rather sad. I'd always assumed Yui-san would be there, in that house.
+What happened to the house Yui-san and I spent a year living in together? I found myself missing all those nights curled up together on the sofa, watching movies. If she really isn't living there anymore, that felt lonely to me. I'd always assumed Yui-san would always be there, in that house.
 
-When I asked her that, Yui-san shook her head from side to side.
+I asked, and Yui-san shook her head, side to side.
 
-"I only stay at the flat when work gets busy. It's strictly for work. So, you're welcome to live there, Kanata. There's a spare room anyway."
+"I only stay at the condo when work gets busy. It's strictly for work. So you could live there, Kanata. There's a spare room anyway."
 
-I couldn't help but give a wry smile at Yui-san saying such things so casually. It seems she still spoils me just as much as ever. I'm glad, but still.
+I couldn't help a wry laugh at how easily she said something like that. This person spoiling me, apparently, hasn't changed one bit, even now. I'm happy about it, but still.
 
-"...Is it really okay to give special treatment to an employee?"
+"...Is it really okay, giving special treatment to an employee?"
 
-When I pointed that out, Yui-san smiled brightly.
+I pointed it out, and Yui-san smiled, bright.
 
-"You're not an employee yet, are you? You could just move in before you become one."
+"You're not an employee yet, are you. Just move before you become one."
 
-Honestly, it was charming and flattering that she'd say that... but no, I wouldn't live with her. As I shook my head from side to side, Yui's hand reached out and gently grasped mine, as if to seal the deal.
+Tempting as that offer genuinely, honestly is... no, I'm not living with her. I shook my head, side to side, and her hand reached out, catching mine, gentle but firm, driving the point home.
 
-Just that alone made my heart leap in an almost amusing way.
+Just from that alone, my heart leapt, almost comically.
 
-Back in our student days, Yui had seemed far more hesitant. When we last met, Yui-san declared flatly, "I have no intention of marrying." Perhaps that's why. Even though the fact she has a fiancé now hasn't changed — that single sentence seems to have shattered the mental brake that had definitely been there four years ago.
+Back in college, Yui-san had seemed far more hesitant. Last time we met, she'd said, flat out, "I don't intend to get married." Maybe that's why. Even though the fact that she still has a fiancé hasn't changed at all — that single line seems to have shattered whatever brake had existed, back then, four years ago, in my heart.
 
-I couldn't pull my hand away.
+I couldn't bring myself to shake her hand off.
 
-"...I want you to see me now, Kanata. I'm not the same as I was when we were students."
+"...I want you to see who I am now, Kanata. I'm not the same as I was back in college."
 
-Her earnest gaze made me almost forget to breathe.
+Held under that serious gaze, I nearly forgot to breathe.
 
-"If you don't want to live in my flat, I'll arrange company accommodation near the office. So please come work for my company. I beg you. ...Can't you give me one more chance?"
+"If you don't want to live at my condo, I'll arrange company housing near the office instead. So please, come to my company. Please. ...You could at least give me one more chance, couldn't you?"
 
-What chance...? I swallowed the urge to ask. Right now, I was still too afraid to hear the answer.
+*Chance for what* — the question rose up, and I forced it back down, swallowing it whole. I'm still too scared to ask that, right now.
 
-"I won't disappoint you again. ...I'll work hard to prove myself worthy of your reconsideration."
+"I won't disappoint you again. ...I'll work hard, so you'll think better of me."
 
-My heart pounded.
+My heart raced.
 
-　Meeting Yui again made me realise. No matter how long we were apart, my feelings never changed. I know I'd fall for you again, time and time over. I think that's just how fate works.
+Meeting Yui-san again, I understood it, fully. However much distance separated us, my feelings never changed, and no matter how many times, I'm sure I'd fall for you all over again. I think that's just fate.
 
 "...I'll think about it."
 
-When I said that, Yui smiled as if relieved and murmured, "Thank you."
+Saying that, Yui-san smiled, relieved, and murmured a small "thank you."
 
 ＊＊＊
 
-I'd thought it before, but going home to separate houses with Yui felt strangely off somehow. Yui-san had come by car to see me off, and hadn't touched a drop of alcohol, which made me feel rather guilty.
+Same thought as before — going home to separate houses from Yui-san still feels strange, somehow. She'd driven, probably to take me home after, and hadn't had a drop of alcohol the whole night, which left me feeling more than a little guilty.
 
-The unfamiliar passenger seat and the scent of her new perfume. I didn't dislike it, but it felt different from my memories, unsettling. I wished she'd go back to the way she was. Lost in such thoughts, I surrendered myself to the moving car.
+The still-unfamiliar passenger seat, and her new perfume's scent. I don't dislike it, but it's different from the memory, and something about that unsettles me. I wish she'd go back to the old one. Thinking that, I let myself sink into the seat as the car pulled away.
 
-"Come to think of it... what's happened to my room?"
+"...Come to think of it, what happened to my room?"
 
-The mention of that house made me a little curious, so I asked.
+The mention of the house had left me curious, just slightly, and I asked.
 
-"It's just as it was. Ready for whenever Kanata might come back."
+"It's exactly as it was. So you can come home anytime you want."
 
-Hearing that stirred up an indescribable feeling, a mix of happiness and ache. Had she really been waiting all this time? For my return, in that house.
+Hearing that, something indescribable welled up in me, happiness and heartache tangled together. Had she really been waiting, all this time? For me to come back, to that house?
 
-"Let's watch a film together again. In fact, since tomorrow's a day off, why not come over now?"
+"Let's watch a movie together again sometime. Actually, tomorrow's a day off — want to come over now?"
 
-"Eh...? N-no, I won't come today. Being invited to your place at this hour, Yui-san, makes me feel like..."
+"Eh...? N-no, not today. Being invited to your place at this hour, Yui-san, feels kind of..."
 
-...like you might be thinking something naughty. I hesitated to voice it, but sensing what I wanted to say, Yui-san smiled slightly and spoke.
+*Like you're thinking something indecent* — the suspicion crept in. Hesitating to say it out loud, Yui-san seemed to catch my meaning anyway and spoke up, laughing just slightly.
 
-"...I won't do anything."
+"...I won't do anything, you know?"
 
-"...I can't trust your 'won't do anything', Yui-san. You've got a whole history of it..."
+"...Your 'I won't do anything' isn't exactly trustworthy, Yui-san. You've got a track record..."
 
-When I pointed that out, Yui laughed out loud, ahaha. See? That way of laughing it off hasn't changed a bit.
+I pointed it out, and Yui-san burst out laughing. See — that, right there, laughing it off exactly like that, hasn't changed one bit either.
 
-"That's because you're too cute, Kanata."
+"That's your fault, for being too cute."
 
-...She said 'cute' again. I fought to keep my cheeks from softening, turning towards the window so she wouldn't notice. Ah, we'll be at my place soon.
+...There, she said "cute" again. Fighting to keep my cheeks from softening, I turned toward the window so she wouldn't notice. Ah, we're almost at my place already.
 
-　I don't want to go home. I want to stay with her longer. I can't stop myself from thinking that.
+I don't want to go home. I want to stay together longer. That feeling — I can't stop it.
 
-Going to her company... earlier I said I'd "think about it"... but my mind was already made up.
+Earlier, about going to work at her company, I'd said "I'll think about it"... but my mind was already made up.
 
-Both Yui and I are different from back then. Perhaps we can envision a future different from four years ago.
+*
 
-Is it okay to dream again? There I was, beginning to hope.
+Both Yui-san and I are different now, from back then. Maybe we could draw a different future than the one we couldn't have four years ago.
+
+Is it okay, to let myself dream again? I found myself, already, beginning to hope.
