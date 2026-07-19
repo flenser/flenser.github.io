@@ -4,7 +4,7 @@ layout: episode
 nav_order: 6
 parent: Second year as a working adult, summer
 sequence: 70
-title: "Episode Sixty-Two: I Mean, We Were Dating Back in College, Weren't We?"
+title: "Episode Sixty-Seven: Please, Don't Ever Say We Should Stop Seeing Each Other"
 ---
 ## Episode Sixty-Seven: Please, Don't Ever Say We Should Stop Seeing Each Other
 
