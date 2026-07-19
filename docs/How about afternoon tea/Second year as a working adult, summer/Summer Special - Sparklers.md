@@ -1,353 +1,357 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 11
 parent: Second year as a working adult, summer
 sequence: 75
-title: 'Summer Special: Sparklers'
+title: "Summer Bonus Chapter: Sparklers"
 ---
-Summer Special: Sparklers
+## Summer Bonus Chapter: Sparklers
 
-Before me, a single ponytail of chestnut-brown hair swayed as she walked. My gaze was drawn to the occasional glimpse of her pale nape, and I followed her back, walking slowly.
+\
+Ahead of me, her chestnut hair, tied up in a single ponytail, swayed with each step. Catching glimpses of her pale nape, I followed at an easy pace behind her back.
 
-Seeing Kanata with her hair in a ponytail reminded me of our university days. When I hugged her after her part-time job, she always faintly smelled of coffee.
+Kanata in a ponytail always brings back college days. Back from a part-time shift, she'd always carry the faint scent of coffee whenever I held her.
 
-　Stepping through the supermarket's automatic doors, a cool breeze brushed my cheeks.
+Stepping through the supermarket's automatic doors, cool air brushed my cheeks.
 
-My beloved, beloved lover turned back, urging me on with "Hurry up, hurry up!" Her smiling face was so adorable I reached out. She took my hand and squeezed it tightly, as if to say she wouldn't go anywhere.
+My beloved, precious girlfriend turned back and urged me on — *hurry, hurry.* Watching her smile, so cute, I reached out. Catching that hand, I gripped it tight, firm, so she'd never go anywhere again.
 
-　Since returning from my business trip at the end of August, the days had been hectic.
+*
 
-It was truly regrettable that, despite finally becoming lovers, time was taken up by the long-awaited opening of the new shop, leaving us little time together.\
-In the end, it wasn't until two weeks after the opening that work finally settled down and I could take a proper break.
+Late August. Ever since we got back from the business trip, the days had been a rush of chaos.
 
-　Thanks to Kanata, the work was considerably easier than before.\
-Just as Yamazato-san's recommendation stated, Kanata was truly diligent and excellent.
+We'd finally become a real couple, and yet I'd barely gotten any time with her at all, swallowed up by the long-anticipated new store opening — something I genuinely regretted.\
+It wasn't until two weeks after the opening, work finally settling down, that I could properly take time off.
 
-I felt it deeply in my heart – I was being supported by my beloved, my precious, my most important girlfriend. Even though I'd been so reluctant to make her my secretary, I now realised it had been the right decision.
+Thanks to Kanata, work had gotten considerably easier compared to before.\
+Exactly as Yamasato-san's recommendation letter had said, Kanata really is diligent, genuinely capable.
 
-　It surprises even me, but for Kanata, I feel I could do anything.
+Cute, precious, my most important person in the world, my girlfriend — I feel it, genuinely, how much she's supporting me. For all my resistance about making her secretary, I think, belatedly, it really was the right call.
 
-It felt like all the effort I'd put in during our time apart had finally paid off.\
-Before meeting Kanata, I'd never known this side of myself existed.
+Even I'm surprised by myself — for Kanata's sake, it feels like there's nothing I couldn't do.
 
-At last, we had a weekend off together. On Friday night, I invited Kanata to "watch a film" and took her back to that house we'd shared during university.
+The effort I'd stacked up, all through those years apart, finally felt like it had paid off.\
+Until I met Kanata, I never once knew I had this side to me.
 
-　Even though we saw each other every day at work, we hadn't done anything remotely romantic in these past two weeks.\
-I caught Kanata, who was wandering nostalgically around the room, and pulled her close, then without a word, I shut her in the bedroom.
+Our first weekend off, finally lined up together. Friday night, I invited her — "let's watch a movie" — and brought her back to that house we'd lived in together during college.
 
-I just wanted her to take in all the love I'd felt for her over these past four years – the love that was so overwhelming I couldn't bear it.
+Even though we'd been seeing each other's faces at work every day, these past two weeks had left no room for anything resembling a proper couple.\
+I caught Kanata wandering the house, nostalgic, and pulled her into a tight embrace, then, giving her no say in the matter, shut her away in the bedroom.
 
-And today, Saturday morning. It took some effort to appease Kanata, who was sulking, "You said we'd watch a film," but even that felt unbearably precious. Ever since that moment, I've been in love with Kanata.
+Four years' worth of loving Kanata, endlessly, unbearably — I wanted her to accept all of it, right then.
 
-That summer of my third year at university, Kanata and I watched fireworks together. That day, I promised, "Next year, I'll book us seats in the viewing area." Yet the following summer, Kanata was no longer by my side.
+And now, Saturday morning. It took real effort winning back the mood of a sulking Kanata — "you said we'd watch a movie" — but even that, I found myself thinking, is unbearably precious. I've been in love with her, that thoroughly, ever since that day.
 
-So this year, I really wanted to take her — but in the end, swamped with work, I couldn't keep my promise.
+The summer of our junior year, we watched fireworks together. That day, I'd promised — "next year, I'll book you a viewing seat" — and yet the following summer, Kanata was no longer beside me at all.
 
-"I'm sorry," I apologised. Without reproach, Kanata took my hand and smiled, suggesting we go buy some handheld fireworks instead.
+So this year, of all years, I'd wanted to actually take her — but work swallowed me whole again, and I couldn't keep that promise.
 
-　After the evening shower had passed, we walked hand in hand to the supermarket, chatting about trivial things in the damp, lukewarm air.
+I apologized, and rather than blame me for it, Kanata just laughed and pulled my hand toward buying handheld sparklers instead.
 
-I couldn't help but pray from the bottom of my heart that this everyday life would continue forever, until my own heart stopped beating.\
-It was such a happy weekend afternoon that I felt this way.
+Once the evening shower let up, we walked the road to the supermarket hand in hand through the humid, lukewarm air, trading idle conversation.
 
-"Ah, Yui-san, they had fireworks! Let's get these."
+I found myself praying, from the very bottom of my heart, that ordinary days like this could go on forever, until this heart of mine finally stops.\
+That's how happy this Saturday afternoon made me.
 
-　I took the largest pack of fireworks, labelled 'value pack', from Kanata's hand and placed it in the shopping basket.\
-It wasn't that I hadn't wondered whether the two of us could possibly manage so many, but better too many than too few.
+"Ah, Yui-san, they have sparklers! Let's get this one."
 
-"We don't have a lighter, so we'll need to buy one."
+I took the largest value-pack of sparklers she'd picked up and dropped it into the basket.\
+I did wonder, briefly, whether the two of us could actually get through that many — but better too many than not enough.
 
-I picked up the smallest lighter on display, and Kanata then took a package of candles from beside it.
+"I don't have a lighter, so we need to buy one."
 
-"Fireworks... use candles?"
+I picked up the smallest lighter on display, and Kanata, beside me, picked up a candle package sitting next to it.
 
-I asked casually, and Kanata's eyes widened in surprise.
+"You use a candle for sparklers?"
 
-"...Yui-san, could it be... this is your first time with handheld fireworks?"
+I asked, casual, and Kanata blinked at me, wide-eyed.
 
-"Yeah, I've never done it before."
+"...Yui-san, is this maybe your first time doing handheld sparklers?"
+
+"Yeah, never done it."
 
 "Really? Not even once?"
 
 "Yeah."
 
-I nodded honestly. Then, for some reason, Kanata smiled happily.
+I nodded, honest. At that, Kanata smiled, happy, for some reason.
 
-"I see. Well then, I suppose today will be my win."
+"I see. Then today's definitely my win."
 
-Kanata laughed as she said this, and started walking down the narrow supermarket aisle.
+Kanata said it, laughing, and started down the narrow supermarket aisle.
 
-"Win? What do you mean? Are fireworks supposed to be a competition?"
+"Win? Since when are sparklers a competition?"
 
-I asked, my eyes drawn to the white upper arm peeking out from Kanata's sleeveless top as she walked slightly ahead of me.
+I asked, my eyes caught on the pale upper arm peeking from her sleeveless top, just ahead of me.
 
-"That's right. You light the sparklers at the same time, and whoever's sparkler stays lit the longest without falling wins. And there's a rule that the loser has to do whatever the winner says."
+"They are. You light two senko-hanabi at the same time, and whoever's ember doesn't fall off first wins. And there's a rule — the loser has to do whatever the winner says."
 
 "Hmm...?"
 
-I knew immediately it was a lie. Kanata was so transparent, and truly adorable.\
-Did she have a request she wanted me to hear so badly? Was there something she wanted me to do? If so, she needn't resort to such roundabout methods. If it was Kanata's wish, I'd grant her anything.
+I knew immediately it was a lie. Kanata's so easy to read, so genuinely cute.\
+Is there some request she wants that badly, that she'd go to these lengths to ask? If there's something she wants me to do, she could just say so — I'd grant any wish of Kanata's, without needing some roundabout scheme like this.
 
-That's what I thought, but perhaps this was an opportunity for me too.
+That's what I thought, but — maybe this was a chance for me too.
 
-"...So, if I win, you'll do whatever I say, right?"
+"...So that means, if I win, Kanata has to do whatever I say?"
 
-When I asked, she turned around and smiled.
+I asked, and she turned back, laughing.
 
-"That's right. But only if Yui-san, a fireworks novice, manages to beat me. Come on, let's buy some ice cream and head home."
+"That's right. But that's only if you, a sparkler beginner, can actually beat me. Come on, let's grab ice cream and head home."
 
-Kanata, clearly not thinking for a moment she might lose, was happily humming as she browsed the ice creams.
+Clearly never imagining she could lose, Kanata hummed to herself, happily browsing the ice cream section.
 
-　Bargain fireworks, candles, and a lighter. Two tubs of Häagen-Dazs strawberry flavour, plus the mosquito coils Kanata insisted were absolutely necessary, were placed in a carrier bag as we headed home.
+Value-pack sparklers, a candle, a lighter. Two strawberry Häagen-Dazs, and the mosquito coil Kanata insisted we absolutely needed, all went into the shopping bag, and we headed home.
 
-By late August, sunset came early. Before seven o'clock, the surroundings had already grown dim, and the end of summer was palpable.
+Late August meant an early sunset — already dim before seven PM — and the end of summer was palpable in the air.
 
-　Upon getting home, I quickly stowed the ice cream in the freezer to prevent it melting, when Kanata approached with the patter-patter of her slippers.\
-Lifting my gaze, I saw her clutching the seal soft toy I'd once snatched from her.\
-She'd apparently just noticed the seal I'd displayed on the shelf.
+Right after getting home, putting the ice cream in the freezer before it could melt, I heard the slap of Kanata's slippers approaching.\
+Looking up, I found her hugging, against her chest, the seal plushie I'd once stolen from her.\
+She'd apparently just noticed the seal, displayed up on the shelf.
 
-"Hey, Yui-san, can I take this one home?"
+"Hey, Yui-san, can I take this one home with me?"
 
-"Eh? Why?"
+"Eh, why?"
 
-"Why? Because I want to line them all up together."
+"Why, because... I want to line them all up together."
 
-'All of them'... she meant the killer whale and whale shark plushies I'd bought for her that summer.\
-I pictured Kanata's room, a place I'd never even been to. They weren't particularly large stuffed animals, but I vaguely thought that lining up all three would probably make it look like an aquarium.
+*All of them* — meaning the orca and whale shark plushies I'd bought her that summer, back then.\
+I pictured Kanata's room, which I've never once actually visited. The plushies weren't especially large, but lining up three of them would practically turn the place into an aquarium, I thought, distant.
 
-Perhaps thinking I was going to refuse because I hadn't answered straight away, Kanata scowled and hugged the seal even tighter.
+Lost in that thought, taking too long to answer, Kanata must have assumed I was about to refuse, because she scowled and hugged the seal even tighter.
 
-"This child said she'd take my place, didn't she? Well then, that's fine, isn't it? Because I'm here now..."
+"You said this one was supposed to stand in for me. So it's fine now, isn't it? Because I'm right here now..."
 
-Hearing that, I couldn't help but laugh. Really, why does this child only ever say such adorable things?\
-I couldn't resist any longer and pulled her slender body tightly against me.\
-Even though it was the same shampoo scent as mine, just coming from Kanata made it smell incredibly lovely.
+Hearing that, I couldn't help but laugh. Honestly, why does this girl always say things this cute?\
+Unable to help myself, I pulled her slender body into a tight embrace.\
+Same shampoo as mine, and yet, coming from Kanata, it smells wonderful.
 
-"...I suppose so. Alright then, take her home."
+"...You're right. Fine, take him home."
 
-Indeed, Kanata was here now. So the seal I borrowed that day had served its purpose.\
-Besides, she'd probably be back at this house again soon anyway.\
-When everything was over, and the day came when I could live here again with Kanata without a care in the world, then.
+It's true — Kanata really is here, right now. Which means that seal's job, the one I'd borrowed for that role, is done.\
+Besides, she'll be moving back into this house again soon enough anyway.\
+Once everything's settled, once the day comes when we can live together in this house again with nothing left to worry about — that's when.
 
-　After we'd eaten the dinner we'd made together and finished bathing. I'd switch on the garden light and step outside.\
-Filling a bucket from the rarely-used outside tap, I'd return by the light at my feet to find Kanata already spread out fireworks at the edge of the wooden deck, starting preparations.
+After that, we ate the dinner we'd made together, finished bathing, then turned on the garden lights and stepped outside.\
+Filling a bucket from the outdoor tap I rarely use, I made my way back by the light at my feet, and found Kanata already crouched at the edge of the wood deck, spreading out the sparklers, getting things ready.
 
-　Since we reunited and started working together, I've often thought Kanata has grown up, but seeing her so excited right here before me, she hasn't changed a bit from back then.
+Since reconnecting and starting to work together, I've noticed, more and more, how grown-up Kanata's become — but watching her like this, delighted right in front of me, she hasn't changed a bit from back then.
 
-"Yui-san's house, the garden's lovely and spacious, isn't it? I'm envious."
+"Your house has such a nice, spacious garden, Yui-san. I'm jealous."
 
-"Is it? Well, it is a bit too big for just one person, though."
+"You think? Well, it's a bit too big for just one person living alone."
 
-　Setting the bucket down on the concrete ground, Kanata sat on the edge of the wooden deck, placing a green, coiled mosquito coil onto a silver lid.\
-I grabbed her hand as she reached for the lighter.
+Setting the bucket down on the concrete, Kanata sat at the edge of the deck and set the coiled green mosquito repellent onto its silver stand.\
+I caught her hand as she reached for the lighter, stopping her.
 
-"Fire's dangerous. I'll light it."
+"Fire's dangerous, I'll light it."
 
-"You're being overprotective, aren't you?" Kanata laughed. Call it what you like. Better than Kanata getting burned.
+*Overprotective*, Kanata laughed, saying it. Say whatever you want — better that than Kanata getting burned.
 
-"Kanata, I forgot to bring the drinks. I'll sort it, so fetch them from the fridge."
+"Kanata, I forgot to bring out the drinks. I'll handle this, go grab something from the fridge."
 
-"Right."
+"Got it."
 
-When asked, Kanata obediently stood up. My eyes were drawn to the red mark on her white inner thigh, visible through her loungewear shorts.\
-I'd left it there last night, but Kanata hadn't noticed yet.
+At my request, she stood, obedient. My eyes caught on a red mark on the pale inner thigh peeking from her shorts.\
+Something I'd left there last night, though Kanata apparently hadn't noticed yet.
 
-She said it was fine to leave kiss marks where they couldn't be seen, so I got carried away and went overboard.\
-She probably hasn't noticed this one either, but I must tell her later that there are actually a few on her back too. Thinking such things, I lit the end of a mosquito coil.
+She'd said marks were fine as long as they stayed somewhere hidden, and I'd gotten carried away, gone a little overboard.\
+She probably hasn't noticed there are a few on her back too — I'll need to tell her about that later. Thinking that, I lit the edge of the mosquito coil.
 
-　Sitting on the edge of the wooden deck, I sipped my highball, enveloped in the scent of mosquito coils and gunpowder, watching Kanata frolic.
+Sitting at the edge of the deck, sipping a highball, wrapped in the smell of mosquito coil and gunpowder, I watched Kanata, delighted.
 
-It struck me as I handled the handheld fireworks for the first time: buying the largest, value-pack fireworks bundle had definitely been the right call.\
-Lighting them, extinguishing them, lighting them again – the bucket filled up in no time, and the fireworks vanished in a flash.
+My first time ever doing handheld sparklers, and I found myself thinking — buying the biggest value-pack really had been the right call.\
+Lighting, extinguishing, lighting again, over and over, the bucket filled fast, and the sparklers dwindled just as quickly.
 
-"Right then, Yui-san. Let's have a contest."
+"Alright, Yui-san. Let's have our match."
 
-Saying that finally, Kanata took a spindly sparkler and handed it to me.
+Saying that at last, Kanata pulled out one thin senko-hanabi and handed it to me.
 
-"...The loser does what the winner says, right?"
+"...The loser does whatever the winner says, right?"
 
-When I asked to confirm, Kanata nodded obediently.
+I asked, double-checking, and Kanata nodded, easy.
 
-"That's right. The one whose sparkler's ember hits the ground first loses. Sparklers are actually quite tricky to keep from dropping, you know."
+"That's right. Whoever's ember falls to the ground first loses. Senko-hanabi are actually pretty hard to keep from dropping, you know."
 
-"Hmm. You seem very confident, Kanata. Think you can definitely beat me?"
+"Hmm. You sound awfully confident, Kanata. You really think you'll beat me for sure?"
 
-When I asked that, Kanata nodded vigorously, as if certain of victory.\
-Cute. Win or lose, I'd intended to grant Kanata's wish either way, but since we were at it, I wanted my wish granted too.
+Asked that, Kanata nodded, firm, like victory was already certain.\
+Cute. Win or lose, I'd already decided I'd grant her wish either way — but since we're at it, I wanted her to grant mine too.
 
-　We crouched before the candle and lit the ends of our sparklers simultaneously. After a brief pause, tiny sparks began to scatter with a crackling sound.
+Crouching in front of the candle, we lit the tips of our sparklers at the same time. After a brief pause, small sparks began scattering with a crackling sound.
 
-I watched Kanata, her face illuminated by the sparklers glowing in the darkness as she stared intently at the flame.
+I watched Kanata, lit by the glowing sparkler in the dark, staring seriously at the ember.
 
-　I want to marry. Not Shinji, but Kanata.
+*I want to marry her. Not Shinji. Kanata.*
 
-I might have gone daft from being too happy. Suddenly, that thought struck me.
+Too happy, maybe I'd gone a little foolish. That thought struck me, out of nowhere.
 
-I know. I know it's impossible in Japan today.\
-But while Kanata's feelings were still directed at me, I wanted to pledge this love.\
-I wanted to hold them tight, to lock them away so they'd never leave.
+I know. I know perfectly well that something like that isn't possible in Japan right now.\
+But while Kanata's feelings are still turned toward me, I wanted to swear this love between us.\
+I wanted to hold her, lock her away somewhere she could never leave.
 
-"Ah!"
+"Ah."
 
-While I was lost in these thoughts, the swollen tip of the sparkler Kanata held trembled slightly, made a hissing sound, and fell onto the concrete.\
-My sparkler was still crackling and scattering sparks.
+Caught up in that thought, the swollen tip of Kanata's sparkler trembled, faint, and dropped to the concrete with a small hiss.\
+Mine was still crackling, scattering sparks.
 
 "...Kanata."
 
-Calling her name, she stared intently at my feet, then turned her gaze towards me.
+I said her name, looking at her, staring down at the ground.
 
 "This means I win, right?"
 
-A moment later, the sparks from my sparkler began to die down. They never quite reached the ground, fading away quietly instead.
+A beat later, my own sparkler's flame settled, and, never touching the ground, quietly went out on its own.
 
-"Who said it was a one-off? I've still got more... sparklers."
+"Who said it was one round and done? I've still got more... sparklers."
 
-I smiled at Kanata, who was pouting.
+Pouting, and I laughed at her.
 
-"Want to do it again? Fine, as many times as you like."
+"Want to go again? Sure, as many times as you want."
 
-My fingers were naturally dexterous. After one go, I'd got the hang of it. I had no intention of losing.
+I've always been fairly good with my hands. One round in, and I'd already caught the trick of it. I had no intention of losing.
 
-I accepted Kanata's challenge, and we kept competing until the sparklers ran out. In the end, Kanata never once managed to beat me.
+Answering her challenge, we kept the match going until the sparklers ran out — but in the end, Kanata never once managed to beat me.
 
-　Handing Kanata the Häagen-Dazs I'd chilled in the freezer, I sat down on the wooden deck.\
-Snuggling my shoulder right up against Kanata's, who was sulking with her legs dangling, she pulled the lid off the ice cream with a sharp rip, still looking miffed.
+I handed her the Häagen-Dazs I'd kept chilled in the freezer and sat back down on the deck.\
+Kanata sat there sulking, legs swinging idly, and when I pressed my shoulder right against hers, she peeled the lid off her ice cream, still visibly annoyed.
 
 "Come on, cheer up already."
 
-"...Yui-san, you're being childish."
+"...You're really not being a good sport about this, Yui-san."
 
-"But it was a proper contest, wasn't it?"
+"Well, it was a serious match, wasn't it?"
 
-She said she liked the strawberry flavour of Häagen-Dazs, so I got the same. It was certainly sweet, just the sort of flavour I thought Kanata would like.
+She'd said she liked strawberry Häagen-Dazs, so I'd gotten the same flavor. Sweet, sure enough, exactly the kind of thing Kanata would like.
 
-　My girlfriend, who should have been sulking, was silently tucking into her ice cream. Gradually, her expression softened. It seemed bringing ice cream to cheer her up had been the right move after all.
+My girlfriend, who should have been in a sour mood, ate her ice cream quietly, her expression gradually softening — so it seemed bringing ice cream to smooth things over really had been the right call.
 
-When I judged she was nearly finished, I gently wrapped my arm around her slender waist. As I pressed my lips to the nape of her neck, where she looked at me in surprise, I caught the scent of fireworks and the smell of Kanata fresh from the bath.
+Timing it for right around when she'd be finishing, I gently wrapped an arm around her slender waist. Kanata looked at me, startled, and when I brought my lips close to her neck, I caught the scent of sparklers mixed with fresh-from-the-bath Kanata.
 
 "Um, Yui-san?"
 
-"...You said you'd do anything I asked, right?"
+"...You said you'd do whatever I asked, didn't you?"
 
-My palm slid over her smooth, white thigh – something I'd longed to touch for so long.\
-Perhaps because I'd held back since the day we were separated, my brakes had broken without me noticing. Once I knew our feelings were mutual, I'd lost all restraint.
+I let my palm trail over the smooth, pale thigh I'd wanted to touch this whole time.\
+Maybe because I'd been holding back so long, ever since that day we were separated — my brakes had, at some point, simply stopped working, and once I knew our feelings truly connected, there was no reining it in anymore at all.
 
-　Kanata hurriedly grabbed my hand to stop me, her pale brown eyes flickering.\
-Cute. Precious. I want to hold her. That's all I could think about.
+Kanata's hand shot up, catching mine in a panic, her pale brown eyes wavering.\
+Cute. Precious. I want to hold her. That's all I could think.
 
-Since my hand was blocked from touching her, I reluctantly stroked Kanata's cheek with my palm instead, then pressed my lips to hers.
+With my hand blocked from touching further, I settled for stroking her cheek instead, and brought my lips to hers.
 
-Even when I kissed her, Kanata didn't resist. She wouldn't reject me anymore.\
-We touched lips several times, repeating the kiss. When I lightly licked her lips, urging her to open her mouth, Kanata clutched my T-shirt tightly, looking troubled.\
-Adorable. I wanted more. No matter how many times we did it, her innocent reactions made my heart burn.
+Even kissed, Kanata doesn't resist anymore. Doesn't refuse me anymore.\
+Lips touching, again and again, repeated kisses. I licked lightly at her lip, urging her mouth open, and, troubled, Kanata gripped my T-shirt tight in her fist.\
+Cute. I want more. However many times, that innocent reaction sets something warm burning in my chest.
 
-　Whispering softly, "Open your mouth," I pull her compliant body closer, squeezing her tighter, then slip my tongue into the small opening between her parted lips.
+*Open your mouth*, I murmured, small, and as she obediently complied, I pulled her body in even tighter and slipped my tongue through the small gap of her parted lips.
 
 I chase her small, cold tongue, wrapping mine around it. It tastes sweet, like strawberries.
 
-　I know she's not very good at this sort of thing, and my rational mind tells me I should be gentle, but my hands can't stop seeking her out.\
-I know this isn't right.
+I know Kanata's not especially comfortable with this kind of thing, and rationally, I know I need to treasure her properly — and yet I can't stop my own hands from wanting more.\
+I know this side of me isn't good.
 
 The sweet sound escaping through her nose melts my reason into a gooey mess. But it's alright now, isn't it? After all, it's been so long since we spent time like this together. We're lovers. Nothing stands between us.
 
-　Her hand pressing my shoulder in protest touched the bite mark Kanata left last night, stinging slightly.\
+Her hand, pressing at my shoulder to say *it hurts*, brushed against the wound she'd bitten into me the night before, and it ached, faintly.\
 Reluctantly, I gently withdrew my tongue and broke the kiss. Wiping her damp lips with my thumb, her eyes met mine hesitantly.
 
 "Um, Yui-san..."
 
 "What?"
 
-"Well, I did say I'd do anything you asked... but this isn't quite what I meant by 'ask', is it...?"
+"I mean, I did say I'd do whatever you asked, but... this isn't really what I meant by that, is it...?"
 
-"Are there rules? You'll do anything, won't you? That was the deal, wasn't it?"
+"Are there rules against it? You said whatever I asked, didn't you? That was the rule, wasn't it?"
 
-"Bu-but... we did it yesterday too..."
+"B-but... we already did it last night..."
 
-"I want to do it today. Is that not allowed?"
+"I want to today too. Not allowed?"
 
-When I said that, inviting her, Kanata blushed and looked down.
+Inviting her like that, Kanata flushed red and looked down.
 
-"...But we have to tidy up the fireworks."
+"...But we still need to clean up the sparklers."
 
-Was she genuinely reluctant? Or just embarrassed? Wanting to know, I peered into her eyes.\
-Her wavering gaze seemed slightly hesitant, but not unwilling. If I pushed a little more, Kanata would probably nod.\
-Thinking that, I squeezed her hand tightly.
+Is she genuinely reluctant, or just embarrassed? Wanting to know, I searched her eyes.\
+Wavering, faintly hesitant, but not looking like she actually hated it. Push just a little more, and I think Kanata would nod along.\
+Thinking that, I gripped her hand tight.
 
-"...I'll tidy up tomorrow morning. Right? You'll listen to me, won't you?"
+"...I'll clean up tomorrow morning. Okay? You'll do what I ask, won't you?"
 
-As if to seal the deal, she timidly met my gaze again, then nodded once.
+Pressing the final point home, Kanata looked back into my eyes, timid, then nodded, once, small.
 
 Still holding her hand, I gently pushed her down onto the bed and kissed her repeatedly, as if to confirm.
 
-I adore everything about this girl. Her slender frame, her narrow waist, her smooth skin.\
-The moment I undress her always fills me with excitement. When our eyes meet, her gaze moist with a mixture of anticipation and unease, that improper desire slowly wells up inside me.
+I love everything about this girl. Her slight body, her narrow waist, this smooth skin.\
+The moment of undressing her always sends a rush through me. Meeting eyes damp with something between anticipation and anxiety stirs up a want in me I know isn't entirely good.
 
-Even the first time I held Kanata, I wasn't remotely composed.
+Even the very first time I held Kanata, I genuinely had no composure left at all.
 
-Holding a girl should have been simple. But with Kanata, it suddenly feels incredibly difficult.\
-My heart pounds relentlessly, as if it might shatter, and my head feels like it might explode.
+Holding a girl used to be the simplest thing in the world. And yet, faced with Kanata, it suddenly feels impossibly difficult.\
+My heart pounds so hard, so constantly, it feels like it might actually break, my head threatening to come apart.
 
-I have to hold back properly. Never make Kanata cry. Never give in to desire and ruin everything.
+I need to hold back, properly. Never make Kanata cry. Never let desire win and wreck her completely.
 
-Kanata said she was "frigid," but when I actually touched her, it was nothing of the sort. If anything, she might be a bit sensitive, I thought, though I kept that to myself.
+Kanata always said she was "frigid" — but touching her for real, that wasn't true at all. If anything, she might be a little sensitive — though I'll keep that thought to myself.
 
-Lost in the heat radiating through my left hand's middle and ring fingers, I heard her stammer my name and gazed into her tear-filled eyes.
+Absorbed in the heat coming from my left hand's middle and ring fingers, I heard my name called, halting, and looked at her tear-blurred eyes.
 
-That look of hers teased me like a fool. It was unbearable. I could stare forever. I wanted more. So much more.
+That expression stirs me up, foolishly. Unbearable. I could watch it forever. I want more. More and more.
 
-　Kanata, telling me she'd reached her limit with that "I can't take it anymore" look, was far too adorable. I didn't want it to end yet.\
-But if I dragged it out too long, Kanata would cry, so I had to let her finish.\
-I'm always fighting my own desires.
+*I can't, I really can't anymore* — Kanata telling me her limit, so cute it makes me not want this to end yet.\
+But drag it out too long and Kanata will cry, so I need to bring it to a close.\
+I'm always fighting against my own wants, endlessly.
 
-When I pressed my lips to the lobe of Kanata's ear, clinging tightly to my body, and bit it lightly, she abruptly turned her face away.
+Pulling her tight against me, clinging, I brought my lips to her earlobe and bit down lightly, and Kanata turned her face sharply away.
 
-　I was so happy she’d clung to me, but as if she’d realised something, she released the arms wrapped around my body and covered her mouth with her hand.\
-I immediately realised she seemed worried about biting me yesterday. I grabbed that arm with my right hand, pulled it away, and pinned it firmly to the bed.
+I'd been happy she was holding onto me, but, as if she'd suddenly remembered something, she unwound the arms she'd had around my body and pressed her own arm over her mouth instead.\
+I understood immediately — she must be worried about biting me again, like yesterday. I caught that arm with my right hand and pinned it firmly to the bed.
 
-　A small, sweet sound escaped her. Her clear, pale brown eyes distorted, tears streaming down, falling without end.
+A small, sweet sound slipped free. Those clear, pale brown eyes crumpled, tears spilling, unstoppable.
 
-Ah, I've made her cry again. I'd decided I wouldn't make her cry anymore. I'm sorry, Kanata.\
-With contrition, I brought my lips close to her ear and whispered, with the utmost gentleness, "It's okay to bite me."
+Ah, I've made her cry again. Even after deciding I wouldn't. Sorry, Kanata.\
+As a kind of penance, I brought my lips to her ear and whispered, gentle as I could manage: "You can bite me, it's fine."
 
-The arm that had hesitated clasped my body tightly. Just as I thought that, the same sharp pain as yesterday shot through my left shoulder — I groaned involuntarily at the pain, yet even that ache felt precious.
+Her hesitant arm wrapped tight around my body. And then, right as I thought that, a sharp pain shot through my left shoulder, same as yesterday — I couldn't help a small groan at the sting, but even that pain, I found, was precious to me.
 
 ＊＊＊
 
-"So, what did you want me to do, Kanata?"
+"So, what was it you actually wanted from me?"
 
-Hugging Kanata from behind as she sat cross-legged, wrapped in the sheets, her back completely arched, I asked. She turned to look at me with a dissatisfied glare, her eyes alone conveying her displeasure.
+Wrapped in the sheet, sitting hunched with her knees drawn up, thoroughly sulking, I asked from behind, hugging her, and Kanata glared back at me with just her eyes.
 
-The corners of her eyes were slightly red. Perhaps I'd gone a bit too far, I reflected, kissing her cheek and shoulder repeatedly.
+The corners of her eyes were still a little red. Maybe I'd overdone it — feeling a pang of regret, I pressed kiss after kiss to her cheek, her shoulder.
 
-"It's fine now... I lost anyway."
+"Never mind, it's fine now... I lost anyway."
 
-"Don't say that. Tell me."
+"Don't say that, tell me."
 
-Whether I won or lost the bet, I'd intended to grant Kanata's request either way.
+Win or lose, I'd already planned to grant her wish regardless.
 
-"Is there something you want? I'll buy you anything. So stop sulking. We'll go shopping tomorrow. Right?"
+"Is there something you want? I'll buy you anything. So stop sulking. Let's go buy it tomorrow, okay?"
 
-When I asked, she shook her head vigorously. If not that, then what? I racked my brains, but couldn't figure it out at all.
+I asked, and she shook her head, small. If that's not it, then what? However hard I thought, I couldn't figure it out at all.
 
-　Losing patience, I called "Kanata" again and shook her body.\
-Then, as if resigning herself to my persistence, she pouted and said.
+Losing patience, I called her name again — "Kanata" — and gave her body a gentle shake.\
+Seeming to resign herself to the fact that I wasn't going to let this go, Kanata finally spoke, lips pursed.
 
-"...Nothing really. I just... was going to ask you to take me to the fireworks festival next year, no matter what..."
+"...It's nothing, really, I just wanted to ask you to promise you'd absolutely take me to a fireworks festival next year..."
 
-"Eh? That's all?"
+"Eh? That's it?"
 
-My world's cutest girlfriend hugged her knees tightly, shrinking even smaller.
+My girlfriend, the cutest in the entire world, pulled her knees in tighter, making herself even smaller.
 
-"...And yet, Yui-san, you just wouldn't give in at all... all you did was make suggestive remarks."
+"...And yet, Yui-san, you wouldn't even let me win, not once, and just kept doing... lewd things."
 
-If it was such an adorable request, I really should have given in.\
-I found her so endearing I couldn't help but laugh. Kanata whipped her head around, frowning as if to say she was thoroughly displeased.
+If it was a wish that sweet, I really should have just let her win.\
+Unbearably precious, I couldn't hold back a laugh, and Kanata spun around to face me, brows drawn tight, clearly put out.
 
-"Why are you laughing? Fine, I don't know Yui-san anymore!"
+"Why are you laughing? Forget it, I don't even know you anymore!"
 
-"Sorry, sorry! It's just... you're so adorable. Sorry for being such a child. I'll definitely take you next year, so cheer up, okay?"
+"Sorry, sorry, it's just, you're so cute. Sorry for being a poor sport. I promise I'll take you next year for sure, so cheer up."
 
-I hugged Kanata tightly, sheets and all.\
-How on earth was I supposed to appease my beloved girlfriend, still fuming in my arms?
+Sheet and all, I pulled her into a tight, tight embrace.\
+Still sulking in my arms, my precious, beloved girlfriend — how should I go about winning her mood back this time?
 
-As I pondered that, I thought, ah, how happy I am... It was summer, and I was twenty-five.
+Thinking that over, I found myself thinking — ah, I'm happy. That was the summer I turned twenty-five.

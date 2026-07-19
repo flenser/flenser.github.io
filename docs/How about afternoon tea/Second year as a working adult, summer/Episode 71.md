@@ -1,126 +1,128 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 10
 parent: Second year as a working adult, summer
 sequence: 74
-title: "Episode 71: Next, I'll buy you a ring"
+title: "Episode Seventy-One: Next Time, I'll Buy You a Ring"
 ---
-Episode 71: Next, I'll buy you a ring
+## Episode Seventy-One: Next Time, I'll Buy You a Ring
 
-Before me, a diamond necklace swayed. The orange room lamp cast a faint glow over the room, and the mattress creaked under the weight of two bodies.
+\
+In front of me, a diamond necklace swayed. The dim orange glow of the room lamp, faint against the walls, and the mattress creaking under the weight of two bodies.
 
-When I realised, I had been pushed down onto the bed.
+By the time I registered it, I'd already been pushed down onto the bed.
 
-Dazed, I stared into Yui-san's dark eyes as she lay on top of me. Her long, silky black hair, spilling over, tickled my neck.
+Stunned, I stared up at Yui-san's black eyes, looming over me. Her long, smooth black hair spilled loose, tickling my neck.
 
-"Ah, um, Yui-san…?"
+"Um... Yui-san...?"
 
-My heart pounded so fiercely I thought it might burst from within my chest. My whole body felt hot, as if my blood were boiling.\
-She looked up at me, smiling faintly, and gently stroked my cheek.
+My heart pounded so hard, startled, it felt like it might be beating against my own ribs from the inside. My whole body ran hot, like my blood itself had come to a boil.\
+Looking down at me, she smiled, faint, and stroked my cheek, gentle.
 
 "What is it, Kanata?"
 
-"What are you doing...?"
+"What... are you doing...?"
 
-I knew it was a clumsy question. I wasn't so inexperienced as to not understand what she was about to do to me.\
-Even so, I couldn't help but be startled. Because it was so utterly sudden.
+I know it's a naive question to ask. I'm not so innocent that I don't understand what she's about to do to me.\
+Even so, I couldn't help being startled. Because it had happened so suddenly.
 
-　After we'd confessed our feelings, we'd walked hand in hand back to the room from the private beach.\
-I think I was floating on air, utterly overjoyed to have finally become Yui-san's girlfriend.
+After confessing our feelings to each other, we'd walked back from the private beach, hand in hand.\
+I think I'd been giddy, thrilled beyond words to finally, officially become Yui-san's girlfriend.
 
-Sitting on my bed, I'd said something like, "We really should have gone for a double bed, shouldn't we?" Then, Yui-san's hand, which had gently touched my shoulder, simply pushed me down onto the bed.
+Sitting on my own bed, I'd said something like "we should've booked a double after all" — and the moment Yui-san's hand touched my shoulder, gentle, she'd effortlessly pushed my whole body down.
 
-　Honestly, it was unexpected. I knew Yui-san was the impulsive type, of course.
+Honestly, I hadn't seen it coming. Even though I already knew perfectly well how fast Yui-san moves.
 
-"...Don't you like it?"
+"...Don't want to?"
 
-Her gentle eyes peered into mine. Her warm palm gently lifted my T-shirt and touched my side, so I hurriedly grabbed that mischievous hand to stop her.
+Her gentle eyes searched mine. Her warm palm slipped under my T-shirt, gently, touching my side, and, startled, I grabbed that mischievous hand and stopped it.
 
-"W-weren't you going to do nothing?"
+"W-weren't you not going to do anything?"
 
-"I did say it depended on you, didn't I?"
+"I also said it depends on you, didn't I?"
 
-She smiled brightly as she said this, and I, flustered, let my gaze wander.
+Smiling brightly, saying that, Yui-san left me flustered, my gaze wandering.
 
-When I said we should get a double room, it meant I wanted to sleep together, not that I was inviting her in that way.\
-I wasn't mentally prepared. It had been years since I'd been with anyone, not just Yui-san... and I'd never been particularly good at sex anyway, so my body stiffened with tension.
+Saying we should've booked a double meant I wanted to sleep together — it never meant I was inviting *this*.\
+I hadn't been mentally prepared at all. It's been years since I've done anything like this with Yui-san, and on top of that, I was never especially good at it to begin with, so my body tensed, nervous.
 
-　Yui-san gazed down at me, tenderly stroking my cheek with her fingers, her eyes simply waiting for my reply. My heart pounded steadily. With every breath, my chest rose and fell, and I felt embarrassed that my nervousness might show.
+Stroking my cheek fondly, Yui-san's eyes, looking down at me, simply waited for my answer. My heart pounded, fast. Every breath made my chest rise and fall, and the thought that she could see how nervous I was left me embarrassed.
 
 "...Yui-san."
 
-I reached out and touched her smooth cheek with my palm.
+I reached up and touched her smooth cheek with my palm.
 
-To be honest, I was hesitating a little. It's true we care for each other, but before that, Yui-san has a fiancé, and this relationship — in the eyes of society at large — is certainly not something to be commended.
+Honestly, I was hesitating, just slightly. It's true we love each other — but before that, Yui-san still has a fiancé, and this relationship, by the world's standards, is nothing to be proud of.
 
-The desire to make you mine right now wrestles with the guilt of knowing that a physical relationship would lead us into an ethically unforgivable situation.
+The desire to just let myself belong to her, and the guilt of moving toward a physical relationship that isn't ethically forgivable — the two pulled against each other, tangled.
 
-　Back in university, I had once been intimate with Yui-san knowing she had a fiancé, but that was because I thought it would be the last time... Now, it's different.
+Back in college, I'd slept with Yui-san once, knowing she had a fiancé — but that had been because I thought it would be the last time. Now, it's different.
 
-If it were just mutual affection, and we avoided physical intimacy, then even if Yui-san had a fiancé, we wouldn't have to worry about the law.
+If it's only feelings between us, without a physical relationship, then even with Yui-san engaged, we're not bound by any law.
 
-Without hiding my tangled emotions, I looked at Yui-san. Perhaps sensing my hesitation, she smiled gently.
+Not hiding the tangled mess of my own feelings, I looked at her, and Yui-san, seeming to notice my hesitation, smiled, gentle.
 
-"...Are you worried about me and Shinji?"
+"...Worried about Shinji?"
 
-"...Just a little."
+"...A little."
 
-"I'm sorry for making you anxious. It's alright. You don't need to worry about anything, Kanata. ...I'll take full responsibility."
+"Sorry, for making you anxious. It's okay. You don't need to worry about anything, Kanata. ...I'll take full responsibility, whatever happens."
 
-Hearing that, I shook my head from side to side. I couldn't let Yui bear it alone.\
-Having decided we would be together no matter what, I would follow you wherever you went. If this relationship is a sin, then when the time comes to face punishment, I'll be there too.
+Told that, I shook my head, side to side. I can't let Yui-san carry that alone.\
+Now that I've decided, absolutely, to be with her — I'll follow you, wherever this goes. If this relationship is a sin, then when the punishment comes, I'll take it with you.
 
-I don't care what society thinks. I don't care if people point fingers.\
-I want to be with Yui-san. I want our hearts and bodies to be connected. Until spring? — I can't wait that long either.
+I don't care what the world thinks. I don't care if people point fingers.\
+I want to be with Yui-san. I want us connected, heart and body both. Waiting until spring — I can't do that either, not anymore.
 
-"...May I hold you?"
+"...Can I hold you?"
 
-Asked so gently, I nodded. Yui-san smiled happily. Wrapping my arms around her neck, I drew her closer to accept the tender lips descending upon me.
+Asked so gently, I nodded, small. Yui-san smiled, happy. Accepting her lips as they descended, I looped my arms around her neck and pulled her in.
 
-Oh dear, my heart is pounding terribly. With every shift in angle, every brush of our lips, I felt a deep, throbbing heat rising within my stomach.
+What do I do, my heart's racing so hard. Every time our lips shifted angle, brushing together again, I could feel heat pooling, slow and insistent, deep in my stomach.
 
-Her soft, supple lips felt wonderful. Not the scent of perfume, but Yui-san's own scent after bathing. With each kiss, I felt a growing numbness deep within my head.
+Soft, resilient lips, feeling good. No perfume scent tonight — just Yui-san's own smell, fresh from the bath. With every repeated kiss, the back of my mind grew more and more numb.
 
-　Gently, the palm of her left hand traced from my side to my hipbone, then stroked up the thigh peeking out from my shorts.\
-A shiver ran down my spine the instant I noticed something felt off.
+Her gentle left palm traced from my side, along my hip bone, up the thigh peeking from my shorts.\
+The instant a shiver raced down my spine, I noticed it — something off.
 
-Come to think of it, Yui-san... her nails should be long now, shouldn't they...
+Come to think of it, weren't Yui-san's nails supposed to be long right now...?
 
-I seized the wrist that had been caressing her thigh and pulled it away. Noticing this, Yui-san—thinking perhaps I was stopping her — stopped her hand abruptly and slowly parted the lips that had been touching.
+I caught the wrist stroking my thigh and pulled. Yui-san, noticing, must have thought I was trying to stop her, because her hand went still, and she slowly pulled her lips away.
 
-I brought that left hand I’d pulled up before my eyes and stared at it intently. I traced the middle and ring fingers, tinged with pale pink, as if to confirm them with my fingertips.\
-　Those fingertips were smooth and neatly rounded, just like when we were university students.
+Bringing that captured left hand up in front of my eyes, I studied it closely. Her middle and ring fingers, lightly polished pale pink, I traced with my fingertip, confirming.\
+Those fingertips were smoothly, perfectly rounded — exactly like back in college.
 
-So this was the unfamiliar sensation I felt when I held her hand. I stared intently into Yui-san's dark eyes.
+The "off" feeling I'd noticed when she took my hand earlier — this was it. I looked, narrow-eyed, into those black eyes.
 
-"...Yui-san, did you perhaps intend to do this from the start?"
+"...Yui-san, did you maybe plan this from the very start?"
 
-When I pointed it out, Yui-san laughed innocently like a child caught playing a prank and stuck out her tongue.
+Called out on it, Yui-san laughed, innocent as a kid caught mid-prank, and stuck her tongue out.
 
 "Caught?"
 
-Seeing her laugh without a trace of remorse, the tension drained from my shoulders.
+Laughing without a trace of shame, all the tension drained out of my shoulders.
 
-That's right. Yui-san had always been like this. Always reading two or three moves ahead of me, meticulous and cunning.
+Right, that's exactly who Yui-san's always been. Always reading two, three steps ahead of me. Thoroughly prepared, and more than a little sly.
 
-"...You're such a lecher, Yui-san."
+"...You pervert, Yui-san."
 
-Saying that to hide my embarrassment, Yui-san squeezed my hand tightly, then pushed me onto the bed.
+I said it to hide my embarrassment, and Yui-san gripped my hand tight and pressed it back down onto the bed.
 
-"That's nothing new, is it? I told you to be prepared. You knew what kind of person I am, yet you didn't separate the rooms. It's your own fault."
+"A little late to be surprised, isn't it? I told you to be ready, didn't I. You know exactly what kind of person I am — it's your own fault, not booking separate rooms."
 
-Saying that, Yui-san laughed. But perhaps, somewhere deep down, I had hoped this would happen too.
+Saying that, Yui-san laughed. But maybe, somewhere deep down, I'd been hoping for exactly this too.
 
-　This time, I surrender. I've lost. It's pointless to struggle against Yui-san. She's so much, much better at this than I am.\
-So today, I'll just be quiet and let you love me.\
-Resigned, I pulled her closer with my free hand, and Yui-san smiled happily.
+This round, I surrender. My loss. No point putting up a hopeless fight against Yui-san. She's so much better at this than I am, in every way.\
+So, tonight, I'll just let myself be loved, quietly.\
+Giving in, I pulled her close with the hand not laced with hers, and Yui-san smiled, happy.
 
 ＊＊＊
 
 The air conditioning should be on, yet my whole body felt unbearably hot.\
 I wrapped my arms around her back and clung to her. It had been so long since I'd done something like this, I'd felt a little anxious... but it seems that worry was unfounded. The body is incredibly honest, it seems.
 
-　Gentle yet relentless, those middle and ring fingers held me captive, no escape possible. My breath grew shallow and rapid, a sweet, tingling pleasure spreading through my core, coaxing a whimpering sound from my lips.
+Gentle yet relentless, those middle and ring fingers held me captive, no escape possible. My breath grew shallow and rapid, a sweet, tingling pleasure spreading through my core, coaxing a whimpering sound from my lips.
 
 ——Was sex ever this good...?
 
@@ -135,7 +137,7 @@ Between the words that slipped out unbidden, I stammered her name over and over.
 I nodded vigorously at her tender question.\
 My heart and body were completely filled with Yui-san. I was so happy I felt like I might go mad.
 
-　Her intense gaze fixed upon me made my chest ache. It felt so good, my whole body shivered uncontrollably. With every tremor, I couldn't stop the sweet, pleading sounds escaping my lips against my will.\
+Her intense gaze fixed upon me made my chest ache. It felt so good, my whole body shivered uncontrollably. With every tremor, I couldn't stop the sweet, pleading sounds escaping my lips against my will.\
 Yui-san was seeing everything about me. Realising this, I felt embarrassed and turned my face away.
 
 My body was burning. Burning, burning, unbearably so. The limit was almost upon me.
@@ -147,7 +149,7 @@ Hearing my name, her right hand gently stroked my cheek. Tears welled up instinc
 "Yui-san, I... I can't..."
 
 Breathless, I gripped Yui-san's T-shirt tightly with trembling fingers, signalling my limit.\
-　Unaccustomed to the sensation, I was scared. Wanting reassurance, I reached out for her embrace. Yui-san gave a soft laugh and looked straight into my wet eyes.
+Unaccustomed to the sensation, I was scared. Wanting reassurance, I reached out for her embrace. Yui-san gave a soft laugh and looked straight into my wet eyes.
 
 "Hmm... Can you hold on just a little longer?"
 
@@ -166,14 +168,14 @@ I was terrified of being swept away by the waves of pleasure crashing over me. I
 
 "...That's why I'm asking now. Tell me, Kanata. You haven't shown that adorable face to anyone else, have you?"
 
-　I could see the flames of jealousy blazing brightly in the depths of those eyes looking down at me — my chest tightened painfully.
+I could see the flames of jealousy blazing brightly in the depths of those eyes looking down at me, my chest tightened painfully.
 
 I shook my head desperately from side to side. Of course not. Because I've only ever loved you.\
 The only person in the world I ever want to be with is you.
 
 "N-no one... has ever held me like this. For me, it's only you, Yui-san... Please... don't be cruel to me anymore..."
 
-I managed to say that, barely able to breathe. Then, Yui-san smiled as if deeply relieved, and then — she pulled me tightly into her right arm.
+I managed to say that, barely able to breathe. Then, Yui-san smiled as if deeply relieved, and then, she pulled me tightly into her right arm.
 
 I wrapped my arms around her neck too, pulling her close, closer. I couldn't hold back any longer. My whole body was trembling violently. I simply couldn't endure it any further.
 
@@ -187,91 +189,93 @@ Suddenly overwhelmed by the "limit" that had come upon me, I felt a sudden fear.
 
 ＊＊＊
 
-"Kanata. Hey, Kanata, please. Please cheer up. Face me."
+"Kanata. Hey, Kanata. Please, cheer up. Look at me."
 
-I turned my face away from Yui-san, who was hugging me tightly from behind.
+I turned my face pointedly away from Yui-san, hugging me tight from behind.
 
-Yui-san, who had been desperately trying to cheer me up since earlier, kept pressing her lips against my shoulder and my sulking cheek, repeating "I'm sorry."
+She'd been desperately trying to win back my mood this whole time, pressing kiss after kiss to my shoulder, my puffed-out cheek, repeating "sorry" over and over.
 
-"But... Yui-san, you were really mean."
+"Because... Yui-san, you were so mean."
 
-"I won't be mean anymore. Promise?"
+"I won't be mean anymore. Okay?"
 
-I turned back, glaring at Yui as she apologised desperately.
+Apologizing so earnestly, I glared at her sideways and turned to face her.
 
-I'd been planning to complain about all the mean things she'd done, but when I noticed the red, swollen bite mark on her shoulder, I clamped my mouth shut.
+I'd meant to keep complaining, given how much she'd teased me — but catching sight of the red, swollen bite mark on her shoulder, I found myself falling silent instead.
 
-It was completely unconscious — but apparently, I'd done it again.
+Completely unconscious on my part — but apparently, I'd done it again.
 
-"I'm sorry, Kanata. What would make you forgive me?"
+"Sorry, Kanata. What do I need to do for you to forgive me?"
 
-My gaze was drawn to the necklace swaying on Yui-san's pure white chest as she peered up at me, looking dejected. I gently tugged the chain with my fingertips.
+Peering into my face, crestfallen, Yui-san's gaze caught on the necklace swaying against her bare, pale chest. I gently tugged the chain with my fingertip.
 
-"...This is mine, right? If you give it back, I'll forgive you."
+"...This is mine, isn't it. Give it back, and I'll forgive you."
 
-At that, Yui-san's eyes widened for a moment, then she chuckled softly.
+At that, Yui-san's eyes went round for a beat, then she laughed, soft.
 
-"Who was it that threw it back at me again?"
+"Who's the one who threw it back at me, again?"
 
-"...I only lent it to you, Yui-san."
+"...I was just lending it to you."
 
-Lent it? That's a lie. That day I chose to part ways, I returned it to your chest, pouring all my feelings into it. How could I ever forget?
+Lending it — a lie. The day I chose to leave, pouring every bit of feeling I had into it, I returned it to your chest. There's no way I'd ever forget that.
 
-"Was that it? Well then, I suppose I must give it back to you, Kanata."
+"Was that it? Then I'd better give it back to you."
 
-Yui reached behind her neck without hesitation and removed the necklace.\
-Then, smiling brightly, she slipped it back around my neck.\
-I felt the warmth of Yui's palm pressed gently against my chest.
+Without a moment's hesitation, Yui-san reached behind her neck and unclasped the necklace.\
+Then, smiling bright, she looped it around my neck instead.\
+I felt the warmth of Yui-san's palm, pressed gently against my chest.
 
-"This... belongs to you, Kanata."
+"This is... yours."
 
-Deep within my chest, a warmth slowly spread. At last, everything was back to how it should be. The lost four years were immense, and we took many detours, but here I am, back in your arms once more.
+Something warm slowly welled up, deep in my chest. Now, finally, everything had come full circle. The lost four years had been enormous, and we'd taken so many detours — but here I am, back in your arms again.
 
-"I absolutely won't give it back now, you know."
+"I'm never giving this back again, you know."
 
-Saying that, Yui-san smiled happily, then took my left hand and kissed my ring finger.
+Saying that, Yui-san smiled, happy, then took my left hand and pressed her lips to my ring finger.
 
 "...Next time, I'll buy you a ring."
 
-A ring...? My heart skipped a beat at the suggestive remark.
+A ring — ? My heart lurched at the suggestive comment.
 
-"What exactly does that mean...?"
+"What... do you mean by that...?"
 
-"Exactly what it means."
+"Exactly what it sounds like."
 
-Exactly what it means... you mean that? Asking any deeper felt somehow embarrassing, so I clung tightly to her chest to hide my flushed face.\
-The narrow single bed groaned with a creak.
+Exactly what it sounds like — meaning... that? Too embarrassed to ask any further, I hid my reddening face and pressed myself against her chest.\
+The narrow single bed creaked under our combined weight.
 
-"Sleeping together... it really is a bit cramped, isn't it?"
+"Sleeping together like this... it really is a tight fit, isn't it."
 
-"That's why I said a double would be fine."
+"That's why I said a double would've been fine."
 
-Holding me tightly around the waist, Yui giggled softly. With our bodies pressed together so closely, a sense of security washed over me, and drowsiness began to creep in.\
-It felt like a waste to sleep. I wanted to stay like this forever and ever.
+Holding my waist close, Yui-san laughed, soft. Pressed flush together, drowsiness crept in, slow, from the sense of security.\
+Sleep felt like such a waste. I wanted to stay like this, forever and ever.
 
-"I don't want to go back... I want to stay with you forever."
+"I don't want to go home... I want to be with you forever."
 
-My true feelings slipped out. Tomorrow, when I go back to Tokyo, we'll have to return to separate homes. Without your warmth, I don't think I can sleep properly alone anymore.
+The honest truth slipped out. Tomorrow, once we're back in Tokyo, we'll have to go back to separate houses. Without your warmth, I don't think I could sleep properly on my own anymore.
 
 "Let's live together again."
 
-"Hehe... But... our addresses... the company would find out, wouldn't it...?"
+"Heh... won't the company find out, from my address...?"
 
-"Then, just come and stay over at weekends. Then we can watch films together again, like we used to."
+"Then just come stay over on weekends. And let's watch movies together again, like back then."
 
-"Hmm... That sounds nice... again... together..."
+"Mm... that sounds nice, doing that again... together..."
 
-　Perhaps enveloped in happiness beyond measure, I couldn't fight the drowsiness and my consciousness drifted further and further away.\
-Noticing my state, Yui gently stroked my back.
+Wrapped in more happiness than I could ever ask for, I couldn't fight off the drowsiness, my consciousness slipping further and further away.\
+Noticing, Yui-san gently stroked my back.
 
-"...It's alright to sleep now. Goodnight, Kanata."
+"...You can sleep now. Good night, Kanata."
 
-Hearing that beloved, gentle voice call my name — before I could even reply with "goodnight" myself, I found I had already fallen into a deep sleep.
+Hearing her voice, saying my name so gently, so beloved — before I could even manage a "good night" back, I'd already fallen into a deep sleep.
 
-My first trip to Okinawa, my first business trip, at the end of summer, brought me unforgettable memories and a dearly beloved lover.
+*
 
-I shall never leave you again. Until this heart stops beating, I shall remain by your side.
+My first time in Okinawa, my first business trip, and at summer's end, I'd gotten a memory I'll never forget for the rest of my life, and a beloved, precious girlfriend.
 
-Whatever hardships lie ahead, if I am with Yui, I am certain we can overcome them.
+Never again. I won't let us be pulled apart again. Until this heart stops beating, I'll stay by your side.
 
-It was the summer of my twenty-fourth year that gave me such feelings.
+Whatever hardship comes next, I know — with Yui-san beside me, we'll get through it.
+
+That's the feeling I carried with me, at twenty-four, that summer.

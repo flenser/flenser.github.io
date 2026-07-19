@@ -1,164 +1,169 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 3
 parent: Second year as a working adult, summer
 sequence: 67
-title: "Episode 64: Come to the President's Office Immediately"
+title: "Episode Sixty-Four: Come to My Office, Right Now"
 ---
-Episode 64: Come to the President's Office Immediately
+## Episode Sixty-Four: Come to My Office, Right Now
 
-After lunch break, I returned to my desk. Manager Yamazato must have just come back too, as she was tucking her lunchbox, wrapped in a pretty floral-patterned cloth, into her tote bag.
+\
+Lunch break over, I headed back to my desk. Manager Yamasato had apparently just gotten back too, tucking her bento box, wrapped in a cute floral lunch cloth, into her tote bag.
 
-Talking with Yukiyasu-san helped me sort out my feelings.
+Talking with Yukiya-san had helped me sort my own feelings out.
 
-My desire to become Yui-san's secretary. My hesitation vanished, and that feeling became unwavering.
+I want to be Yui-san's secretary. Whatever hesitation I'd had was gone, and the feeling had solidified into something firm.
 
-　Though it felt awkward to bring it up while still in training... nothing would progress unless I consulted Manager Yamazato. After all, I needed my supervisor's recommendation to apply.
+Still in the middle of training, so it's a hard thing to bring up — but nothing moves forward without at least talking to Manager Yamasato about it. Applying requires a supervisor's recommendation letter, after all.
 
-My heart was pounding, and I could feel sweat beading on my palms.
+My heart pounded, and I could feel sweat beading, faint, on my palms.
 
-I'd only just joined the company; it might be too soon to ask to be a secretary. If she said I wasn't ready yet, that would be that... but unless I asked, I'd never know what she'd say.
+Only just joined the company, might get told "too soon for secretary, not yet" — that would be that. But I won't know what she'll actually say until I ask.
 
-　Pushing myself forward, I approached Manager Yamazato's desk.
+Pushing myself forward, I walked over to Manager Yamasato's desk.
 
-"Manager Yamazato. I'm back now."
+"Manager Yamasato. I'm back."
 
-"Ah, Aosawa-san, welcome back. Did you manage to relax a little?"
+"Ah, Aozawa-san, welcome back. Get a little rest?"
 
-Manager Yamazato said this and smiled at me. The tension in my chest eased just a little. Even if I asked to apply for the secretary position, Manager Yamazato surely wouldn't reject me outright. She would listen to me.
+Manager Yamasato said it, smiling. Something in my tightly wound nerves loosened, just slightly. Even if I brought up applying for the secretary role, surely she wouldn't shut it down immediately. She'd at least hear me out.
 
-　If I conveyed my enthusiasm, perhaps, just perhaps, it might happen. Though we'd only worked together for a few months, I felt I'd come to understand what kind of person Manager Yamazato was.
+If I conveyed real sincerity, maybe, just maybe. Only a few months working together, but I felt like I'd gotten some sense of who Manager Yamasato is, at least a little.
 
-"Thank you for your consideration. And, well, there's something I'd like to discuss..."
+"Thank you for earlier. And, um, there's something I'd like to talk to you about..."
 
-As soon as I said that, Manager Yamazato, as if waiting for it, lifted the corners of her mouth in a gentle smile. Then, before I could continue, she said, "Shall we change location?"
+Getting that far, Manager Yamasato's mouth curved up, easy, like she'd been waiting for exactly this. And before I could continue, she said, "Let's change locations."
 
-　The break room for the second time today. Told to sit on an empty sofa and wait, I suppressed my restlessness and settled onto the plush red sofa as instructed. A moment later, Manager Yamazato returned, holding two iced coffees.
+*
 
-"Here you go. Aosawa-san's."
+The break area, for the second time today. Sparsely populated, and told to sit and wait on an open sofa, I fought to steady my restless nerves and sank into the same plush red sofa as before. A little while later, Manager Yamasato came back holding two iced coffees.
 
-"Thank you. Ah, the money..."
+"Here, this one's yours."
 
-"It's fine. It's only ten yen, after all."
+"Thank you. Oh, the money..."
 
-Saying that, Manager Yamazato smiled. Sitting close enough that our shoulders might touch, she exuded the sweet scent of a mature woman.
+"It's fine, it's only ten yen."
 
-"Right then, shall we get straight to the point? What is it you wish to discuss?"
+Saying that, Manager Yamasato laughed. Sitting close enough that our shoulders nearly touched, a sweet, grown-up scent reached me.
 
-Manager Yamazato looked at me with her usual gentle smile, showing not the slightest flicker of surprise at my sudden request to talk... I even got the feeling she somehow already knew what I was about to say.
+"So, shall we get right into it? What did you want to talk about?"
 
-I'd always thought her a bit of a scatterbrain, but she also had this uncanny ability to read situations... I couldn't help but think, 'She really is a manager through and through.'
+Manager Yamasato looked at me with that same gentle smile as always, not the slightest bit rattled by my sudden request to talk — it almost felt like she already knew what I was about to say.
 
-　Taking a deep breath to steady myself, I steeled my resolve and spoke.
+I'd thought she might be a little oblivious, but she has a genuinely sharp read on people too... exactly what you'd expect from someone in management, I couldn't help thinking.
 
-"I've been thinking about this morning's announcement about the secretary position... I'd like to apply. I realise it's presumptuous of me to suggest this while still in training... but I really want to give it a shot."
+Taking a deep breath to steady myself, I braced and spoke.
 
-　I clenched my sweaty palms tightly and looked intently at Manager Yamazato. I desperately wanted to convey that this wasn't some half-hearted whim.\
-Manager Yamazato stared at me intently, then suddenly softened her expression and smiled.
+"I've thought it over, and, about this morning's internal secretary posting... I'd like to apply. I know it's presumptuous, bringing this up while I'm still in training, but... I really want to try, no matter what."
 
-"...Aosawa-san, do you remember what you said to me on the day you were assigned here?"
+Gripping my sweat-damp palms tight, I looked at Manager Yamasato with everything I had, wanting, more than anything, to convey that this wasn't a half-hearted whim.\
+Manager Yamasato studied me, steady, then let her expression soften into a smile.
+
+"...Aozawa-san. Do you remember what you said to me, the day you were assigned here?"
 
 "Eh?"
 
-Suddenly asked that, a question mark appeared above my head.\
-The first time I spoke to Manager Yamazato? What did I say? Did I say something rude? Trying to recall it instantly, my eyes darted around, and Manager Yamazato laughed and said.
+Asked so suddenly, a question mark floated over my head.\
+The first time I ever talked with Manager Yamasato? What had I even said? Had I said something rude, maybe? Scrambling to remember, my eyes wandered, and Manager Yamasato laughed and told me.
 
-"I remember. Because I was really surprised. You see, Aosawa-san, you said, 'Could I see the financial statements for the past three fiscal years and the medium-term business plan?' It was the first time I'd ever had a new recruit ask me that."
+"I remember. Because it genuinely surprised me. You said, 'Could you show me the financial statements from the last three fiscal periods, and the mid-term business plan?' I'd never had a new hire say something like that to me before."
 
-Had I... said that? No, I might have. After all, right after joining the company, I was desperate to understand what Yui-san was trying to achieve here.
+Had I really said something like that... Actually, maybe I had. Right when I first joined, I'd been genuinely desperate to understand what Yui-san was trying to build at this company.
 
-"After that, you studied hard and asked so many questions, didn't you? You were genuinely trying to grasp the company's management philosophy. People like that are surprisingly rare. So, to be honest, I'd always thought... maybe this one isn't interested in budget management, but more in strategic planning or that sort of thing."
+"After that, too, you studied hard, asked a lot of questions. You genuinely tried to understand the company's management direction properly. Not that many people actually do that, you know. So, honestly, I'd been thinking, for a while now — maybe this girl's more interested in business planning than budget management."
 
-Hearing that, I remembered. I'm pretty sure, right after joining, I must have bombarded Manager Yamazato with questions relentlessly.
+Hearing that, I remembered — right after joining, I really had peppered Manager Yamasato with question after question, almost obsessively.
 
-"...I'm sorry. I must have been a terribly troublesome subordinate."
+"...Sorry, for being such a troublesome subordinate."
 
-Looking back, it's all rather embarrassing. I was desperate to be of help to Yui-san myself...\
-Looking rather crestfallen as I said this, Manager Yamazato chuckled softly and shook her head.
+Looking back, it's all a little embarrassing. I'd been desperate too, wanting to be some help to Yui-san... Saying it, a little sheepish, Manager Yamasato laughed and shook her head.
 
-"Not at all. Before I became a manager in the Budget Management Department, I spent a long time in the Corporate Planning Department myself. It was enjoyable being able to discuss all sorts of things. I've gone off track, but... what I'm trying to say is, I'm really delighted that you, Aosawa-san, have volunteered to take on this challenge. That's my honest feeling. Opportunities to learn alongside the president don't come along often. I think it suits you perfectly. So, I'm delighted to recommend you."
+"Not at all. Before I became manager of budget management, I spent a long time in business planning myself, so it was genuinely fun getting to talk shop like that with you. Anyway, I've gotten off track — what I actually wanted to say is, I'm genuinely happy you came to me wanting to challenge yourself. That's my honest feeling. A chance to learn right beside the president doesn't come along often. I think it suits you perfectly. So, I'll happily write your recommendation."
 
-Hearing her say that with a smile, I couldn't help but lift my face in surprise at the joy.
+Said with a smile, and, overwhelmed with gratitude, I looked up sharply.
 
-"Thank you. Are you sure? I'm still in training."
+"Thank you so much. Are you really sure? I'm still in the middle of training..."
 
-"That doesn't matter. Opportunities don't always come along when you feel ready. If a chance arises, you should seize it. That's incredibly important. After all, you never know when the next opportunity might come along – wouldn't it be a waste to just wait? Even if it doesn't work out, you'll always have a place to return to. It's worth the challenge. I'll be rooting for you."
+"That doesn't matter. Opportunities don't come around conveniently timed to exactly when you want them, so when a chance shows up, you take it. That's genuinely important. Because you never know when the next one'll come along — waiting around would be such a waste, don't you think? Even if it doesn't work out, you've got a place to come back to. It's worth the attempt. I'm rooting for you."
 
-　Ah, I truly felt grateful from the bottom of my heart that this person was my manager. Manager Yamazato, I'm sorry for ever thinking you were a bit of a scatterbrain. Since becoming a working adult and interacting with so many mature individuals like this, I've come to realise it anew.
+Ah, I thought, genuinely, from the bottom of my heart, how lucky I am to have this person as my supervisor. Manager Yamasato, sorry for ever thinking you were oblivious. Since becoming a working adult, getting to interact with so many adults like this, it strikes me all over again.
 
-I'm still so immature and green. I couldn't do anything on my own; I'm here only because of the support of so many people.\
-Yui-san, she leapt over every step of the ladder that newcomers are supposed to climb one by one through effort, and became president. How much hardship must that have entailed?
+I'm still so young, so green. Can't do anything on my own — I'm only here because of the support of so many people around me.\
+Yui-san, meanwhile, skipped every single rung of that ladder new hires are supposed to climb one step at a time, entirely through sheer effort, and became president. How much hardship must that have taken?
 
-　Thank you, I bowed deeply once more. Manager Yamazato smiled and said, "I'm recommending you, so you absolutely must pass." So I smiled and nodded back.
+I bowed my head deeply, thanking her again. Manager Yamasato said, smiling, "Since I'm the one recommending you, you'd better pass, okay." So I smiled and nodded back.
 
 ＊＊＊
 
-Upon returning from the overnight training session, I immediately informed Mitsuya-san and Seno-san that I would be applying for the open recruitment. If I passed the document screening, there would be an interview too. I saw no need to keep it secret, and I knew it would inevitably cause them some inconvenience.
+Once Mitsuya-san and Seno-san got back from their overnight training, I told them right away that I planned to apply for the posting. If it made it through document screening, there'd be an interview too. I figured there was no point hiding it, and I knew it would inevitably cause them some inconvenience either way.
 
-Mitsuya-san firmly grasped my hand and said, "I'll be rooting for you." Seno-san, in her usual manner, offered a single, straightforward word of encouragement: "Do your best."
+Mitsuya-san gripped my hand tight and said, "I'm rooting for you," and Seno-san, in her usual breezy way, offered a simple, clean "good luck" of support.
 
-And so, I succeeded in securing the cooperation of the Budget Management Section. Yet, I deliberately said nothing to Yui about applying for the secretary position. Even in our daily messages, I haven't touched upon this subject at all.\
-　Because, for some reason, Yui-san doesn't really like talking about work when she's with me. I wondered if she might be the type who likes to keep work and private life separate.
+So I'd managed to win over the whole budget management team — but I deliberately said nothing to Yui-san about applying for the secretary role. Even in our daily back-and-forth of messages, I never once brought the topic up.\
+Because, for whatever reason, Yui-san doesn't really seem to want to talk about work when she's with me. I figured maybe she's the type who prefers to keep work and personal life separate.
 
-Just as she'd said in spring, "Summer gets busy," perhaps because the grand opening of the new large resort hotel was imminent, Yui-san was either constantly away on business trips or, even when present, would vanish into the president's office without taking a break, a convenience store bag in hand. That was her daily routine.
+Just as she'd said back in spring — "summer will get busier" — with the new resort hotel opening bearing down, Yui-san's been either away on business trips constantly, or, on the rare days she's in, disappearing into the president's office with a convenience store bag in hand, no break taken at all. That's the kind of days she's been having.
 
-　If I could become her secretary, could I support Yui-san like that? No, I mustn't get weak-hearted wondering if I could. I will become one, absolutely. I need that level of determination; otherwise, there's no way a newbie like me could push aside the other candidates and become her secretary.
+If I actually became her secretary, could I be some support to a Yui-san like that? No — not "could I." No room for that kind of weak thinking. I *will.* I have to hold myself to that kind of confidence, or there's no way a rookie like me could ever push past the other candidates to land the role.
 
-　Manager Yamazato is truly efficient; she drafted my recommendation letter almost immediately afterwards. Despite being busy with her reduced hours, she carefully reviewed and edited even the motivation statement I’d written myself. I’m truly indebted to her.
+Manager Yamasato really does work fast, and had the recommendation letter finished up almost right away. Even swamped with shortened working hours, she still read through my statement of purpose carefully and helped me polish it — I genuinely can't thank her enough.
 
-She’s kind, considerate, and though she seems gentle, she observes people keenly. A wonderful person. Someday, I want to be like Manager Yamazato. That’s what I thought.
+Kind, considerate, seemingly easygoing and yet watching people closely the whole time. A wonderful person. Someday, I'd like to become someone like Manager Yamasato too, I found myself thinking.
 
-　Thanks largely to Manager Yamazato's guidance, my application documents were safely completed three days before the deadline. I'd checked thoroughly for typos and mistakes, and I felt I'd polished the content until it was solid.
+*
 
-When it comes to sheer determination, I absolutely won't be beaten by anyone. Thinking that, I clicked the submit button on the application form.
+The application materials, coming together almost entirely thanks to Manager Yamasato's guidance, were finished, safely, three days before the deadline. I checked carefully for typos, and I think the content itself came out genuinely well-crafted, thought through carefully.
 
-"Right, submitted... done."
+If it's purely about sincerity, I won't lose to anyone. Thinking that, I clicked the submit button on the application form.
 
-After confirming it uploaded successfully, I let out a sigh and slumped back into my chair. That was the first hurdle cleared. Apparently there's a document screening next, but would Yui-san look over my application?\
-I was a little curious how she'd react to my applying. Would she tell me the approximate competition rate if I asked?
+"Alright, submitted..."
 
-I moistened my lips with the tea, now thoroughly cold. I'd been so engrossed that quite some time had passed since brewing it.\
-Perhaps I should send Yui-san a message tonight after all. As I idly pondered this, a pop-up from the company chat suddenly appeared with a plop in the bottom right corner of my monitor. I couldn't help but double-take at the familiar name displayed there.
+Confirming it uploaded successfully, I let out a breath and sank back against my chair. One hurdle down, at least. Apparently document screening comes next — I wonder if Yui-san herself will be the one reviewing the applications?\
+I found myself a little curious how she'd react to me applying. If I asked, would she tell me how competitive it is?
 
-"Hmm...?"
+I wet my lips with tea that had gone completely cold. Too absorbed to notice, a fair amount of time had passed since I'd brewed it.\
+Maybe I should message Yui-san tonight after all, I thought, idly — when a company chat notification suddenly popped up in the bottom right of my monitor, and I found myself doing a genuine double-take at the familiar name displayed there.
 
-'Come to the president's office immediately.'
+"Huh...?"
 
-The display name read 'Ichinose Yui'. There's no one else in this company with that exact name. This was unmistakably a message addressed to me from Yui-san, the company president.
+*"Come to my office, right now."*
 
-This was the first time I'd ever received an internal chat message. Usually, if she needed something, she'd message my personal mobile. Being summoned to the president's office was also a first. So this couldn't be personal. It was definitely work-related.
+The display name read: "Ichinose Yui." There's no one else at this company sharing that exact name. Unmistakably, a message addressed to me, from Yui-san, president of this company.
 
-Somehow... this gave me a bad feeling.
+This was the first time I'd ever gotten a company chat message. Because whenever there's actually something to say, it always comes through my personal phone instead. First time being summoned to the president's office too. Which means this isn't a personal matter. Definitely something about work.
 
-"Ah, um, Manager Yamazato?"
+Somehow... this feels like a bad sign.
 
-"Hmm? What is it? Couldn't you post it?"
+"Um, Manager Yamasato."
 
-I timidly addressed Manager Yamazato, seated at the birthday seat in our Budget Management Department.
+"Hm? What's wrong? Couldn't you submit it?"
 
-"No. I managed to post it... but I've just been summoned by the president. Would it be alright if I stepped away for a moment...?"
+I called out, hesitant, to Manager Yamasato, seated at the head of our little budget management row.
 
-As soon as I said that, Mitsuya-san and Seno-san stood up from their chairs in unison with a clatter, then hurriedly leaned in to peer at my monitor as if trying to read it. Seeing the president's chat message still displayed, Seno-san tilted his head.
+"No, I submitted it fine, but... the president just summoned me, so could I step away for a bit...?"
 
-"Blimey... which one is it, I wonder?"
+The moment I said it, Mitsuya-san and Seno-san both shot up from their chairs in perfect unison, practically leaning over my monitor. Seeing the still-open chat message from the president, Seno-san tilted her head.
 
-"Which one? Eh? What do you mean?"
+"Whoa... I wonder which *kind* this is."
 
-Mitsuya-san followed up, asking Seno-san to clarify his words.
+"Which kind? Wait, what do you mean?"
 
-"If the president is calling you out, it must be serious, right? I mean, we can't tell if it's favourable or not."
+Mitsuya-san pressed, checking Seno-san's meaning.
 
-Hearing that, I suddenly felt a bit uneasy. Knowing Yui-san, I don't think she'd be angry... but I still felt a little worried.\
-　Manager Yamazato gave my restless shoulders a light pat.
+"The president calling someone in personally is a pretty big deal, right? I mean, whether it's the good kind or the bad kind, hard to say."
 
-"Now, now, you two, stop stirring up anxiety. You won't know about the president until you ask the president. Anyway, Aosawa-san, go on then."
+Put that way, I started to feel a little uneasy. Knowing Yui-san, I don't think she'd be angry... but it's still a little worrying.\
+Manager Yamasato, noticing my restless, fidgety nerves, gave my shoulder a light pat.
 
-Hearing that, I nodded.
+"Now, now, you two, don't go stoking anxiety like that. We won't know what's on the president's mind unless the president tells us. Anyway, Aozawa-san, off you go."
 
-"Sorry, I'll be off then."
+At that, I nodded, small.
 
-Grabbing my notebook and ballpoint pen, I hurried towards the president's office where Yui-san waited, the two seniors' encouragement behind me.
+"Sorry, I'll be right back."
 
-Standing before that imposing door I'd never entered before, my heart pounded so hard it felt like it might burst any moment.
+Grabbing my notebook and a pen, I hurried off toward the president's office, my two seniors' encouragement at my back.
 
-I knocked timidly, and from inside came Yui-san's voice: "Come in."
+Standing in front of that heavy, imposing door I'd never once set foot behind, my heart was pounding hard enough that it felt like it might actually burst.
+
+Hesitant, I knocked, and Yui-san's voice came from inside — "Come in."

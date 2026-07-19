@@ -1,265 +1,273 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 9
 parent: Second year as a working adult, summer
 sequence: 73
-title: 'Episode 70: Like the Night Sea'
+title: "Episode Seventy: Like the Nighttime Sea"
 ---
-Episode 70: Like the Night Sea
+## Episode Seventy: Like the Nighttime Sea
 
-"Yui, hurry up, hurry up!"
+\
+"Yui-san, hurry, hurry!"
 
-After parking the car, I couldn't contain my impatience and started walking, pulling Yui's hand along.
+The moment we'd parked, unable to hold back my eagerness, I pulled Yui-san's hand and set off walking.
 
-"You don't need to rush like that. The whale shark isn't going anywhere."
+"No need to rush, the whale shark isn't going anywhere."
 
-Yui intertwined her fingers with mine, which had naturally started walking quickly, and laughed at me for acting like such a child.
+She laced her fingers through my hand, which had naturally quickened its pace, and laughed at me, delighted like a kid.
 
-　As we emerged from the park, a colossal whale shark monument came into view. I couldn't help but run towards it and look up.
+Passing through the park, a massive whale shark monument came into view. I found myself rushing over, looking up at it.
 
-"Is this life-size...?"
+"Is this... life-size, I wonder?"
 
-"Well, I don't know. I've never seen one in real life either."
+"Who knows. Never seen one myself, so I can't say."
 
-Looking up from below, it seemed as though it were swimming through the blue sky. Beyond this, there really was a whale shark. Thinking that, a smile naturally spread across my face.
+Looking up from below, it looked almost like it was swimming through the blue sky. Somewhere ahead, there'd be a real whale shark. Thinking that, a smile spread across my face without my meaning it to.
 
-"Yui-san, let's go inside. The main tank should be exciting, won't it?"
+"Yui-san, let's go inside. I can't wait for the big tank."
 
-"Yes, I suppose so."
+"Yeah, let's."
 
-We took the escalator up to the facility entrance on the third floor. This aquarium's route doesn't start on the first floor; instead, it descends from the upper floors downwards, seemingly designed to mimic diving deep into the sea.
+We rode the escalator up, heading for the entrance on the third floor. This aquarium's route apparently doesn't start from the ground floor — it runs from the top down, structured so it feels like you're diving deeper and deeper into the sea.
 
-　Having pored over the official website from cover to cover until I fell asleep last night, the map of the building is firmly lodged in my mind.
+Last night, I'd read through the official site cover to cover before falling asleep, so the whole floor map was already in my head.
 
-Seeing me glide along without hesitation, Yui-san remarked, "So you were looking forward to this, were you?" and smiled happily.
+Moving through, easy, never once lost, Yui-san laughed, happy — "you're really looking forward to this, huh."
 
-　Ever since childhood, whenever my father was transferred, I always made a point of visiting the local aquarium. Having lived in places from Tōhoku in the north to Kyūshū in the south, I reckon I've probably seen more aquariums than most people.\
-The real thrill of an aquarium lies in how it recreates the unique seas of that particular region.\
-Take this place, for instance – the large coral reef tank right before us now.
+*
 
-"When did you first become fond of aquariums, Kanata?"
+Since childhood, every time my father got transferred, I'd always made a point of visiting whatever aquarium was local to wherever we landed. From Tōhoku in the north to Kyushu in the south, having lived in so many places, I think I probably know more aquariums than most people.\
+The real appeal of an aquarium lies in how it recreates the sea unique to that particular region.\
+Here, for instance — that huge coral reef tank right in front of us now.
 
-Asked so casually, I traced back to childhood memories.
+"When did you start loving aquariums, Kanata?"
 
-"Around primary school age, I suppose. My mother's family home is in Kamakura... During summer holidays, my grandfather often took me to Enosui. We'd take the train, then walk just a little way."
+Asked so casually, I traced back through childhood memory.
 
-The sensation of wind mingled with the scent of the sea brushing my cheeks, the sound of cicadas. The taste of the Calpis my grandmother gave me. It all comes back easily.
+"Around elementary school, I think. My mother's family home is in Kamakura... every summer break, my grandfather used to take me to Enosui. We'd take the train, then walk a little ways."
 
-Kites circling and spiralling through the sky, always keeping an eye on them as I walked along that path, held by my grandfather's hand.
+The feel of a breeze mixed with the smell of the sea against my cheek, the sound of cicadas. The taste of Calpis my grandmother always packed for me. Easy to remember, all of it.
 
-Precious summer memories spent in Japan.
+Black kites circling overhead in slow loops, always catching my eye as I walked that road, hand in my grandfather's.
 
-For someone like me, who's moved around so much I don't really have a hometown, I always loved returning to my mother's hometown every summer. I adored the streets there.
+A precious summer memory, from my time in Japan.
 
-"Enosui, you say?"
+With so many moves, I never really had a hometown of my own — so I always loved that stretch of streets we'd return to every summer, my mother's hometown.
 
-"It's the aquarium on Enoshima. She always took me there during the summer holidays, so maybe that's why I always want to go to an aquarium when summer comes around."
+"What's Enosui?"
 
-"Is that so? Enoshima, eh? I've never been there."
+"An aquarium on Enoshima. I always got taken there during summer break, so maybe that's why I want to go to an aquarium every time summer comes around."
 
-"Well then... next year, I'll take you there, Yui-san."
+"I see. Enoshima, huh. Never been."
 
-I smiled and peered into Yui-san's eyes. In that town, I could walk with my eyes closed.
+"Then... next year, I'll take you there, Yui-san."
 
-　Next year — if possible, as your girlfriend — I want to walk hand in hand with you without a care.\
-Right now, I can truly believe that day will come.
+Laughing, I looked into her eyes. That town — I could walk it blind.
 
-She didn't rush me as I gazed intently at each tank. Her eyes, calm and still like the night sea, kept watching me gently.
+Next year — if it's possible, as her girlfriend, I want to walk it hand in hand with you, without hesitation.\
+Right now, I could genuinely, wholeheartedly believe a day like that would come.
 
-　Up ahead lay the spectacular main tank, where whale sharks and southern manta rays swam with grace. This aquarium's crowning glory.\
-I'd always wanted to see it. Passing through the corridor, the sight of that immense ocean filling my vision drew an exclamation of wonder from me.
+Never once rushing me, watching me stare seriously at each tank, those calm eyes, still as a nighttime sea, kept gently watching me the whole time.
 
-"Amazing..."
+*
 
-Perhaps because it was summer, even on a weekday it was by no means quiet. Carefully avoiding bumping into people, I slowly descended the slope and approached the front of the tank's acrylic panel.
+Just ahead lay the aquarium's crown jewel: a massive, breathtaking tank where whale sharks and manta rays swam, elegant and unhurried.\
+I'd wanted to see this for so long. Stepping past the corridor, the sight of that oversized sea bursting into view pulled a small gasp of wonder out of me.
 
-Children who had been looking up at the whale sharks in front of the tank ran excitedly back to their parents.
+"Incredible..."
 
-"It's the summer holidays, so there are lots of families, aren't there? How lovely, a summer holiday like this. A family trip to Okinawa, how wonderful."
+Being summer, even a weekday brought no shortage of crowds. Careful not to bump into anyone, I made my way slowly down the sloped walkway, right up to the front of the acrylic panel.
 
-　Saying this, I approached the now empty tank and gently touched its surface.\
-Beyond the thick acrylic panel lay the sea I longed for.\
-Its enormous body, with its distinctive, regular pattern, swam towards the opposite side of the tank—if I waited a little longer, it would surely come this way.
+Some kids who'd been looking up at the whale shark went bounding off toward their father, delighted.
 
-"...Kanata, do you ever think you'd like to have children?"
+"So many families, since it's summer break. Must be nice, that kind of summer. A family trip to Okinawa sounds lovely."
+
+Saying that, I walked up to the now-empty spot in front of the tank and gently touched the surface.\
+Beyond that thick acrylic panel, the ocean I'd longed to see.\
+That massive body, marked with its distinctive, orderly pattern, swam along the far side of the tank — wait a little longer, and it would come this way.
+
+"...Kanata, do you ever want kids someday?"
 
 "Eh?"
 
-　Caught off guard by the question, I looked at Yui-san beside me. The light streaming in from the tank cast a bluish glow on her pale cheeks.
+Caught off guard by such a sudden question, I turned to look at her. The light filtering through the tank lit her pale cheek in blue.
 
-Whether I wanted children? Why ask that? Had she thought of it after seeing that happy family earlier?
+Want kids? Why ask that, out of nowhere. Maybe seeing that happy family a moment ago had prompted it.
 
-Yui-san didn't turn to face me, her gaze fixed on the tank. So I too quietly returned my eyes to the whale shark on the other side.
+Yui-san didn't turn to face me, kept her eyes on the tank instead. So I let my own gaze drift back to the whale shark on the other side too.
 
-"That sort of thing... I haven't really thought about it much."
+"I haven't really... thought about that kind of thing much."
 
-"Well then, think about it. Now."
+"Then think about it. Right now."
 
-I felt the strength in the clasped hands. A resolute voice pierced straight through my chest.
+I could feel her grip on our joined hands tighten. Her voice, firm with real weight, pierced straight through my chest.
 
-It was unusual for her to ask such a thing. And it was the first time she'd ever pressed me for an answer.
+Unusual, her asking something like that. And this was the first time she'd ever pressed me for an answer this directly.
 
-Watching the southern manta ray pass overhead, I thought about it seriously.
+Watching a manta ray glide past overhead, I thought it over, seriously.
 
-　Would there ever come a day when I too wished to hold my own child? If such a future existed, I was certain it would bring happiness.
+Would a day come, someday, when I'd want to hold a child of my own? If a future like that existed, I think it would be a happy one.
 
-Raising my own child might be hard work, but each day would surely be fulfilling.
+Raising a child of my own might be hard, but it would surely make for a full, meaningful life.
 
-But Yui wouldn't be there. You, who cherish me more than anyone else in the world, wouldn't be there.
+But Yui-san wouldn't be there. You, who treasures someone like me more than anyone else in the world — you wouldn't be there.
 
-　A future and possibilities drawn with someone else, not Yui. To think I'd want that so much I'd let go of this person — I simply couldn't bring myself to believe it.
+A future and a possibility built with someone else, someone who isn't Yui-san. Wanting that badly enough to give her up — I couldn't, no matter how I tried, bring myself to think that.
 
-"...Whether or not I have children isn't important. As long as I can be with the person I love."
+"...Whether there are kids or not, that's not what matters. Not if I can be with the person I love."
 
-My own child? Fine. I don't need one. It's not that I don't want to see your child. But that's only if it were mine and yours. That's impossible in reality; it's just a fantasy.
+My own child is fine. I don't need one. It's not that I've never wondered what your child might look like. But that's only if it were our child, yours and mine. Something that could never actually happen in reality — nothing but a fantasy.
 
-"Yui... do you want children?"
+"Do you... want kids, Yui-san?"
 
 "You're asking me that?"
 
-She laughed as she said it. Though she was a lesbian who might only love women, I thought whether she wanted children was a separate matter. That's why I asked. I genuinely wanted to know what she thought. Even if she couldn't have that with a man, there must be countless ways to fulfil that wish.
+Yui-san laughed, saying it. Being gay, the person she loves might only ever be women — but I thought, whether she wants kids or not is a separate question entirely from that. So I asked. Because I genuinely wanted to know how she felt. Even without a man, there are surely all kinds of ways to make that wish come true, if she wanted it.
 
-"So...?"
+"So, which is it...?"
 
-I waited nervously for her reply, and finally, our eyes met—her gaze gentle.
+Nervous, I waited for her answer, and finally, her gentle eyes met mine.
 
-"I don't think I want children of my own... but I suppose I'd like to see Kanata's child. I'm sure it would be adorable."
+"I don't think I want a kid of my own... but I think I'd like to see what a kid of yours would look like, Kanata. I bet they'd be adorable."
 
-Knowing she was picturing my unborn child deep in my eyes made me bristle.
+Realizing she was picturing some not-yet-existing child of mine in her mind, I felt a flash of displeasure.
 
-I want you to think only I am adorable. Is that selfish?
+I want "adorable," in your eyes, to mean only me. Is that a selfish thing to wish for?
 
-"...I'm satisfied just knowing I'm the one you love most. I don't need children."
+"...I'm satisfied, as long as the person I love thinks of me first, above everything. I don't need a child."
 
-Just as I stated this firmly, a shadow fell overhead. Looking up in alarm, the long-awaited whale shark was about to pass directly above us.
+The instant I said it plainly, a shadow fell overhead. Startled, I looked up, and there, right above us, the whale shark I'd been waiting for was finally passing by.
 
-Its sheer size left me speechless. Looking up from below, it seemed to be flying through the sky.
+Its sheer scale left me speechless. Looking up from below, it looked almost like it was flying through the sky.
 
-As if to pull me back to reality, the hand I was holding tightened its grip.
+As if pulling me back to reality, our joined hands were gripped tight.
 
 "...Kanata."
 
-Hearing my name, I looked over. Yui-san, still gazing up at the whale shark, murmured softly, "Thank you."
+Called by name, I looked over. Still gazing up at the whale shark, Yui-san murmured a small "thank you."
 
-Why "thank you"? I wondered... but I didn't ask any more.
+Why "thank you"? I wondered — but I didn't ask any further than that.
 
 ＊＊＊
 
-After taking our time exploring the aquarium, we returned to the hotel with the whale shark plushie Yui-san had bought me cradled in my lap.
+After thoroughly touring the aquarium, hugging the whale shark plushie Yui-san had bought me against my lap, we headed back to the hotel.
 
-Since it also served as competitive research, we dined on the hotel's luxurious dinner. With both stomachs and hearts full, today's work... well, I'm not sure if I should call it that, but it was done for now. We returned to our room together.
+Since this doubled as competitor research, we had dinner at the hotel's lavish restaurant. Once both stomach and heart were full, today's "work" — if you could even call it that — wrapped up. The two of us headed back to our room together.
 
-　We'd booked a twin room again today, and naturally, Yui-san's bed and mine were separate.
+Today's booking, again, was a twin room, and, naturally, my bed and Yui-san's bed sat apart.
 
-While the luxurious, spacious room was appreciated, this subtle distance felt frustrating.
+The lavish, spacious room was appreciated, sure, but I found myself faintly frustrated by that subtle, deliberate distance.
 
-I should have listened to Yui-san and just booked a double room. I found myself thinking the same thing as yesterday.\
-The gap between the beds felt uncomfortably wide.
+I should have just listened to Yui-san and gone with the double after all, I thought — the same thing I'd thought yesterday.\
+The gap between the two beds felt strangely wide.
 
-　As soon as we got back to the room, Yui-san ran a bath for me and said, "You can go first," offering it to me as if it were the most natural thing.
+The moment we got back to the room, Yui-san ran the bath for me and said, easy, like it was nothing at all, "you can go first."
 
-After gratefully taking the bath first, I changed into my room clothes – a T-shirt and shorts – and left the bathroom.
+Gratefully taking her up on the bath, I changed into a T-shirt and shorts and stepped out of the bathroom.
 
-I’d thought it yesterday too, but having Yui-san in the same room made me feel just a little tense.
+Same as yesterday, having Yui-san in the same room makes me a little tense.
 
 "Thank you for the bath."
 
-"Hmm, well then, I suppose I'll have one too."
+"Mm, guess I'll go in too."
 
-Unaware of my feelings, Yui-san prepared her change of clothes and calmly disappeared into the bathroom.
+Not knowing a thing about how I felt, Yui-san got her change of clothes ready and disappeared into the bathroom, perfectly composed.
 
-She did say she wouldn't do anything... but honestly, her doing absolutely nothing is somehow throwing me off balance.
+She'd said she wouldn't do anything, sure — but honestly, having her actually keep to that threw off my rhythm in its own way too.
 
-Is it just me who's been feeling this constant fluttering in my chest?
+Is it possible... I'm the only one whose heart's been racing this whole time?
 
-　Opening the curtain and stepping out onto the balcony, I saw the private beach lit up in orange.
+Pulling back the curtain and stepping onto the balcony, I could see the private beach, lit up orange.
 
-Come to think of it, I hadn't been to the beach yet. I could go tomorrow morning, but... since I'm here, maybe I'll just pop over while Yui-san is in the bath.
+Right — I remembered, I still hadn't made it to the beach. I could go tomorrow morning, but... since we're here, maybe I'd take a quick look while Yui-san was still in the bath.
 
-With that thought, I grabbed the room key and slipped quietly out.
+Struck by that thought, I grabbed the room key and slipped quietly out of the room.
 
 ＊＊＊
 
-I sat down on the smooth sandy beach, simply watching the waves roll in and out.
+Sitting on the soft, powdery sand, I watched the waves roll in and pull back out, again and again.
 
-Here and there, the water surface sparkled and shimmered, reflecting the orange glow of lights.
+Here and there, the water's surface caught and reflected the orange lights, glittering.
 
-It was a little warm, though not as hot as during the day. Listening to the sound of the waves, I savoured the happy memories of today, reliving them.
+Warm, but not as hot as during the day. Listening to the sound of the waves, I found myself replaying today, savoring every bit of it.
 
-"There you are."
+*
 
-How long had I been sitting there? Startled by the voice behind me, I turned to find Yui-san standing there, now changed into a white T-shirt.
+"So this is where you were."
 
-"Were you watching the sea? You weren't here after the bath. I was worried."
+I have no idea how much time had passed. Startled by a voice calling from behind, I turned to find Yui-san, changed into a white T-shirt, standing there.
 
-"Ah... Sorry for not saying anything. Listening to the waves felt so peaceful."
+"Were you watching the ocean? You weren't there when I got out of the bath. Gave me a scare."
 
-Yui sat down beside me. As she drew near enough for our shoulders to brush lightly, I caught the scent of her freshly bathed skin.
+"Ah... sorry, for not saying anything. The sound of the waves felt so nice, I just..."
 
-As if drawn to it, I rested my head on her shoulder and leaned in. Taking her left hand, I pulled her close and held her tight.
+Yui-san sank down beside me. Close enough that our shoulders brushed, faintly, I caught the scent of her, fresh from the bath.
 
-　I wish we could just be cut off like this, the two of us alone, and time would stop. I find myself seriously thinking such a dreamlike thing.
+Drawn in, I rested my head against her shoulder, leaning in. I took her left hand and hugged it tight.
 
-"Thank you for today. I really... enjoyed myself."
+If only time could just stop, right here, cutting out only the two of us. I found myself, genuinely, seriously wishing for something that dreamlike.
 
-"I enjoyed it too. Next time, let's come privately."
+"Thank you for today. It was... really fun."
 
-I nodded, 'Mm-hmm,' and gazed out at the shallow, night sea. It felt so good, I didn't want to leave. That's how I felt.
+"I had fun too. Let's come back sometime privately."
 
-"Yui-san... you remind me of the night sea."
+I nodded, and gazed out at the shallow, night-dark sea. Comfortable, and I didn't want to move.
+
+"Yui-san... you're like the nighttime sea."
 
 "The sea?"
 
-"I've thought so since my student days. You resemble a calm night sea. Serene, comforting... it makes me want to stay here forever."
+"I've thought it, ever since college. Like a calm, still nighttime sea. Peaceful, comfortable... makes me want to stay here forever."
 
-There's no one here. No one is watching us. So even if I were to claim you all for myself like this—
+No one's here. No one's watching us. So even like this, having you all to myself—
 
 "...Kanata."
 
-Hearing my name, I gently lift my face. Long lashes are lowered before me, and a moment later, I feel the soft touch pressed against my lips.
+Called by name, I gently lifted my face. In front of me, long lashes lowered, and a beat later, I registered the soft pressure pressed against my lips.
 
-I'm being kissed. I only fully understood that after those lips reluctantly pulled away.\
-Those dark eyes stare intently into my dazed gaze.
+Being kissed. I only understood it once those lips, reluctant, pulled away.\
+Stunned, her black eyes held mine, steady.
 
 "Yui-san...?"
 
-"Sorry. I was trying to get the order right this time... but I just couldn't hold back."
+"Sorry. I meant to get the order right this time... but I couldn't hold back after all."
 
-Saying that, Yui-san lowered the outer corners of her eyebrows and smiled.
+Saying that, Yui-san's brows drew down, and she laughed.
 
-She took my hand and squeezed it tightly. It was her habit when she was about to have a serious talk. That alone made me realise she was about to tell me something, and my heartbeat suddenly quickened.
+She took my hand and gripped it tight. That habit of hers, whenever she's about to say something serious. Just from that alone, I understood she was about to tell me something, and my heartbeat sped up, sharp.
 
-"Kanata"
+"Kanata."
 
-A piercing gaze, strong and unwavering, met my wavering eyes. After taking a deep breath, Yui-san, still holding my hand, spoke softly to me.
+That firm, unwavering gaze pierced straight into my wavering eyes. After a deep breath, still holding my hand, Yui-san said it, gentle.
 
-"...I promise I'll definitely break off the engagement. I won't disappoint you again, Kanata. As long as you'll forgive me, I'll stay by your side forever. I'll do anything I can for you. So..."
+"...I promise, I'll absolutely break off the engagement. I won't ever disappoint you again. As long as you'll let me, I'll stay by your side, always. I'll do anything, whatever's within my power. So..."
 
-I could feel Yui's hand stiffen ever so slightly. I simply followed her words.
+I could feel her hand, faintly tense.  I just followed her words.
 
-"...Will you go out with me?"
+"...Go out with me."
 
-Those simply spoken words were what I had wished for, longed for, ever since our school days.
+Simple as it was, those words were exactly what I'd wished for, without fail, ever since our college days.
 
-A muddy torrent of indescribable emotions surged up, my vision slowly blurring with tears.
+Some tangled, indescribable swell of feeling rose up in me, and my vision slowly blurred with tears.
 
-"Yui-san, I've been... I've been waiting for you to say that for so long. Since our school days."
+"Yui-san, I've been... waiting for you to say that, this whole time. Since we were students."
 
-A gentle thumb wiped away the overflowing tears.
+Her gentle thumb wiped away the tears spilling over.
 
-"Yes, I'm sorry. I'm sorry I made you wait. Kanata, will you be my... girlfriend?"
+"Yeah, sorry. Sorry for making you wait. Kanata, will you be my... girlfriend?"
 
-Even though she knew the answer all along. Peering anxiously into my face, Yui asked again. And I — nodded firmly.
+As if she didn't already know the answer. Peering into my face, anxious, asking again — I nodded, firm, in answer.
 
-Seeing me like that, Yui looked as if she might cry herself, then smiled with relief.\
-　I surrendered myself to the arms pulling me tightly against her body. Unable to bear it, I wrapped my arms around her back too, hugging her back, hard, hard.
+Watching me, Yui-san's own face looked like it might cry too, and then she smiled, relieved.\
+I let myself sink into the arms pulling me into a tight embrace. Unable to hold back, I wrapped my own arms around her back and hugged her back, tight, tight.
 
-"I love you, Kanata. I love you so much. Even when we were apart, I always, always loved you."
+"I love you, Kanata. I love you so much. Even apart, I loved you this whole time, without fail."
 
-The words of love whispered in my ear seeped deep into my heart. I too had something I wanted to tell Yui-san.
+The words of love whispered at my ear sank deep into my chest. I have something I want to tell Yui-san too.
 
-"I... love you too. Ever since that time. I've always loved you, Yui-san."
+"I love you too... since that day. This whole time. I've loved you, Yui-san, this whole time."
 
-Hearing this, Yui-san smiled happily. Her gentle hand caressed my cheek, urging me once more to press our lips together.
+Saying it, Yui-san smiled, happy. Cheek stroked gently, our lips met once more, guided along.
 
-When we parted and met each other's gaze, we looked into each other's eyes — and laughed, clinging tightly to one another.
+Pulling apart, meeting each other's eyes, we looked at one another and — hugging each other tight, tight — we laughed.
