@@ -1,275 +1,276 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 6
 parent: Second year as a working adult, summer
 sequence: 70
-title: "Episode 67: Please, Don't Say We Won't Meet Again"
+title: "Episode Sixty-Two: I Mean, We Were Dating Back in College, Weren't We?"
 ---
-Episode 67: Please, Don't Say We Won't Meet Again
+## Episode Sixty-Seven: Please, Don't Ever Say We Should Stop Seeing Each Other
 
-Yui-san let go of the ballpoint pen in surprise, and it rolled onto the desk with a clatter.\
-Ignoring Yui-san, who stared at me blankly with a look that said she had no idea what was happening, I stepped right up beside her.
+\
+The ballpoint pen slipped from Yui-san's startled hand, clattering onto the desk.\
+Ignoring the bewildered look on her face, I walked right up to the desk.
 
-"It's getting on a bit now. Fancy a little break?"
+"It's about that hour — how about a short break?"
 
 "A break?"
 
-Yui glanced down at her wristwatch. It was half past three – the perfect time for afternoon tea. I'd deliberately chosen this hour to come to the president's office.
+Yui-san glanced at her watch. Half past three. I'd deliberately timed my visit to the president's office for exactly the right hour for afternoon tea.
 
-My eyes flickered towards the wastepaper basket beside the desk. A crumpled jelly drink container lay discarded inside.\
-Seems she hasn't been eating proper lunches lately either.
+Glancing at the trash can beside her desk, I spotted a crumpled jelly-drink pouch tossed away. She hadn't even been eating a proper lunch lately, it seemed.\
+I set a saucer and teacup on her desk, along with a small plate holding two macarons, and held out my hand toward her, still blinking in confusion. "Here you go."
 
-　I placed a saucer and teacup on the desk, along with a small plate holding two macarons. Then, extending my palm towards the bewildered Yui, I said, "Here you are."
+"Just until you finish the tea, that's all. Give me that much time. I want you to properly understand how serious I am."
 
-"Just until you finish your tea. Please give me your time. I want you to properly understand how serious I am."
+I looked straight into her eyes. Yui-san's gaze dropped to the tea set laid out before her.
 
-I met her gaze directly. Yui then lowered her eyes to the tea set on the desk.
+"...Smells nice."
 
-"...It smells lovely, doesn't it?"
+"It's the Afternoon Blend. The macarons aren't too sweet either, so I think you'll like them. You haven't really been taking breaks lately, so..."
 
-"It's an Afternoon Blend. The macarons aren't overly sweet either, so I think you'll like them. It seemed like you haven't been taking any breaks lately..."
+"So, this is for me?"
 
-"And this is for me?"
+At my nod, Yui-san smiled, happy. "Thank you."
 
-Nodding, Yui smiled happily and said, "Thank you."
+"See, President? I really do pay attention, don't I?"
 
-"Well, President. I do observe things, don't I?"
+I said it, puffing my chest out slightly, and Yui-san pouted, just a little, faintly displeased.
 
-　She said this with her chest puffed out, then pouted her lips slightly, looking a little displeased.
+"Stop calling me president. When it's just the two of us, call me by name, like always."
 
-"Stop calling me President. When it's just the two of us, call me by my name like you always do."
+"...I thought you wanted to keep work and personal life completely separate, Yui-san."
 
-"...I thought you wanted to keep work and private life completely separate."
+I'd assumed the reason she didn't want me as secretary was to avoid mixing the personal and the professional. So I'd deliberately tried to show I could keep that line clean too — but apparently, that hadn't landed the way I wanted.
 
-I'd assumed she didn't want me as her secretary because she didn't want to mix business with pleasure. So my plan was to show her I was the type who could keep things properly separate.\
-　But it seemed she, the person in question, didn't take kindly to it.
+"That's true, but... I want you to use my name."
 
-"That's all well and good... but I want you to call me by my name, Kanata."
+Unusually hesitant, and I tilted my head. Still, it was a welcome request on my end too — I'd wanted to use her name myself, if I could.
 
-Her unusually hesitant tone made me tilt my head. Still, it was a welcome request for me too. I'd wanted to call her by her name if I could.
+"If that's what you want, Yui-san, understood. ...Anyway, drink it while it's good. It'll get cold."
 
-"If that's what you say, Yui-san, then I understand. ...Anyway, drink it while it's still warm. It'll get cold."
+Urged along, Yui-san said "thanks for the food" and brought the teacup to her lips.\
+I like this tea, but I wonder how Yui-san will take it. Honestly, it'd taste even better as milk tea, but I'll save that for another time — brewing it properly for her at her own place.
 
-Upon prompting her, Yui-san said, "I'll have some," and took a sip from her teacup.\
-I like this tea, but I wonder how Yui-san feels about it. It's actually much, much better with milk, but I'll save that for another time — I'll brew it for her at her place.
+"...Oh, this is good."
 
-"...Ah, this is delicious."
+Watching Yui-san stare at her teacup, surprised, I gave a small internal fist pump — success.
 
-Seeing Yui-san gaze at her teacup in surprise, I silently pumped my fist in triumph — it seemed to have worked.
+"If you make me your secretary, you might get moments like this all the time, you know — sharing tea together."
 
-"If you made me your secretary, we might even have time to enjoy tea together like this."
+Seizing the opening, I pushed the point, and Yui-san, watching me so earnest about it, smiled.
 
-Seizing the moment to make my pitch, Yui-san smiled at my desperate earnestness.
+"You don't need to be my secretary for that, though."
 
-"But surely we could do that even if Kanata wasn't my secretary?"
+Her pale fingers plucked up one of the macarons. Then she beckoned me closer and held it out to me.
 
-Her white fingertips plucked a single macaron. Then, beckoning me over with a few quick taps, she gently offered it to me.
+"Here. One for you too."
 
-"Here. I'll give you one too."
+"Eh, it's fine, that one's yours..."
 
-"Eh? No, really. That's yours..."
+"You bought this because you like it too, didn't you? Let's split it."
 
-"But you bought these because you like them too, didn't you? Let's share."
+Saying that with a smile threw off my whole rhythm. I always think it — why is this person so kind?
 
-Her smile threw me off balance. I always wonder why she's so kind.
+I hesitated a moment, staring at the macaron, then, unable to resist, bit into the piece she held out.\
+Yui-san followed, taking a bite of the pistachio macaron herself.
 
-After a moment's thought, I stared at the macaron, then succumbed to temptation and took a bite of the one she offered.\
-　Yui followed suit, taking a bite of the pistachio macaron.
+"You're right, not too sweet, delicious."
 
-"You're right, it's not too sweet and really tasty."
+"I'll bring something good again tomorrow too, so look forward to it."
 
-"I'll prepare some more delicious sweets tomorrow too, so look forward to it."
+At that, Yui-san laughed, troubled.
 
-At that, Yui smiled awkwardly.
+"Tomorrow too? ...Kanata, are you really not going to withdraw this?"
 
-"Tomorrow too? ...Kanata, you really don't intend to withdraw?"
+"Of course not. I'll keep coming to convince you until you say yes. Do you hate it? Me coming to the president's office?"
 
-"Of course. I'll keep persuading you until you say it's alright. Do you mind? Me coming to the president's office?"
+I wouldn't accept vague answers. Pressed like that, cornered, Yui-san let out a small sigh, resigned.
 
-I wouldn't tolerate any ambiguity. Pressing her relentlessly, Yui finally resigned herself with a small sigh.
+"There's no way I'd hate it. I'm happy, getting to see your face."
 
-"Of course I don't mind. Seeing your face makes me happy."
+"If you made me your secretary, you could see my face as much as you want, until you're sick of it."
 
-"If you make me your secretary, you'll see my face until you're sick of it."
+"I'd never get sick of it, no matter how much I looked. Because I think you're the cutest in the whole world, Kanata."
 
-"I could never tire of seeing it. Because I think you're the most adorable person in the whole world."
+Under that serious gaze, I nearly went down for the count. Saying something like that so easily, looking straight at me — I lost my next words entirely. I can't afford to lose ground over something like this.
 
-Her earnest gaze nearly knocked me off my feet. She looked straight at me and delivered that smooth line of flirtation so effortlessly, leaving me speechless. I shouldn't be pushed around like this.
+My cheeks felt hot. My face must be turning red. Yui-san laughed at me and took another sip of tea.
 
-My cheeks felt hot. My face must surely be flushed. Yui-san smiled at me like this and took another sip of her tea.
+No, no, I can't let myself get swept along at Yui-san's pace like this.\
+Finishing a cup of tea takes no time at all. My precious window to make my case kept shrinking, fast.
 
-No, no, I mustn't let myself get swept along by Yui-san's pace like this.\
-Finishing this cup of tea will be over in a flash. My precious opportunity to make an impression is slipping away.
+"Once I have a secretary, I'll have more breathing room in my schedule. Then we can go to the aquarium together, like I promised. I'll take you anywhere you want to go."
 
-"If I hire a secretary, I'll have more time. Then, as promised, we can go to the aquarium together, can't we? I'll take you anywhere you want to go."
+In that calm, even voice, Yui-san said it, like she was gently talking me down.
 
-In a calm tone, Yui-san said this to me, as if admonishing me.
+"But... I could do that too, if I became your secretary, couldn't I?"
 
-"But that... I could do it, couldn't I, if I became your secretary?"
+All that matters is easing Yui-san's burden — so all she needs to do is share some of that busyness with me.\
+If anything, working in step with Yui-san's schedule would make it easier for our days off to line up too.\
+Thinking about it that way, I understood even less why it couldn't be me.
 
-It's simply a matter of her sharing some of her workload with me, so her burden would lessen.\
-In fact, if I worked around Yui-san's schedule, it would be easier for us to coordinate our days off.\
-Thinking that way, I found it harder and harder to see why I wouldn't be suitable.
+"Even if it eases things for me, you'd end up busier than you are now, Kanata. I don't want you pushing yourself. That's why, no."
 
-"Even if you becoming my secretary made things easier for me, you'd end up busier than you are now. I don't want you pushing yourself, so it's no good."
+"...You're the one pushing yourself, Yui-san, but I'm not allowed to?"
 
-"...But you're pushing yourself, yet I'm not allowed to?"
+At that, Yui-san tilted her teacup lightly toward me. Empty inside. Which meant — time's up.
 
-Having said that much, Yui-san tilted her teacup slightly towards me. It was empty inside. That meant time's up.
+"Thanks for the meal. It was really delicious."
 
-"Thank you for the meal. It was absolutely delicious."
+Out of time, today. I wanted to keep pressing, but a promise is a promise. "Can't keep to a schedule" would be fatal for a secretary, so I had no choice but to withdraw quietly.
 
-Time's up for today. I wanted to press on, but a promise is a promise. Being unable to keep time is fatal for a secretary, so I had no choice but to back down quietly.
+"...I'll come again tomorrow, too."
 
-"...I'll come again tomorrow."
+Yui-san set her empty teacup on the tray, and my shoulders slumped, defeated.
 
-Yui-san placed the empty teacup on the tray and slumped her shoulders.
+"Excuse me..."
 
-"My apologies..."
+Head down, just as I turned to leave the president's office, a voice called "Kanata" from behind, and I turned back.\
+Those eyes, watching me, narrowed, gentle.
 
-As I turned to leave the president's office, head bowed, a voice called my name from behind: "Kanata." I turned.\
-Her eyes, fixed on me, softened slightly.
+"I was happy we got to talk. I can't make you secretary, but come show me your face again."
 
-"It was nice talking to you. I can't make you my secretary, but do come by again sometime."
+Saying that with a mischievous smile, I stuck my tongue out at her and reluctantly left the president's office.
 
-With that, Yui-san gave a mischievous smile. I stuck out my tongue and reluctantly left the president's office.
+Today... well, fine. It's the first day, and there's still tomorrow. Surely tomorrow will do it.
 
-　Today... well, it couldn't be helped. It was my first day, and there's always tomorrow. Tomorrow, for sure.
-
-That's what I thought — but the next day, at the same time, even my desperate appeal, rare cheesecake in hand, as I barged into the president's office, didn't make Yui-san budge an inch.
+That's what I'd thought — but the next day, at the same hour, marching into the president's office with a rare-cheesecake offensive, Yui-san still refused, stubborn, to nod along.
 
 ＊＊＊
 
-Before I knew it, the final day for applications had arrived. If I didn't get a positive response today, it would be game over.
+Somewhere in the middle of all that, before I knew it, the final day of applications had arrived. If I didn't get a good answer today, it was game over.
 
-Yui's a fool. I knew it, but she's as stubborn as ever. I'd hoped to persuade her using straightforward methods before resorting to my 'secret weapon', but it seems that notion was rather naive.
+Yui-san, you idiot. I knew already, but she really is as stubborn as ever. I'd hoped to win her over through fair, honest persuasion before resorting to the "last resort" — but apparently that hope had been naive.
 
-It's nearly time for afternoon tea. Today I brought my favourite cream puffs.
+Nearly afternoon-tea time. Today I'd brought my favorite cream puffs.
 
-I mustn't lose heart. I tell myself that, but my unease only grows stronger.\
-　Sighing and hanging my head, Seno-san, seated diagonally opposite, looked up from her monitor and met my gaze.
+I mustn't lose my nerve. I told myself that, and yet the anxiety only kept growing.\
+Sighing, head down, Seno-san, seated diagonally across from me, lifted her eyes from her monitor.
 
-"Aosawa-san, are you off to see the president again today?"
+"Aozawa-san, headed to the president again today?"
 
-"Yes... But since yesterday and the day before didn't work out... today's my last chance."
+"Yes... but it didn't work yesterday or the day before either, so... today's my last chance."
 
-"I see. Well, having pushed this far, pulling back might be a tactic too."
+"I see. Well, once you've pushed this hard, backing off might actually be the move now."
 
-　Seno-san's lips curved into a faint smile. But Yui-san is generally quite straightforward, so I think she's the type who doesn't chase after those who leave... Even if I did back off, I'm half-convinced it wouldn't work.
+Seno-san's lips curved into an easy smile. But Yui-san's fundamentally the clean, unattached type, more the "doesn't chase what leaves" sort, I'd think... I'm honestly torn on whether backing off would even work.
 
-I'm utterly hopeless at this sort of manoeuvring. I'm well aware I'm clumsy at love, so I envy people like Seno-san who are so adept.\
-But there's no point regretting now what I can't do.
+I'm hopeless at this kind of maneuvering. I already know I'm bad at romance, so someone as skillful as Seno-san makes me a little envious.\
+But there's no point regretting, now, what I can't do. Not at this stage.
 
-　Let's go. To Yui-san. Resolved, I gave my cheek a sharp tap. It's alright, I still have that 'secret weapon' passed down directly from Ritsu-san.
+Let's go. To Yui-san. I decided, firm, and slapped my cheeks lightly. It's fine — I've still got Ritsu-san's personally taught "last resort" in reserve.
 
-With the seniors' encouragement behind me, I gathered my resolve and stood up.
+With my seniors' support at my back, I steadied my resolve and stood.
 
-Holding the tray, I stood before the president's office. Taking a deep breath, I knocked on the door. Hearing Yui-san's voice from inside saying 'Come in', I steeled myself and opened the door.\
-　The moment Yui-san saw my face, she smiled happily, "I've been waiting for you."
+*
 
-"Today I made cream puffs. These are my recommendation too."
+Tray in hand, I stood in front of the president's office. I took one deep breath, then knocked. From beyond the door, Yui-san's voice — "come in" — and, resolved, I opened the door.\
+The instant Yui-san saw my face, she smiled, happy. "I was waiting."
 
-The outside was crisp cookie dough, the inside not overly sweet custard. Yui-san isn't particularly fond of sweet things, so that aspect had been carefully considered.
+"Cream puffs today. Another recommendation of mine."
 
-"So, Yui-san. Today's the last day for applications, but how many have you had?"
+Crisp cookie crust outside, custard inside that isn't too sweet. Yui-san isn't especially fond of sweets, so I'd factored that in carefully too.
 
-I asked casually. Yui-san paused, as if thinking, then replied, "About thirty, I suppose."\
-Honestly, that many was more than I'd imagined. I clutched the tray in my hands tightly.
+"So, Yui-san. Today's the last day for applications — how many applied, in the end?"
 
-"And how many are you putting through to the document screening?"
+I asked, casual, and Yui-san thought it over briefly. "Around thirty, I think."\
+Honestly more than I'd imagined. I hugged the tray I was holding tighter.
 
-"Five so far."
+"And how many made it through document screening?"
 
-To state clearly that there are five candidates means the list must already be finalised. Whether I'm on it or not, I cannot say.\
-But either way, I believe it's over if I can't overturn this decision here and now.
+"Five, so far."
+
+Saying "five" so plainly meant the lineup of candidates was probably already decided. Whether I'm among them, I have no way of knowing.\
+But either way, I felt certain — if I couldn't turn this around right here, right now, it was over.
 
 "Yui-san... why won't you choose me?"
 
-Those dark eyes looked at me. There was no hesitation there. I sensed a strong resolve that this decision would absolutely not be overturned.
+Those black eyes looked at me. No hesitation in them at all. I could feel her firm resolve — never going to budge.
 
-"...I'm glad you feel that way, but the reason is as I've said many times before. If Kanata gets busy too, it would be pointless."
+"...I'm happy about your feelings, but the reason's the same as I've said, over and over. If you end up busy too, there's no point."
 
-Faced with that blunt statement, I pouted, my lips tightening. Why couldn't she understand my feelings?
+Said so plainly, my lips pursed, displeased. Why won't you understand how I feel?
 
-"...You stubborn fool, Yui-san."
+"...You're so stubborn, Yui-san."
 
-"I won't change my mind, no matter what you say."
+"Nothing you say is going to change my mind."
 
-If Yui-san insists on being so stubborn, then fine. I'll abandon any naive thoughts of a straightforward approach.
+If Yui-san's going to say that much, fine. I'll throw away this naive idea of persuading her the fair, honest way.
 
-"...Very well, I've had enough. If that's how you feel, I won't go on any more dates with you. Outside of work, I won't see you at all from now on!"
+"...Understood, forget it, then. If that's how you're going to be, I'm not going on any more dates with you. From now on, I won't see you outside of the office. At all!"
 
-Having stated that clearly, I turned on my heel towards the door.
+Declaring it plainly, I turned on my heel toward the door.
 
-"Eh!? Wait, just wait a moment! That's completely different from what we're talking about, isn't it!?"
+"Eh!? Wa— wait a second! That's a completely different issue!?"
 
-Then, with a clatter, Yui-san stood up and hurriedly grabbed my hand as I tried to leave the president's office, stopping me.\
-I turned around and glared sharply at Yui-san, who was looking around frantically with a panicked expression.
+With a loud clatter, Yui-san shot up from her chair and rushed to grab my hand before I could leave the president's office.\
+Turning back, I glared hard at her, flustered, eyes darting.
 
-"Because you don't want to be with me, right? If that's the case, then it's fine."
+"Because that means you don't want to be with me, doesn't it? Then, fine. Never mind."
 
-"Of course I don't want to be apart from you. The whole secretary thing... I just wanted to make time for us..."
+"There's no way I don't want to be with you. The whole reason I wanted to bring on a secretary in the first place was to make time for you, Kanata..."
 
-I stared into Yui's eyes as she lowered her eyebrows in a troubled expression, trying to explain.\
-I knew this would upset her. That's why I'd rather not have used this 'last resort', but now it was unavoidable.
+I looked into her eyes, brows drawn down in a troubled attempt to explain.\
+I already knew this would put Yui-san in a hard spot. That's exactly why I'd wanted to avoid this "last resort" if at all possible — but at this point, there was nothing left to do.
 
-Yui squeezed my hand tightly.
+Yui-san gripped my hand, tight.
 
-"...Please, don't say you won't see me anymore."
+"...Please, don't ever say we should stop seeing each other."
 
-Seeing Yui looking utterly crestfallen made my heart ache sharply.
+Seeing her look so thoroughly crestfallen, something in my chest ached, sharp.
 
-—If you say you won't see her unless she becomes your secretary, I reckon Yui'll do anything you ask.
+*If she won't make you her secretary, just say you'll never see her again — Yui'll agree to anything after that* — Ritsu-san's words came back to me, that mischievous grin on her face as she said it. Turns out she'd been right.
 
-I recalled Ritsu's face as she said that, smiling mischievously. It seemed Ritsu had been right.
-
-I'm sorry for saying I wouldn't see you when I never meant it. But I'll do my absolute best to prove myself useful, so just this once... please forgive my selfishness.
+I'm sorry, for saying something I never actually meant — that I wouldn't see you. But I promise I'll work hard enough to actually be useful. Just this once... please forgive my selfishness.
 
 "So, will you make me your secretary? If you promise, I'll take it back."
 
-"...Kanata. That's rather underhanded."
+"...Kanata. That's not fair."
 
-"Underhanded is fine. Because if I'm your secretary, we'll go on business trips together, won't we?　I absolutely don't want to let any other girl have that."
+"It's fine if it's not fair. Because as secretary, you'd go on business trips together, wouldn't you? I don't want that. I don't want to hand that over to anyone else, not at all."
 
-My true feelings spilled out. Yui-san looked down at me, her eyes widening in surprise.
+The honest truth spilled out before I could stop it. Yui-san's eyes went wide, startled, looking down at me.
 
-"...That's your real reason for applying? Could it be... you were jealous?"
+"...Is that the real reason you applied? Were you... jealous?"
 
-Caught out, I fell silent and looked down. I knew I was saying something troublesome. But I couldn't help it.\
-　Anyone would find it unpleasant if the person they liked chose someone else over them.
+Caught dead center, I fell silent, looking down. I know full well I'm being a handful. But I can't help it.\
+Of course it's not fun, watching the person you love choose someone else over you.
 
-Yui-san must know about my selfish nature too.
+Yui-san should already understand that selfish side of me too.
 
-After a brief silence, Yui-san gave a small chuckle. Why are you laughing? Looking up in confusion, I found Yui-san staring at me with surprisingly gentle eyes.
+After a beat of silence, Yui-san let out a small laugh. Why are you laughing? Displeased, I looked up, and found her watching me with eyes surprisingly, unbearably gentle.
 
-"I'm sorry I didn't realise. ...When you say something so adorable, I simply can't refuse."
+"Sorry, I didn't notice. ...Say something that cute, and there's no way I can refuse anymore."
 
 Saying that, her gentle palm stroked my cheek.
 
-"Really? Then will you make me your secretary?"
+"Really? Then, will you make me your secretary?"
 
-"...If that's what you want, then yes. I'm glad you're jealous, but I'd never choose someone else just to make you feel bad. But in return, can you promise me you won't push yourself too hard?"
+"...If that's how it is, fine. I'm happy you're jealous, but I'd never choose someone else if it means making you unhappy, Kanata. In exchange, can you promise me you won't push yourself too hard?"
 
-Saying this, Yui-san relaxed her shoulders and gave a soft laugh. So I nodded immediately.
+Saying that, Yui-san let out a small laugh, shoulders relaxing. So I nodded, without a second's hesitation.
 
-"Right then, I'll get back to work."
+*
 
-I was overjoyed that she'd promised to take me on as her secretary. From now on, I could work right by Yui-san's side.\
-Right now, I felt like I could do anything.
+"Then, I'll head back to work."
 
-　With light-hearted steps, I turned back towards the office. It was the moment my hand touched the doorknob.
+Getting her promise to make me secretary made me so happy I could barely stand it. From now on, I get to work by Yui-san's side, always.\
+Right now, I felt like I could do anything at all.
 
-Suddenly, from behind, I was pulled back with a tight embrace so strong it took my breath away.\
-Startled, speechless, Yui-san gently pressed her lips to my ear.
+Floating on air, I turned back toward the door. Just as my hand touched the doorknob—
 
-"...Hey, Kanata. Is it okay to hope? That you'll fall for me again?"
+Suddenly, from behind, I was pulled into an embrace so tight I could barely breathe.\
+Startled speechless, Yui-san brought her lips gently close to my ear.
 
-Suddenly hearing such words — I couldn’t help but gasp. I could feel my heart pounding so loudly it was almost unbearable.
+"...Hey, Kanata. Can I hope for it? That you'll fall for me all over again?"
 
-"This time, I absolutely won’t let you go… so be prepared."
+Said so suddenly — I caught my breath, unable to help it. I could feel my heart start pounding, loud, frantic.
 
-A gentle kiss on my ear made me turn around in surprise. Then, seeing my flushed face, Yui-san smiled warmly.
+"This time, I'm never letting go... so be ready."
 
-　Until recently, she’d always seemed hesitant to touch me — perhaps I’d pressed a button that shouldn’t have been pushed.
+Kissed gently on the ear, I turned back, startled, and Yui-san, seeing my flushed face, smiled, bright.
 
-That confident smile, reminiscent of our student days, shot straight through my heart with astonishing ease — leaving me utterly speechless.
+Up until recently, she'd seemed so hesitant to even touch me — had I, without meaning to, pressed some switch of Yui-san's I really shouldn't have?
+
+That confident smile, the one that brought back memories of our college days, struck straight through my chest, so easily, and I couldn't manage a single word back.

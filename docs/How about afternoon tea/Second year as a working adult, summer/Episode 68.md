@@ -1,238 +1,246 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 7
 parent: Second year as a working adult, summer
 sequence: 71
-title: 'Episode 68: That depends on Kanata, though'
+title: "Episode Sixty-Eight: That Depends on You, Kanata"
 ---
-Episode 68: That depends on Kanata, though
+## Episode Sixty-Eight: That Depends on You, Kanata
 
-"Right then, to celebrate Aosawa-san becoming a secretary... Cheers!"
+\
+"Well then — to celebrate Aozawa-san's appointment as secretary... cheers!"
 
-Manager Yamazato's toast was met with the satisfying clink of glasses colliding in unison, echoing through the private room of the izakaya.\
-As of today, I leave the Budget Management Department. Next week, I restart my working life as a secretary to the president.\
-Today, the Budget Management Department alone held a farewell party for me.
+At Manager Yamasato's toast, glasses clinked together all at once, a bright, satisfying sound ringing through the izakaya's private room.\
+As of today, I'd be leaving the budget management team, and starting next week, I'd restart my working life as the president's secretary.\
+They'd thrown a farewell gathering today, just for the budget management team, in my honor.
 
-　I'm so glad I joined Yui-san's company and was assigned to this department. Though it was a short time, it truly felt like home.\
-No replacement has been decided yet for the role I'm leaving behind. While I wasn't handling too many duties due to being in training, I'll likely cause some trouble for everyone for a while.\
-Even so, I'm truly grateful that both Mitsuya-san and Seno-san supported me without a single frown.
+I'm glad I joined Yui-san's company, glad I ended up assigned to this department. Short as my time here was, it had genuinely been a comfortable place to work.\
+No successor had been decided yet to fill the gap I'd leave. Since I'd still been in training, I hadn't taken on that much work — but even so, I was bound to cause everyone some trouble for a while.\
+And yet neither Mitsuya-san nor Seno-san had shown the slightest displeasure about it, cheering me on instead. I'm genuinely grateful for that.
 
-"It's wonderful news, but I'll miss you, Aosawa-chan~"
+"It's a happy thing, but it's still going to be lonely, without Aozawa-chan around."
 
-Mitsuya-san said wistfully, beer mug in hand. We'd known each other since we were fresh out of university. It was sad, but fortunately, the Budget Management Department and the President's Office were on the same floor, so we wouldn't completely lose touch.
+Mitsuya-san said it, wistful, beer mug in hand. Mitsuya-san and I have known each other since my very first day as a working adult. Lonely, sure, but at least budget management and the president's office share the same floor, so it wasn't like we'd never see each other's faces again — small mercy.
 
-　Then, Seno-san, seated next to Mitsuya-san, deftly removed some yakitori from its skewer and murmured.
+Seno-san, seated beside Mitsuya-san, pulled a skewer of yakitori apart deftly and spoke up, offhand.
 
-"Still, it's truly impressive, isn't it? How on earth did you persuade the president? Does Aosawa-san seem quiet but turn out to be surprisingly aggressive?"
+"Still, seriously impressive, though. How'd you even talk the president into it? Aozawa-san, you look so mild-mannered, but maybe you're secretly more predatory than you let on?"
 
-Hearing that, I shook my head in disbelief.
+Put that way, I shook my head, no way.
 
-　If 'aggressive' means being proactive in romance, then I'm not that. If anything, I feel like I'm at the opposite end of the spectrum.
+If "predatory" means someone aggressive about romance, that's not me. If anything, I think I'm closer to the opposite end of that spectrum.
 
-Even with Yui, I'd always been the one being pushed. It's not that I'd never made proactive advances... but that was only possible because alcohol had made me stupid. It's not my true nature. Probably.
+Even with Yui-san, I've always, always been the one getting pushed. Not that I've never made a move myself — but that only ever happened because alcohol had scrambled my head. Not really my natural personality. Probably.
 
-"I just followed your advice, Seno-san, and kept going to the president's office to convey my enthusiasm..."
+"Just like you advised, Seno-san — I just kept showing up at the president's office, over and over, and told him how serious I was..."
 
-Sorry, that's a lie. The truth is, I threatened Yui-san and practically forced a YES out of her. But I couldn't possibly say that, so I tried to gloss over it. The part about conveying my enthusiasm wasn't wrong, though.
+Sorry, that's a lie. What actually happened was I half-threatened Yui-san into a forced "yes." But there's no way I could say that, so I deflected. At least the "told him how serious I was" part isn't wrong.
 
-Hearing my answer, Seno-san grinned.
+Hearing my answer, Seno-san smiled, sly.
 
-"Hmm, I see. But I must say, I'm rather envious. Perhaps you have a knack for attracting wealthy people, Aosawa-san? After all, the person you fancy is rich too, isn't he? Or is he already your boyfriend?"
+"Hmm, that so. Still, I'm jealous. Aozawa-san, maybe you've just got a knack for being liked by rich people. I mean, the person you like is rich too, right? Or are you already dating?"
 
-Hearing that said so casually, I couldn't help but let out a small "Eh?" in surprise. Oh dear, reacting like that practically confirmed he was wealthy.
+Said so casually that a small "eh" slipped out before I could stop it. Bad — reacting like that basically confirmed he's rich.
 
-"Well, well, so Aosawa-san's boyfriend is rich. How lovely."
+"Oh, Aozawa-san's partner is rich? How nice."
 
-Manager Yamazato said this while stuffing her face with fried chicken, seemingly not giving it a second thought.
+Manager Yamasato said it, not particularly bothered, mouth full of karaage.
 
-"No, um, we're not actually dating. I just like him..."
+"No, um, we're not dating. I just... like them, that's all..."
 
-"You're not dating? But seriously, those earrings you always wear – they're definitely a gift, right?"
+"Not dating? But that earring you always wear — that's definitely a gift, isn't it."
 
-"Getting such an expensive present but not actually dating? Could he be married, by any chance? No, no, no, you mustn't. An affair? That's just wrong. Aosawa-san's so lovely, it'd be such a waste. Even if he's rich, you won't find happiness that way. You really ought to stop."
+Saying that, Seno-san pointed at her own ear, teasing.
 
-"Seno-san, come on, that's not possible, is it?"
+"Getting an expensive gift like that and still not dating — don't tell me he's married? That's not okay, you know, affairs. Aozawa-san, you're too cute to waste on that. No matter how rich he is, you won't end up happy — better give it up~"
 
-Yui-san was engaged, but not married. Therefore, it wasn't yet an "affair". Absolutely not.\
-　But what to do? If she said anything more, she felt she'd dig herself into a hole. She absolutely couldn't let the other person realise it was Yui-san, so she forced a wry smile and fell silent. Then Mitsuya-san, sitting next to her, gave Seno-san's ear a sharp pinch.
+"Seno-san, come on, that's not it at all."
 
-"Listen, don't bully Aosawa-chan too much, okay?"
+Yui-san's engaged, but not married. So, technically, not yet an "affair." Definitely not.\
+But what do I do — if I keep talking, I feel like I'm going to dig myself deeper. Absolutely can't let it slip that it's Yui-san, so I forced a strained laugh and stayed quiet, and Mitsuya-san, beside me, gave Seno-san's ear a sharp pinch.
 
-"Mitsuya-san, that hurts!"
+"Hey now, quit picking on Aozawa-chan."
 
-"And this earring of yours? It's a present from someone, isn't it?"
+"Ow, Mitsuya-san."
 
-"No, I bought this myself."
+"That earring of yours is probably a gift from someone too, isn't it?"
 
-Seno-san is popular, so it's quite plausible. Mitsuya-san skilfully diverted the topic, and I breathed a sigh of relief.\
-Seno-san had even said she'd "given up" on Yui-san. If women were also potential romantic partners for her, she might realise the nature of my relationship with Yui-san. Honestly, I couldn't tell if that remark was serious or a joke.
+"Nope, bought it myself."
 
-"You two really have become such good friends, haven't you?"
+Seno-san's popular, so that's plausible. Grateful for the skillful topic change, I let out a quiet breath of relief.\
+Seno-san had said, once, that she'd "given up" on Yui-san. If she's someone who could fall for a woman too, she might notice the connection between me and Yui-san. Whether that comment had been serious or a joke, honestly, I couldn't tell.
 
-Manager Yamazato said this with a warm smile, watching the pair continue their lively chatter.
+"You two really have gotten close, haven't you."
 
-"...Um, I've been meaning to ask, but what exactly makes those two seem like they're such good friends?"
+Manager Yamasato said it, smiling warmly at the two of them still bickering, loud.
 
-Wondering about it, I quietly whispered to Manager Yamazato to ask.
+"...Um, I've been wanting to ask this whole time — where exactly does it look like those two get along?"
 
-"You know, Seno-san used to be so quiet before. Mitsuya-san's such a straightforward, cheerful girl too, so perhaps they just click. You know how they say 'they fight like...'?"
+Curious, I leaned in and whispered to Manager Yamasato.
 
-Ah, I see. To Manager Yamazato, who knew Seno-san before we joined this department, that's how the two of them appear.\
-　I’d assumed they were constantly bickering and didn’t get along, but perhaps this is just how they are.\
-Thinking this, I began sipping my lemon sour. Even after leaving the Budget Management Department, I hoped we could still occasionally come out for drinks like this. That thought crossed my mind.
+"Seno-san used to hardly talk at all, you know. And Mitsuya-san's clean and bright, so maybe they just click. They say the more you fight, the closer you are, don't they?"
 
-"Thank you for today."
+I see. To Manager Yamasato, who's known Seno-san since before either of us joined this department, that's how the two of them look.\
+I'd assumed, from all the bickering, that they just didn't get along — but maybe, for these two, this really is how it works.\
+Thinking that, I started sipping slowly at my lemon sour. Even after I'm no longer part of the budget management team, I hope we can still come drinking together like this sometimes. Thinking that.
 
-After leaving the izakaya, I bowed deeply to Manager Yamazato, who had stepped out ahead to wait. If it weren't for her, I never would have become Yui-san's secretary.
+*
 
-"Aosawa-san, do your best. I'm rooting for you."
+"Thank you so much for today."
 
-With that, Manager Yamazato gave my shoulder a light pat. So I looked firmly back into her eyes and nodded.\
-I wouldn't dream of letting her down. I absolutely will prove myself useful. I vowed silently.
+Stepping outside the izakaya, I bowed deeply to Manager Yamasato, who'd gone ahead and was waiting outside. If not for her, there's no way I would have become Yui-san's secretary.
 
-"Hey, stop leaning on me! Walk straight. You're heavy!"
+"Good luck, Aozawa-san. I'm rooting for you."
 
-Suddenly, Mitsuya-san's disgruntled voice came from behind, making me turn around. Supporting the utterly wasted Seno-san, the two of them staggered out of the shop.\
-It was definitely Mitsuya-san's fault Seno-san ended up wasted. The cause was starting a drinking contest partway through – what were they thinking?
+Saying that, Manager Yamasato gave my shoulder a light pat. So I looked back into her eyes, steady, and nodded firmly.\
+I won't disgrace the face of the person who recommended me. I'll prove myself useful, no matter what. I made that vow to myself.
 
-"Right then, Mitsuya-san, you take responsibility and see Seno-san home, alright? Well, that's all from me! My husband's here to pick me up, so I'll be off now. Everyone, see you back at the office."
+"H-hey, don't lean on me, walk straight. You're heavy!"
 
-Manager Yamazato announced this matter-of-factly and left. Left behind, Mitsuya-san looked dazed for a moment before glancing briefly at me.\
-　I frantically shook my head from side to side. No way, no way, no way – Seno-san and I were heading in opposite directions.
+A displeased voice from Mitsuya-san suddenly cut through from behind, and I turned. Supporting a thoroughly wasted Seno-san, the two of them staggered out of the shop.\
+Seno-san's state was, without question, entirely Mitsuya-san's fault. Somewhere along the way, for reasons unknown, the two of them had started a drinking contest.
 
-"Seno-san, come on, you can make it home on your own, right? You can stand and walk yourself."
+"O-kay, Mitsuya-san, you're responsible for getting Seno-san home safe. Well then, great work today, everyone! My husband's picking me up, so I'll head out. See you all at the office~"
 
-She grabbed her shoulders and shook her, but her body just wobbled limply. Even she realised then, ah, there's no way she can make it home alone.
+Manager Yamasato said it, easy and breezy, and left. Left behind, Mitsuya-san stood there, dazed, then shot a quick glance my way.\
+I scrambled to shake my head, side to side. Impossible, impossible — Seno-san and I live in opposite directions.
 
-"Oh, for goodness' sake, Kaori, you're so annoying."
+"Seno-san, hey, you can get home on your own, right? Stand up, walk."
 
-I was startled when Seno-san suddenly called out Mitsuya-san's first name. The hand that had been firmly shaking Seno-san's shoulder stopped abruptly.
+Grabbing her shoulder to shake her upright, her whole body just wobbled, loose and boneless, and even I could tell — there's no way she's getting home alone.
 
-"Um, Mitsuya-san. Seno-san probably can't make it home alone..."
+"Ugh, what is it, *Kaori*, so loud."
 
-"Ah, ahaha, you're right. Got it, leave it to me. Take care getting home, Aosawa-chan."
+Startled — Seno-san had suddenly used Mitsuya-san's given name. The hand shaking her shoulder froze, awkward, mid-motion.
 
-"Yes, thank you."
+"Um, Mitsuya-san. I don't think Seno-san can get home on her own..."
 
-"Eh? Aosawa-san, you're leaving already? Oh, that's a shame. Hey, let's go to one more place, Kao... mmmph!"
+"A-ahaha, yeah. Got it, leave it to me, you get home safe, Aozawa-chan."
 
-Mitsuya-san covered Seno-san's mouth with her palm to silence her. Her bloodshot eyes peered intently at Seno-san's face.
+"Yes, thank you so much."
 
-"Be quiet. Please, don't say another word. You're far too drunk."
+"Ehh, Aozawa-san, you're heading home already? Aw, too bad. Hey, let's go to one more place, Kao—mmph."
 
-Pushing Seno-san back as she mumbled complaints, Mitsuya-san gave a wry smile and turned back to me. While holding her up, I felt as if her eyes alone were telling me to hurry home. I nodded and waved goodbye to them both.
+Mitsuya-san clapped a hand over Seno-san's mouth, cutting her off. Bloodshot eyes glared straight into Seno-san's face.
 
-But, whatever she says, Mitsuya-san is actually quite considerate, so I don't think Seno-san needs worrying about. Perhaps, as Manager Yamazato said, they really do get along well. Thinking that, I headed towards the station.
+"Quiet. Please, not one more word. You're way too drunk."
 
-On the way, my pocket vibrated. Seeing the name on my phone made me smile naturally.
+Pinning down the still-mumbling, complaining Seno-san, Mitsuya-san gave me a strained smile and turned back toward me. It felt like she was telling me, with just that look, *hurry home while I've still got her under control* — so I nodded and waved to the two of them.
 
-—Did you get home alright? Didn't drink too much?
+But Mitsuya-san's genuinely reliable, whatever she says on the surface, so I don't think there's much to worry about with Seno-san. Maybe, just as Manager Yamasato said, those two really do click. Thinking that, I headed toward the station.
 
-It was a message from Yui-san. I'd told her about the farewell party last night on the phone.\
-　Yui-san was terribly worried about my low tolerance, even saying, "I'm worried, so I'll come pick you up." Of course, I declined. After all, it would be terrible if she saw me like that.
+Along the way, my pocket buzzed. Pulling out my phone, I found myself smiling naturally at the name displayed there.
 
-――I'm heading home now. I didn't drink much today.
+*Did you get home safe? Not too drunk?*
 
-I stopped and replied to the message. It made me incredibly happy that she worried like this. It was strange, but whenever I drank, I invariably wanted to see Yui-san.\
-　I want to throw myself into her arms. I want nothing more than to be utterly spoiled by her.
+The message had come from Yui-san. I'd told her about the farewell party over the phone last night.\
+Yui-san, so worried about how weak I am with alcohol, had even offered to come pick me up, out of concern. Of course I'd turned her down. Because if anyone saw something like that, it'd be a real problem.
 
-"I wish we could go back to the same house again..."
+*Heading home now. I didn't drink much today.*
 
-Voicing this impossible wish, my steps home to the house without Yui-san felt heavy. On days like this, I'll sleep hugging Shachi-kun. Along with the scent of Yui-san's favourite perfume.
+I stopped and typed back a reply. Having her worry about me like this makes me so happy. Strange, but whenever I drink, without fail, I end up wanting to see Yui-san.\
+Wanting to throw myself straight into those arms. Wanting nothing but to be endlessly spoiled.
+
+"If only I could go home to that same house again..."
+
+Voicing a wish I knew wouldn't come true, my steps toward the house where Yui-san isn't felt heavy. On a day like this, I'll sleep hugging my orca. Wrapped in the scent of Yui-san's favorite perfume.
 
 ＊＊＊
 
-The following week. As instructed by Yui-san's message to "wait in the president's office," I headed there first thing in the morning. In one corner of the president's office, my desk and laptop had been set up.\
-Running my fingertips gently over the gleaming surface of the desk, the reality of it all gradually sank in.
+The following week. Following Yui-san's message — *"wait in the president's office"* — I headed there first thing in the morning, and found, in one corner of the office, a desk and laptop already set up, just for me.\
+Running my fingertip gently over the gleaming desk surface, the reality of it all slowly sank in.
 
-A little later, the door to the president's office opened. Spotting me, Yui-san gave me a warm smile.
+A little while later, the president's office door opened. Noticing me, Yui-san smiled, bright.
 
 "Good morning, Yui-san."
 
-"Mm, good morning."
+"Morning."
 
-"Thank you for the desk. You arranged it for me, didn't you?"
+"Thank you for the desk. You arranged all this?"
 
-"Mm. Let's get started today, shall we?"
+"Yeah. Looking forward to working with you, starting today."
 
-"Yes, I'll do my best. So I can be of use to you, Yui-san."
+"Yes, I'll do my best. To be useful to you, Yui-san."
 
-After placing her bag on the desk, Yui-san turned back to me and said, "Right then, let's put you to work straight away," so I hurriedly pulled a notebook and ballpoint pen from my bag.
+Setting her bag down on her own desk, Yui-san turned back to me. "Well then, let's get you being useful right away," she said, so I scrambled to pull my planner and a pen out of my bag.
 
-　But Yui-san just smiled at me.
+But Yui-san just laughed at me.
 
-"You don't need a notebook or pen."
+"You don't need the planner or the pen."
 
-Saying that, Yui-san took my hand holding the pen. She stood slightly taller than me. That sweet scent I adored, and her slender yet soft body.\
-Hugging me tightly from the front, I was startled and my eyes widened.
+Saying that, Yui-san took my hand, still holding the pen, and pulled. She's a little taller than me. That beloved sweet scent, and a body slight but soft.\
+Pulled straight into an embrace, face to face, my eyes went wide, startled.
 
-"Ah, um... Yui-san? What are you doing...?"
+"U-um... Yui-san? What are you doing...?"
 
 "Hugging you."
 
-"Wh-why?"
+"W-why...?"
 
-"A good morning hug."
+"Good-morning hug."
 
-"Er, ah, did you lock the door? What if someone sees us..."
+"Um, wait, did you lock the door? If someone sees..."
 
-"No one's coming. It's fine."
+"No one's coming, it's fine."
 
-My heart began to pound steadily. What should I do? I desperately wanted to hug her back. Would it be alright to? While I hesitated, her arms reluctantly but gently released me.\
-　Her eyes looked down at me with such tenderness that my chest tightened painfully.
+My heart pounded, faster and faster. What do I do, I really want to hug her back. Is it okay if I do? While I hesitated, her arms, reluctant, gently pulled away.\
+Looking down at me with eyes so full of fondness, something in my chest clenched, tight, painfully.
 
-"Thanks. Thanks to you, Kanata, I think I can get through today."
+"Thanks. Thanks to you, I feel like I can get through today too."
 
-"What's that supposed to mean... Yui-san, you're always teasing me about this sort of thing."
+"What was that... Yui-san, you're always teasing me."
 
-Seeing me flustered, she seemed to be enjoying it. Pouting my lips as I said that, Yui-san laughed.
+Watching me flustered like this seems to genuinely amuse her. Lips pursed, I said it, and Yui-san laughed.
 
-"Right then, to the point. I've got a favour to ask, alright? I need you to accompany me on a business trip next month. Kanata, is that alright for you? I need you to sort the flight tickets and hotel arrangements."
+"Alright, onto business. There's something I'd like to ask, is that okay? Next month, I need you to come with me on a business trip. Kanata, are you free? I'd like you to arrange the flights and hotel."
 
-The word "business trip" immediately made me sit up straight. It's fine. I haven't booked a single day next month, just in case anything comes up.
+The word "business trip" came flying out right off the bat, and I straightened up sharp. Fine — I hadn't scheduled a single thing next month, keeping myself fully open, no matter what came up.
 
-"Yes, that's fine. Where are we going?"
+"Yes, I'm free. Where are we headed?"
 
-She opened her notebook and clicked her ballpoint pen.
+I opened my planner, clicked my pen.
 
 "Okinawa."
 
 "Eh, Okinawa...?"
 
-Startled, I blurted out the question without thinking.
+Startled, I found myself echoing it back.
 
-"The new branch opens next month, right? It's for that inspection. And since we're there, I thought we might as well try staying at some of the competitors. I've picked out a few places, so I'll share the schedule and list with you later."
+"The new store opens next month, right? This is the site inspection. And since we're at it, I figured we'd stay at a competitor's hotel too. I've picked out a few options — I'll share the schedule and the list with you later."
 
 "Y-yes, understood."
 
-My heart pounding, I jotted down the note in my notebook. Then Yui-san peered over at my face.
+Heart pounding, I took notes in my planner. Then Yui-san leaned in, peering into my face.
 
-"And... it's fine if we share a room, right?"
+"Also... same room's fine, right?"
 
-I looked up from my notebook, startled. Yui-san smiled brightly and added, "A double room is fine."
+Startled, I lifted my face from the planner. Yui-san smiled, bright, and added, "A double's fine."
 
-"Yui-san, what are you saying...!? Surely you're joking?"
+"Yui-san, what are you even saying...!? That's a joke, right?"
 
-"I'm dead serious."
+"I'm serious, though."
 
-I stared back into Yui-san's smiling eyes, but couldn't fathom what she was thinking. Somehow, it felt like the old Yui had returned.
+Looking back into those smiling eyes, I couldn't read a single thing behind them. It almost felt like she'd gone back to being the old Yui-san again.
 
-"...Yui-san, you're naughty."
+"...You pervert, Yui-san."
 
-"It's alright, I won't do anything."
+"Don't worry, I won't do anything."
 
 "Really...?"
 
-Yui-san saying she won't do anything is absolutely unreliable. When I said it doubtfully, Yui-san replied, "Well, that depends on you, Kanata," and laughed.
+Yui-san saying *I won't do anything* has never once been reliable. I said it, skeptical, and Yui-san just laughed and said, "Well, that depends on you, Kanata."
 
-"The hotel... we'll get a twin room, alright?"
+"I'll book it as a twin room."
 
-"What a shame. But are you sure you want to share a room?"
+"Too bad. But you're fine with the same room, at least?"
 
-"...If you keep being so mean, I'll book two singles."
+"...Keep being mean like that, and I'll book two singles."
 
-"Sorry, sorry, don't sulk. Let's share a room since we're there. Come on?"
+"Sorry, sorry, don't sulk. We're at it, let's share a room, okay?"
 
-Glaring at Yui-san as she squeezed my hand tightly, trying to appease my sulking pout, I nodded.
+Glaring at Yui-san, who gripped my hand tight as if to win back my sulking mood, I still nodded, small, in the end.
 
-　Little did I know then that this first business trip of my life, to Okinawa no less, would create memories I'd never forget.
+*
+
+My first business trip ever — and in Okinawa, no less, about to become a memory I'd never forget for the rest of my life — that was something I had no way of knowing yet, not at this point.

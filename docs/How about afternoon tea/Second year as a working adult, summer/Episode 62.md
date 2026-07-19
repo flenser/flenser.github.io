@@ -1,183 +1,190 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 1
 parent: Second year as a working adult, summer
 sequence: 65
-title: "Episode 62: Because You Were Dating Back In Our Student Days, Weren't You?"
+title: "Episode Sixty-Two: I Mean, We Were Dating Back in College, Weren't We?"
 ---
-Episode 62: Because You Were Dating Back In Our Student Days, Weren't You?
+## Episode Sixty-Two: I Mean, We Were Dating Back in College, Weren't We?
 
-The leaves on the avenue trees began to gleam a vibrant green, while large cumulonimbus clouds floated across the cobalt blue sky visible between the skyscrapers.
+\
+The leaves on the street trees had started glowing a vivid green, and big, billowing thunderheads floated in the cobalt-blue sky visible between the buildings.
 
-At last, the long-awaited summer had arrived once more.
+This year, too, the long-awaited summer had finally arrived.
 
-Though the office was only a few minutes' walk from the nearest station, the air at this time of year, thick with that uniquely summery humidity that clings to your skin, meant even the commute left you sweating.
+The office is only a few minutes' walk from the nearest station, but this time of year, the heavy, skin-sticking humidity of summer means I'm already sweating just from the commute.
 
-　Stepping through the automatic doors, the cool breeze caressing my cheeks felt refreshing.\
-Right then, let's get to work today. After swiping my employee pass at the security gate in the entrance, I headed for the lift.
+Stepping through the automatic doors, cool air brushed my cheek, pleasant.\
+Let's do our best at work today, too. I held my employee badge up to the security gate at the entrance and headed for the elevator.
 
-"Good morning, Manager Yamazato."
+"Good morning, Manager Yamasato."
 
-"Good morning, Aosawa-san."\
-Only Manager Yamazato was at the Budget Management Department desk today. Come to think of it, Mitsuya-san and Seno-san both mentioned they were off on a two-day, one-night training course.
+"Morning, Aozawa-san."
 
-Apparently, because they're in the same department, they ended up having to share a room. I remember it distinctly because Mitsuya-san complained, "I hate sharing a room with Seno-san!"\
-It turned into a tit-for-tat argument, with Seno-san also making a fuss, saying things like, "I can't possibly share a room with a smoker!"
+At the budget management desk, only Manager Yamasato was in today. Right — Mitsuya-san and Seno-san had both mentioned an overnight training seminar, hadn't they.
 
-　I was secretly worried about those two, who were like cats and dogs, having no buffer between them. But Manager Yamazato, watching them bicker as usual, tilted her head in puzzlement and said, "When did you two become so close?"
+Apparently, since they're in the same department, they'd ended up assigned to the same room, and Mitsuya-san's complaint — "I don't want to share a room with Seno-san" — had stuck firmly in my memory.\
+Tit for tat, Seno-san had made just as much of a fuss — "there's no way I can room with a smoker."
 
-I couldn't see how they looked close at all, and it made me wonder if Manager Yamazato was perhaps incredibly naive.
+Those two are practically sworn enemies, and I'd quietly worried whether they'd be okay without a buffer between them — but Manager Yamasato, watching them bicker as usual, had just tilted her head, puzzled. "When did you two get so close?"
 
-　Recalling that as I sat down at my desk, I promptly booted up my PC. My routine after arriving at work was fixed.\
-First thing in the morning, I'd launch the intranet and check the bulletin board. Manager Yamazato had instructed me right after my assignment: "Make sure to check it daily. Important company information is always uploaded there."
+I have no idea what she could possibly have seen in that exchange to read as "close," and it made me wonder — maybe Manager Yamasato's actually a little more oblivious than I'd realized.
 
-　So today, as always, I clicked on the bulletin board. Then, one of the latest posts displayed caught my eye, and my hand holding the mouse froze.
+*
 
-"Open recruitment...?"
+Remembering all that, I sat down at my desk and booted up my computer. My after-arrival routine is set by now.\
+First thing: open the intranet, check the bulletin board. Manager Yamasato had told me, right after I was assigned here, that important company information always gets posted there, so check it every day.
 
-The words "Notice of Internal Recruitment (President's Secretary)" displayed right next to the red NEW icon. I hovered the cursor over it and clicked.
+So, true to habit, I clicked over to the board today too. One of the newest posts caught my eye immediately, and my hand froze on the mouse.
 
-At the end of spring, Yui-san had indeed stated she intended to hire a secretary from summer onwards. But — I had assumed she already had someone specific in mind for the role. I never imagined she would open it up to public recruitment.
+"An internal posting...?"
 
-　The notice uploaded outlined the circumstances leading to the recruitment of a president's secretary and the application requirements.\
-It stated that regardless of company tenure, age, or department, applicants should prepare one A4 sheet containing a recommendation letter from their direct supervisor and their personal statement of motivation, then apply via the application form.\
-The application period was a mere two weeks. The selection process would take one month. Following document screening, individual interviews would be conducted with shortlisted candidates to select one person. Simply put, that was what it said.
+Right beside a red "NEW" icon: "Internal Job Posting Notice (President's Secretary)." I moved the cursor over it and clicked.
 
-　The room should have been air-conditioned, yet the palm gripping the mouse grew clammy with sweat. I could feel my heartbeat steadily quickening.
+At the end of spring, Yui-san had definitely said she planned to bring on a secretary starting this summer. But — I'd just assumed she already had someone in mind. I never imagined she'd actually open it up for internal applications.
 
-To be perfectly honest, I thought this might be a once-in-a-lifetime opportunity. After all, I'd always wanted to support Yui-san.
+The uploaded notice laid out both the background for the opening and the application requirements.\
+Regardless of tenure, age, or department, applicants needed a recommendation letter from their direct supervisor and a single A4 page stating their motivation, submitted through the application form.\
+Application window: just two weeks. Selection period: one month. After document screening, individual interviews with candidates, then one person chosen. That, roughly, was the gist of it.
 
-But unfortunately, I was still relatively new to the company, currently in the thick of my OJT training period.\
-　The application required a recommendation from my direct supervisor. I couldn't decide on my own. I wasn't even fully competent yet... There was no way I could do it.
+The room should have been perfectly air-conditioned, and yet my palm, gripping the mouse, had gone damp with sweat. I could feel my own heartbeat picking up, steadily, faster.
 
-While I was brooding over this, staring at the notice, a voice called "Aosawa-san" from behind and simultaneously tapped my shoulder. Startled, I let out a small yelp.
+Honestly, my first thought was — this might be a once-in-a-lifetime chance. Because I've always wanted to be some kind of help to Yui-san.
 
-"Hyah!"
+But unfortunately, I'd only just joined the company, and right now I'm smack in the middle of on-the-job training.\
+Applying requires a recommendation letter from my direct supervisor. Not something I can decide on my own. And I'm not even fully trained yet... there's no way I could actually do this.
 
-Turning around in a panic, I found Manager Yamazato standing behind me. Seeing my startled expression, she smiled faintly.
+Locked in a staring match with the notice, stewing over it, I felt a hand tap my shoulder from behind at the same moment a voice said "Aozawa-san," and I let out a startled little shriek.
 
-"I've been calling your name for ages."
+"Eek!"
 
-"S-sorry, I didn't notice."
+Spinning around in a panic, I found Manager Yamasato standing there. Watching me jump, she laughed, soft.
 
-"No, no, it's alright. I just wanted to ask you about something... Were you looking at that? It must have been quite a shock. I've been with this company over ten years, but this is the first time we've ever had an open recruitment drive."
+"I've been calling your name this whole time."
 
-Saying this, Manager Yamazato bent down to peer at my monitor.
+"S-sorry, I didn't notice..."
 
-"I wonder what sort of people will apply..."
+"No, it's fine, it's fine. I had a task I wanted to ask you about, but... were you looking at that? Surprising, isn't it. I've been at this company over ten years, and this is the first time I've ever seen an internal posting."
 
-How nice. If only I'd joined two years earlier—no, even one year earlier — I might have had a future as Yui-san's secretary.
+Saying that, Manager Yamasato leaned in to peer at my monitor.
 
-"...Aosawa-san, are you perhaps a little interested?"
+"I wonder what kind of person would apply..."
+
+Lucky, whoever it is. If only I'd joined two years — no, even one year — earlier, maybe becoming Yui-san's secretary could have been a real possibility for me.
+
+"...Aozawa-san, are you maybe a little interested, by any chance?"
 
 "Eh?"
 
-Caught out, I jerked upright. I was still learning the ropes here – how could I possibly say I was interested in another job? That would be utterly presumptuous.
+Caught dead center, I straightened up sharp, startled. Still being trained on my current job, there's no way I could say something as presumptuous as being interested in a different role entirely.
 
-"No, not at all. I was just looking..."
+"No, nothing like that, I was just looking..."
 
-I hastily shook my head from side to side and closed the window. Manager Yamazato then said, "Is that so?" while lifting the corners of her mouth in a meaningful smile.\
-Somehow, I felt like she'd seen right through me. I'd always thought Manager Yamazato was a bit of a scatterbrain, but perhaps she has a surprisingly sharp side too...
+I shook my head hard, side to side, and closed the window. Manager Yamasato just said, "is that so?" — but with a meaningfully raised eyebrow, smiling.\
+It felt, somehow, like she'd seen straight through me. I'd thought Manager Yamasato was oblivious, but maybe she's actually sharper than she lets on.
 
-To be perfectly honest, I couldn't get any work done at all this morning. And it's all Yui-san's fault.\
-　She did mention hiring a secretary, but she never said a word to me about advertising the position publicly.
+*
 
-She probably never imagined for a moment that I might want to be that secretary.
+Frankly, I got absolutely nothing done all morning. And that's entirely Yui-san's fault.\
+She'd said she was bringing on a secretary, sure, but she never once told me it would be an open internal posting.
 
-Yui-san doesn't expect me to take on that kind of role. I know that. But once the possibility occurred to me that it might be possible for me too — a desire welled up inside me, a desire not to let someone else take that precious position right beside Yui-san.
+She probably never imagined, not even slightly, that I might want to be her secretary.
 
-　Come lunchtime, Manager Yamazato must have noticed my lack of focus. "Are you tired? You can take a longer lunch break today," he said, sending me off to rest.
+Yui-san doesn't expect that kind of role from me. I know that. But once the possibility crossed my mind, even briefly, some feeling welled up in me, unstoppable — I didn't want to hand over that precious position, being right there beside Yui-san, to anyone else.
 
-Seizing the chance to sort my thoughts, I headed to the break area. Sinking into the red, plush sofa, I sighed deeply and slumped my shoulders.
+Come lunchtime, Manager Yamasato, apparently noticing I wasn't focused at all, sent me off — "Not feeling well? Go ahead and take a longer lunch today" — and I headed out.
 
-　You idiot, Yui. Why did you even hold an open call? If you'd chosen someone else from the start, I might have felt jealous, but I certainly wouldn't have wanted to be in her shoes. I wouldn't have felt this restless, this unsettled.
+Might as well use the extra time to sort my thoughts out, I figured, and wandered to the break area. Sinking into the plush red sofa, I let out a deep sigh and slumped forward.
 
-As these thoughts swirled, a sudden cold sensation touched my cheek — and I let out my second scream of the day.
+Yui-san, you idiot. Why an open posting, of all things? If she'd just picked someone from the start, I might have felt jealous, sure, but I never would have thought I wanted the job myself, and I never would have ended up this unsettled.
 
-"Hyah!"
+Turning that over in my head, something suddenly cold pressed against my cheek — and I let out my second shriek of the day.
 
-"Kanata-chan, it's been a while. On your break? What are you doing here?"
+"Eek!"
 
-A familiar male voice from distant memories made me snap my head up.\
-The moment I met those eyes — deep, dark like the night sea — I froze in shock.
+"Kanata-chan, long time no see. On break? What are you doing over here?"
 
-"Yu... Yukiyasu-san!?"
+A man's voice, one I recognized from somewhere deep in memory, and I snapped my head up.\
+The instant I met those eyes — deep black, like a nighttime sea — I froze, startled.
 
-After popping the pull tab on the cold can of coffee he'd pressed against my cheek and handing it to me with a "Here you go," Yukiyasu-san sat down beside me.
+"Y-Yukiya-san!?"
 
-"Er... ah, thank you very much."
+Popping the tab of the cold canned coffee he'd just pressed against my cheek, Yukiya-san handed it to me — "here" — and settled down on the sofa beside me.
+
+"Um... th-thank you."
 
 "You're welcome."
 
-Saying that, he flashed me a smile identical to Yui-san's. His well-groomed appearance was as impeccable as ever. The dark grey suit he wore gave him a clean, crisp look; Yukiyasu-san was like a male version of Yui-san. Being siblings, I suppose that's only natural.
+Saying that, he turned a smile toward me identical to Yui-san's. Still as handsome as ever. Wearing a dark grey suit with a clean, refreshing air, Yukiya-san really does look like a male version of Yui-san. Siblings, so I suppose that's only natural.
 
-But why on earth was he here? This was a building owned by the Ichinose Group. Yukiyasu-san had gone independent and started his own company, so he shouldn't have any connection to the group.
+But why is he here? This building belongs to the Ichinose Group, and Yukiya-san's supposed to have gone independent, running his own company entirely separate from the group.
 
-"Yukiyasu-san, what brings you here?"
+"Yukiya-san, why are you here?"
 
-"Oh? Has Yui not mentioned anything?"
+"Huh, did Yui not tell you anything?"
 
-Not mentioned what? I tilted my head in confusion. Yukiyasu-san then took a card case from his jacket's inside pocket and presented one card before me.
+Tell me what? I tilted my head, and Yukiya-san pulled a card case from his jacket's inner pocket and held one out in front of me.
 
-Seeing the title printed upon it, I straightened up abruptly.
+Reading the title printed on it, I scrambled to sit up straight.
 
-"Yukiyasu-san, you are a director at our company? I'm terribly sorry, I had no idea about such an important matter...!"
+"Yukiya-san, you're a director here? I'm so sorry, I had no idea, something that important..."
 
-Staring at his face in surprise, Yukiyasu-san smiled warmly.
+Startled, I studied his face, and Yukiya-san smiled, bright.
 
-"Don't worry about it. By the way, Kanata-chan, have you had lunch yet?"
+"Don't worry about it. By the way, Kanata-chan, have you eaten lunch yet?"
 
-Eh, lunch? Asked out of the blue like that, I shook my head from side to side.
+Eh, lunch? Asked so out of nowhere, I shook my head, side to side.
 
-"Good. I haven't eaten yet either. I tried asking Yui earlier, but she said she was busy. Would you like to join me?"
+"Good. I haven't eaten either. I asked Yui earlier, but she turned me down, said she was busy. Want to join me, if you're free?"
 
-"Eh?"
+"Huh?"
 
-I hadn't expected an invitation to lunch at all, and froze in surprise, still holding my canned coffee.\
-Then, peering at my face, Yukiyasu pressed, "Don't you want to?"
+Never expecting to be invited to lunch, I froze, startled, still holding the can of coffee.\
+Peering into my face, Yukiya-san pressed further, teasing — "Don't want to?"
 
-　Somehow, this pushy side of him reminded me a little of Yui-san... There was no reason to refuse, so I nodded and said, "I'd love to join you."
+There's something a little pushy about this that reminds me of Yui-san too... I couldn't come up with a single reason to say no, and found myself nodding. "I'd love to join you."
 
 ＊＊＊
 
-"Do you like pasta, Kanata-chan? There's a lovely place nearby. What do you think?"
+"Do you like pasta, Kanata-chan? There's a good place nearby, want to try it?"
 
 "I like pasta."
 
-"Oh, good."
+"Good, glad to hear it."
 
-　Walking alongside Yukiyasu-san, who naturally matched my pace, I began to feel as though I were walking with Yui-san. Really, they are so alike, Yukiyasu-san and Yui-san.
+Walking alongside Yukiya-san, his pace naturally matching mine, it felt, somehow, like walking with Yui-san. They really are alike, the two of them.
 
-Entering a stylish restaurant reminiscent of a hideaway, we were shown to the counter and sat side by side. Apparently, it served lunch during the day and transformed into a bar at night. That explained its chic atmosphere.
+We stepped into a stylish, hideaway-style restaurant and were shown to counter seats side by side. Apparently it runs as a lunch spot during the day and turns into a bar at night — no wonder it had that stylish air.
 
-"Order whatever you fancy. It's my way of thanking you for always looking after Yui."
+"Order whatever you like. This is thanks, for Yui always being taken care of by you."
 
-Saying that, Yukiyasu handed me the menu with its thick cover.
+Saying that, Yukiya-san handed me a thick-covered menu.
 
-"Thank you. But it's me who owes you favours. I feel terribly awkward accepting a meal..."
+"Thank you. But I'm the one who's taken care of, really. I feel bad, letting you treat me..."
 
-Even if it started by chance, I was now working at Yui's company after all.
+Whatever coincidence started it, one way or another, I'm working at Yui-san's company now, after all.
 
-My throat was parched with nerves. When I sipped the water offered, it had a faint hint of lemon flavour.
+My throat had gone dry from nerves, and taking a sip of the water set in front of me, I caught a faint hint of lemon.
 
-"Don't be so shy. If you're Yui's girlfriend, you're practically like my little brother, right?"
+"Don't hold back. If you're Yui's *girlfriend*, that basically makes you my little sister too, doesn't it."
 
-"Guh-ahh!!"
+"Guh!!"
 
-Girlfriend. That phrase dropped like a bomb, making me choke violently as I failed to swallow the water in my mouth.
+*Girlfriend.* The word dropped like a bomb, out of nowhere, and I nearly choked on the water still in my mouth, coughing hard.
 
-"Are you alright?"
+"You okay?"
 
-He patted my back with concern. Wiping my mouth with a napkin, I apologised reflexively, "Sorry," but no, wait, that's not it.
+He patted my back, worried, and I dabbed at my mouth with a napkin, blurting "sorry" without thinking — no, wait, that's not it, that's not what I meant.
 
-"Um, Yukiyasu-san, why did you say 'girlfriend'..."
+"Um, Yukiya-san, why would you say... *girlfriend*..."
 
-"Oh, was I wrong? Yui told me Kanata-chan joined the company, so I just assumed you'd got back together. I mean, you were dating back in uni, weren't you?"
+"Huh, was I wrong? Yui mentioned you'd joined the company, so I just assumed you two had gotten back together. I mean, you were dating back in college, weren't you?"
 
-Yukiya-san said it matter-of-factly, as if it hadn't even registered. That's why I couldn't hide my shock.\
-Because... Yui-san hadn't told Yukiyasu-san she was gay... had she?
+Yukiya-san said it, easy, unbothered, like it was nothing at all. Which is exactly why I couldn't hide how rattled I was.\
+Because — Yui-san never told Yukiya-san she's gay. ...Right?
 
-　As if reading my wavering emotions, those same deep black eyes, like Yui's, narrowed gently — Ah, right, I remembered.\
-I'd forgotten that Yukiyasu-san, like Yui, possesses incredibly keen insight.
+As if reading straight through my churning emotions, those same deep black eyes as Yui-san's narrowed, gentle — ah, right, I thought, remembering.\
+I'd forgotten. Yukiya-san's just as sharp, just as perceptive, as Yui-san is.
 
-That Yukiyasu-san had realised about Yui was something I never expected.
+That Yukiya-san had already realized Yui-san was *that way* — this was something I never saw coming, not at all.

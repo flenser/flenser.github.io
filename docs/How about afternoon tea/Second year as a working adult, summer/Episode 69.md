@@ -1,198 +1,206 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 8
 parent: Second year as a working adult, summer
 sequence: 72
-title: "Episode 69: Didn't we make a promise?"
+title: "Episode Sixty-Nine: I Promised You, Didn't I?"
 ---
-Episode 69: Didn't we make a promise?
+## Episode Sixty-Nine: I Promised You, Didn't I?
 
-----This aircraft will shortly be arriving at Naha Airport.
+\
+*This flight will shortly be arriving at Naha Airport.*
 
-With that announcement, the aircraft tilted as if to make a sharp turn. Opening the closed aeroplane window just a little and looking down, I saw the emerald green sea and islands spreading out below.
+At that announcement, the plane tilted, banking in a slow curve. Cracking open the window I'd kept closed the whole flight and peering down, an emerald-green sea and scattered islands spread out beneath us.
 
-"Yui-san, it's amazing, the colour of the sea is completely different!"
+"Yui-san, look, the color of the sea is completely different!"
 
-Completely forgetting that I was here for work today, I turned to look at Yui-san. She leaned towards me slightly to look out of the window and smiled gently, asking, "Is this your first time in Okinawa?"
+Completely forgetting, for a moment, that I was here for work, I turned to Yui-san. She leaned in slightly toward me to look out the window too, and smiled, gentle. "First time in Okinawa, Kanata?"
 
-Although I had lived in various prefectures all over Japan due to my father's job transfers, this was indeed my first time in Okinawa.\
-　Had I attended a Japanese high school, perhaps I might have visited on a school trip... but unfortunately, I spent my three high school years living in England, so I wasn't very familiar with Japanese resort destinations.
+Between my father's job transfers, I'd lived in all kinds of prefectures across Japan, but Okinawa really was a first.\
+If I'd gone to high school in Japan, maybe a school trip would have brought me here — but unfortunately, my three years of high school were spent in England, so I've never had much familiarity with Japan's resort destinations.
 
-Of course, I knew this company operated a flagship resort hotel in Okinawa, but I never dreamed the day would come when I'd actually visit it myself.
+I already knew our company's flagship luxury resort brand had a property in Okinawa, but I never imagined, not in my wildest dreams, that I'd actually get to visit it myself.
 
-All of this was thanks to becoming Yui-san's secretary. I suppose this is what they mean by a perk of the job.\
-The new branch opening soon will be the second one in Okinawa.
+And all of it, entirely thanks to becoming Yui-san's secretary. So this is what people mean by "perks of the job."\
+The new store, about to open, would be the second location in Okinawa.
 
-Starting today, we'll be staying for two nights at a competing hotel, and my job is to accompany Yui-san on her research.
+Starting today, we'd be staying two nights at competitors' hotels, and my job was to accompany Yui-san on her research.
 
-After landing safely, I collected my heavy suitcase packed with clothes.\
-I'd been told to come in casual wear, so everything inside was my own clothes. Today, I'm wearing the white dress I bought especially for this occasion.\
-Just as she'd said, suits would definitely look out of place at a resort; the flight to Okinawa was packed with holidaymakers.\
-Naturally, Yui-san isn't in a suit today either. She wore a camisole with a white shirt over it, and the single diamond necklace peeking out at her neckline sparkled faintly with each step.
+Once we'd landed safely, I collected my heavy, clothes-packed suitcase.\
+She'd told me to dress casually, so everything inside was regular clothes. Today, too, I'd worn a white dress I'd bought new, specifically for this trip.\
+Just as she'd said — a suit would stick out badly at a resort — the flight to Okinawa was packed, wall to wall, with tourists.\
+Yui-san, naturally, wasn't in a suit today either. A camisole layered under a white shirt, and the single-diamond necklace peeking out at her chest caught the light and swayed, faintly glittering, with every step.
 
 "How many times have you been to Okinawa, Yui-san?"
 
-I asked as I slid my suitcase across the smooth airport floor.
+I asked, sliding my suitcase across the smooth, polished airport floor.
 
-"Four or five times, I suppose. This is my first time since joining this company, so I've never been privately."
+"Four or five times, maybe. This is my first time coming since joining this company too, so I've never come privately."
 
-"I see. I thought Japanese high schools went there on school trips or something."
+"I see. I thought maybe Japanese high schoolers came here on school trips."
 
-Ah, I suppose that's true. My high school went to Australia, though.
+"Ah, some schools do that, yeah. Mine was in Australia, though."
 
-Australia, eh? Right, I'd completely forgotten that the school Yui-san attended was a posh one. So it wasn't domestic, but overseas. Makes sense.
+Australia, huh. Right, I'd completely forgotten — Yui-san went to that prestigious girls' school. Which means school trips wouldn't have been domestic, but overseas. Makes sense.
 
-If I ever got the chance to go overseas on business, I should be able to help a bit since I speak English. Unfortunately, it doesn't look like there'll be much opportunity for that today.
+If there's ever a chance for an overseas business trip, I speak English, so I should be able to actually be useful — but unfortunately, today didn't look like it would offer much chance for that.
 
-　I walk around, glancing around the airport.\
-Even though I'm here for work, it's my first time in Okinawa, so I've thoroughly studied the guidebook – that's just between us.\
-Yui-san is kind, so I was secretly hoping she might give me time to buy souvenirs before heading back.\
-I'd planned to buy some red sweet potato tarts at the airport for everyone in the Budget Management Department, who must be busy because I'm away.
+I walked along, glancing around the airport, curious.\
+Even though I was here for work, since it was my first time in Okinawa, I'd secretly done a thorough read-through of a travel guide beforehand — that much stays between us.\
+Yui-san's kind, so I found myself hoping, a little, that she'd carve out at least some time on the way back for me to buy souvenirs.\
+I wanted to pick up purple sweet potato tarts at the airport for everyone in budget management, who'd been dealing with extra work since I left.
 
-　And then, sea grapes, sōki soba, taco rice... I was even thinking, if I was lucky, maybe I could try some unique Okinawan gourmet food. If Yui found out about that, she'd probably be exasperated, telling me I wasn't here on holiday.\
-But I was genuinely that excited about today's business trip.
+And sea grapes, soki soba, taco rice... if I got lucky, maybe I could even try some Okinawan specialties. If Yui-san knew I was thinking any of that, she'd probably sigh and say I'm not here to sightsee.\
+Even so, I was, admittedly, this giddy about today's business trip.
 
-　After picking up the pre-booked hire car at the airport, Yui-san effortlessly lifted my suitcase as if it were nothing and stowed it in the compact car's boot.
+*
 
-"I'm terribly sorry. This really should be my job, shouldn't it? And the driving too..."
+Picking up the rental car we'd reserved in advance, Yui-san lifted my suitcase easily, like it was nothing, and loaded it into the compact car's trunk.
 
-It's generally considered wrong for the president to drive instead of the secretary. As I apologised, feeling truly remorseful, Yui-san turned to me with a look of surprise.
+"Sorry. This should really be my job, shouldn't it. And, um, the driving too..."
 
-"Kanata, you have a licence?"
+Having the president drive instead of the secretary is, by any normal standard, backwards. Feeling guilty, I apologized, and Yui-san turned to me, surprised.
 
-"Well, I do. I got it in my fourth year. It's just a paper licence though..."
+"Kanata, you have a license?"
 
-I hadn't driven on the road once since graduating from driving school. I didn't even own a car; the licence had long since served only as identification.\
-Yui laughed at my diminished state.
+"Sort of, yes. Got it in my senior year of college. It's, um, a paper license, though..."
 
-"Don't worry about that sort of thing. I'd feel uneasy having you drive. Just do as you normally would."
+I've never once driven on an actual road since finishing driving school. I don't even own a car, and the license itself basically just functions as an ID card at this point.\
+Watching me shrink, small, Yui-san laughed.
 
-Saying that, Yui opened the passenger door as she always did. My shoulders relaxed a little, and I got in as prompted, saying, "Thank you."\
-Yui got into the car a moment later, then started the engine. A lukewarm breeze blew out, followed a little later by the cool air conditioning hitting my cheek, which felt pleasant.
+"Don't worry about that. I'd never be able to relax with you driving, honestly. Just be yourself, as always."
 
-　From the car starting off gently, I stared intently out the window.
+Saying that, Yui-san opened the passenger door for me, same as always. Some of the tension in my shoulders eased, and, prompted, I climbed in, saying "thank you."\
+A beat behind, Yui-san climbed in too, and started the engine. A gust of lukewarm air blew out first, and then, a moment later, cool air from the AC hit my cheek, pleasant.
 
-"Hey, Yui. The plants in Okinawa are completely different from Tokyo, aren't they?"
+The car pulled out, easy, and I stared, glued to the window, drinking in the view outside.
 
-The trees sprouting up along the roadside, reaching skyward, felt quintessentially southern island. The sky, endlessly blue and clear, held enormous cumulonimbus clouds floating in it, looking different from Tokyo's skies.
+"Hey, Yui-san. Even the plants in Okinawa are totally different from Tokyo, huh."
 
-"You'll be even more surprised when you see the sea. I think it'll be visible soon."
+Trees along the roadside stretched skyward, unmistakably tropical. In the endlessly blue, clear sky, oversized cumulonimbus clouds floated, looking nothing like Tokyo's sky.
 
-Just as Yui-san said, a little while later, the view that burst through the car window took my breath away.\
-The shallow sea stretched endlessly in emerald green, and the white sandy beach sparkled as it reflected the sunlight.
+"You'll be even more surprised once the ocean comes into view. Should be soon."
 
-"Wow, amazing... beautiful."
+Just as Yui-san said, a little while later, the view that burst into the car window caught my breath.\
+The shallow sea stretched endlessly in emerald green, white sand catching the sunlight, glittering.
 
-"The hotel we're staying at on the second day has a private beach right next to it, so look forward to that."
+"Wow, incredible... so beautiful."
 
-A private beach, huh. I'd like to walk on the sandy beach. I wonder what it feels like. My heart leapt with anticipation.\
-The car carrying my excited self was heading towards the company's own hotel, which was about to open, just as Yui had explained on the plane.
+"The hotel we're staying at on the second night has a private beach right nearby, so look forward to that."
 
-　Stepping inside the gleaming, newly completed building, the entrance floor shone so smoothly it seemed it might reflect my face.\
-There were ninety guest rooms in total. Remarkably, there were three different restaurants.\
-There was also a lounge where you could enjoy drinks overlooking the sea, and apparently a night pool too.\
-The range of affiliated activities was extensive, and paid 'Loyalty Members' could use the concierge service at no extra charge.\
-　Truly befitting a high-end luxury resort. Even a single chair exuded an air of sophistication.
+A private beach, huh. I wanted to walk on the sand. What would it feel like? My heart danced with anticipation.\
+Carrying me, giddy, the car headed toward our own company's nearly-completed hotel, exactly as Yui-san had explained on the flight.
 
-After a brief meeting with the manager, Yui and I toured the property, meticulously checking each guest room and facility for final confirmation.\
-I diligently noted down every single point Yui pointed out in my notebook.\
-I found myself completely captivated by the serious gaze of Yui in work mode, so different from her usual self.
+Stepping into the brand-new, spotless building, the entrance floor gleamed so polished it looked like it might reflect even my own face.\
+Ninety guest rooms total. Three different restaurants, remarkably.\
+A lounge where you could enjoy a drink with an ocean view, and a night pool too, apparently.\
+A wide range of partnered activities, and paid "Loyalty Members" could use the concierge service at no extra charge.\
+Exactly what you'd expect from a high-end luxury resort. Even a single chair carried an unmistakable air of quality.
 
-The very first thing Yui-san did upon becoming president was to unify the membership system, which had previously been separate for each hotel brand.\
-While the mechanism where membership grades rise based on usage frequency remains unchanged, this new membership system incorporates numerous benefits that members will appreciate. For instance, even members who primarily use business hotels or restaurants can, through repeated use, gain access to higher-end luxury brand hotels.\
-　This membership scheme proved a resounding success, boosting business usage and steadily increasing the number of paid members eligible for premium services since its launch two years prior.
+After a brief meeting with the manager, Yui-san and I toured the guest rooms and facilities together, checking each one carefully, one by one.\
+I made sure to write down every single point Yui-san flagged, word for word, in my planner.\
+Watching her serious expression, so different from her usual self, fully in work mode — I found myself completely captivated.
 
-The acquisition of my former company's 'Web Production Division' likely stemmed from this very strategy. By focusing on operating the members-only site and developing applications to enhance member services, we have now, in our third year, shifted from the phase of 'increasing membership' to one of 'increasing repeat customers and boosting usage frequency'.
+The very first thing Yui-san did upon becoming president was unify the membership systems that had previously been split by hotel brand.\
+The mechanism where membership tier rises with usage frequency stayed the same, but the new system packed in plenty of member-friendly perks — even a business-hotel or restaurant-only member, with repeated use, could work their way up to the high-end luxury brand hotels.\
+This new membership system had landed remarkably well, boosting business-tier usage across the board, and the number of paid members eligible for one-tier-higher service had also kept climbing steadily, ever since two years ago.
 
-To this end, it seems that since last fiscal year, preparations for new openings and refurbishments of existing stores have commenced, continuing investment to prevent customer fatigue.
+Probably right here lay the reason she'd acquired my old company's "Web Production Division." By putting real effort into running the members-only site and developing the application, she'd strengthened member services — and now, in this third year, the phase had shifted from "increasing membership" to "increasing repeat visits and usage frequency."
 
-　For this new store opening, substantial borrowing from the parent company has funded equipment investment. Anticipating inbound demand, they've also hired several new employees proficient in foreign languages to provide services rivalling those of foreign-owned hotels.\
-After repeated discussions, this represents a business decision that, in a sense, carries the company's fortunes – Yui-san's expression during the hotel inspection was serious.
+Toward that end, starting last fiscal year, they'd begun preparatory work for new store openings and renovations of existing locations, apparently maintaining continuous investment to keep customers from growing bored.
 
-"...Right then, we've seen enough. Shall we head to the hotel we're staying at tonight? You must be tired too, Kanata?"
+For this new store's opening, they'd taken out a substantial loan from the parent company to fund capital investment. Anticipating inbound demand, and aiming to offer service that wouldn't lose to foreign-capital hotels, they'd apparently newly hired several employees fluent in foreign languages too.\
+After round after round of deliberation, this was, in a sense, a management decision the whole company's fate rode on — and Yui-san's expression, touring the hotel, stayed serious throughout.
 
-After inspecting every corner, Yui stretched her body fully and said this.
+*
 
-"I'm not tired at all, I'm fine."
+"...Well, I think we've seen plenty, let's head to today's hotel. You must be tired too, Kanata?"
 
-Watching you remain so focused the entire time, I didn't feel the slightest bit tired myself. Knowing all that effort was for me made my heart feel warm deep inside.
+After touring every last corner, Yui-san stretched, easy, and said it.
 
-　It struck me anew just how remarkable Yui-san truly is. How much effort must she have put in all this time?\
-Only now did I regret the four years we spent apart. Why on earth could I so easily let go of this person who cared for me so deeply?
+"I'm not tired, I'm fine."
 
-If only I hadn't run away back then — I stopped myself before finishing that thought. Regretting the past serves no purpose.\
-Now, you're beside me, and I'm beside you. That alone... is happiness enough.
+I'd spent the whole time watching you, so serious, so I wasn't tired at all. Realizing every bit of that effort was for my sake too, something deep in my chest warmed.
 
-After greeting the manager, we got into the car. The setting sun streamed through the window, illuminating Yui-san's profile. Yui-san really is beautiful, no matter how often I see her.
+All over again, I found myself thinking — Yui-san really is an incredible person. How much effort has she stacked up, all this time?\
+Only now, belatedly, did I feel real regret over those blank four years we'd spent apart. Why had I let go so easily of the hand of someone who'd thought of me this much, all along?
 
-"Sorry for dragging you along. Must have been boring, wasn't it?"
+If, back then, I hadn't run away — I stopped myself there. No point regretting something already past.\
+Right now, you're beside me, and I'm beside you. That alone... is more than enough happiness.
 
-As the car started moving, Yui-san said this apologetically. So I hurriedly shook my head.
+*
 
-"Not at all. Seeing you at work... you looked really cool."
+After greeting the manager, we climbed back into the car. The evening sun poured through the window, lighting Yui-san's profile. Beautiful, no matter when I look at her.
 
-My voice dropped just a little. This was the truth. Truly, you were impressive. Every time I saw that serious profile, my heart would pound so hard it felt like it would leap out.\
-Then Yui-san smiled happily and glanced at me with just a quick look.
+"Sorry for dragging you along. Must've been boring."
 
-"Really? Could it be... you've fallen for me all over again?"
+As the car pulled out, Yui-san said it, apologetic. I scrambled to shake my head, side to side.
 
-"Oh, come on. I'm trying to compliment you, why do you have to tease me like that straight away..."
+"That's not true at all. Yui-san, working... you looked really cool."
 
-Falling for you all over again? What nonsense. I've liked you ever since that time.\
-　In fact, my feelings just keep growing. I'm falling for you more and more, without limit. ...But I'd never say something like that out loud.
+My voice went a little quiet toward the end. This is the honest truth. Genuinely, cool. Every time I watched that serious profile, my heart pounded, racing.\
+At that, Yui-san smiled, happy, glancing my way with just her eyes.
 
-I kept staring out the car window at the sea reflecting the sunset light as we headed back to the hotel.\
-Starting today, I'd be sharing a room with Yui-san for the next two nights.\
-When I stayed at her place before, I'd been drinking, so I wasn't particularly nervous. But now... I was feeling a little... fluttery.
+"Really? Did you... maybe fall for me all over again?"
 
-　I steal a glance at her profile. Even though I'm so conscious of you, Yui-san seems completely unchanged. It feels like I'm the only one who likes you, and that made me feel a little resentful.
+"Ugh, I'm actually giving you a compliment, and you immediately have to tease me about it..."
 
-By the time we reached the hotel where we were staying, the sunset had completely faded and the surroundings had grown dim.\
-After parking, pulling the handbrake, and unbuckling her seatbelt, Yui-san suddenly squeezed my hand tightly.\
-　My already tense heart gave an extra, sharp thud.
+Fall for you all over again — as if I ever stopped. I've loved you this whole time, since back then, without a single break.\
+If anything, the feeling just keeps growing, bigger and bigger. I keep falling deeper into you, endlessly, no limit in sight. ...Not that I'd ever, ever say that out loud.
 
-"...From today, we can be together all the time, can't we?"
+I kept my eyes on the ocean, catching the evening light, all the way to the hotel.\
+Starting today, two whole days sharing a room with Yui-san.\
+Last time I stayed at her place, I'd been drinking, so I hadn't been especially nervous. But now, I'm... a little nervous.
 
-Her deep, dark eyes looked straight at me. Then, taking my hand, she gently pressed her lips to the back of it, as if cherishing it.\
-I felt the warmth rush to my face at that soft sensation.
+I stole a glance at her profile. Even though I'm this hyperaware of her, Yui-san looks completely unchanged, as always. It felt, somehow, like I was the only one this in love, and that stung, just a little.
 
-"Yui-san, aren't you working right now..."
+By the time we reached the hotel we'd be staying at, the sun had fully set, the whole area dim.\
+After parking and pulling the handbrake, Yui-san undid her seatbelt and suddenly gripped my hand, tight.\
+My already-tense heart gave an especially hard, sudden leap.
 
-"It's past six already. Work's finished."
+"...Starting today, we get to be together the whole time."
 
-Her long fingers slipped smoothly between mine, and her left hand clasped mine tightly. Why was it — there was a faint sense of unease about that left hand holding mine. Yet, unable to pinpoint the source of that unease, I returned Yui-san's gaze.
+Those deep black eyes looked straight at me. She took my hand and pressed her lips, gentle, fondly, against the back of it.\
+Feeling that soft touch, I was aware of heat gathering in my face.
 
-　Lately, Yui-san has been like she's gone back to her university days. You can just see it written all over her face that she's determined not to let me escape.
+"Yui-san, we're still... on the clock..."
 
-"...You did say we wouldn't do anything, right?"
+"It's already past six. Work's done for today."
 
-Feeling uneasy, I double-checked just to be sure. Yui-san laughed heartily, saying, "I said we wouldn't do anything, didn't I?"
+Her long fingers slid, smooth, between mine, her left hand gripping my hand tight. Why — something felt faintly *off* about that left hand, gripping mine. But unable to identify what that off feeling actually was, I looked back into her eyes.
 
-　Really? Yui-san is a liar, after all. Not that I'm expecting anything. But... actually, right now, I'm regretting booking a twin room just a little.
+Lately, Yui-san feels like she's gone back to her college self. Because it's written all over her face — *I'm not letting you get away.*
 
-"Right then, shall we go? You must be tired today, so get some rest. We've got tomorrow too."
+"...You said you wouldn't do anything, didn't you?"
 
-Stepping out of the car, a lukewarm breeze brushed against my bare skin. Then, holding hands with Yui-san, we headed towards the hotel.
+Anxious, I double-checked, just in case, and Yui-san laughed, easy — "I said I wouldn't."
 
-"...What are your plans for tomorrow?"
+Really, though. Yui-san's a liar. Not that I'm hoping for anything. But... honestly, right now, I'm regretting, just a little, booking a twin room.
 
-I asked casually, dangling our joined hands. Since I'd been told I only needed to accompany her, I hadn't made any appointments anywhere besides meeting the manager of our own hotel. So I hadn't asked what Yui-san intended to do tomorrow.\
-Staying at a competitor's hotel was the purpose, so I'd thought she might just stay there all day.
+"Well, let's go. You must be tired today, so get some rest. There's tomorrow too."
 
-　Yui smiled brightly, peering up at me.
+Stepping out of the car, a lukewarm breeze brushed bare skin. Then, hand in hand with Yui-san, we headed toward the hotel.
 
-"Tomorrow... we're inspecting a partner facility. It's a place you'll adore, Kanata."
+"...What's the plan for tomorrow?"
+
+Swinging our joined hands idly, I asked, casual. I'd been told I only needed to accompany her, so aside from our own hotel's manager, no other appointments had been set. So I hadn't heard what Yui-san planned to do tomorrow.\
+Since the whole point was staying at competitor hotels, I figured maybe we'd spend the whole day at this one.
+
+Yui-san smiled, bright, and peered into my face.
+
+"Tomorrow is... an inspection of a partnered facility. Somewhere you love, Kanata."
 
 "Eh...?"
 
-I stopped in my tracks, returning her gaze. A gentle breeze softly ruffled Yui's silky black hair.
+Startled, I stopped walking without meaning to and looked back into her eyes. A gentle breeze stirred Yui-san's smooth black hair.
 
-　A place I adore. Only one comes to mind. In Okinawa, one of the most famous spots. Where the whale sharks are. It was in the guidebook too. A double-page spread, the photo of the huge tank flooding back into my mind.
+Somewhere I love. Only one place comes to mind. One of Okinawa's most famous spots. Where the whale sharks are. It had been in the travel guide too. A full two-page spread came flooding back into my mind, the photo of that massive tank.
 
-If I'm going all the way to Okinawa, I'd love to go. I'd been desperately trying to suppress that urge to beg for it. It's a work trip, so it's not allowed. I mustn't be selfish.
+Since we'd come all the way to Okinawa, I'd wanted to go. But I'd been desperately holding back that urge to ask. Told myself — this is a work trip, I shouldn't be selfish.
 
-"Yui... Are you sure? Are you really sure?"
+"Yui-san... really? Is it really okay?"
 
 "I promised, didn't I? That I'd take you to the aquarium. Sorry it took so long."
 
-Staring intently into my wavering eyes, Yui smiled — with extraordinary tenderness.
+Looking straight into my wavering eyes, Yui-san smiled — impossibly gentle.

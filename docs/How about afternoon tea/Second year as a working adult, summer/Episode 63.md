@@ -1,187 +1,195 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
+nav_order: 2
 parent: Second year as a working adult, summer
 sequence: 66
-title: 'Episode 63: Kanata, Yuki-nii has a girlfriend, you know?'
+title: "Episode Sixty-Three: Kanata, Just So You Know, Yuki-nii Has a Girlfriend"
 ---
-Episode 63: Kanata, Yuki-nii has a girlfriend, you know?
+## Episode Sixty-Three: Kanata, Just So You Know, Yuki-nii Has a Girlfriend
 
-"Itadakimasu," I said, clasping my hands together before twirling the pesto around my fork. As I brought it to my mouth, the basil's fragrance filled my senses, and the chewy texture of the fresh pasta made me blurt out, "Wow, this is delicious."
+\
+Pressing my hands together — "itadakimasu" — I twirled some genovese pasta onto my fork. The moment it reached my mouth, the scent of basil spread, the fresh pasta chewy and satisfying, and "wow, this is delicious" slipped out before I could stop it.
 
-Seeing my reaction, Yukiyasu-san gave a gentle smile before taking a bite of his carbonara.
+Watching me, Yukiya-san smiled and brought a forkful of carbonara to his own mouth.
 
-"...I'd assumed you two were dating, but it was just a one-sided crush from Yui's side, wasn't it?"
+"...I really did think you two were dating. Turns out it was just Yui's one-sided thing, huh."
 
-"No, well... we weren't dating, but it wasn't exactly a one-sided crush either..."
+"No, um... we weren't dating, but it wasn't one-sided either..."
 
-Looking back, I'd already liked Yui-san since that time. To be honest, I don't know when I fell for her. By the time I realised, I was already fond of her. It just took me a little while to admit it...
+Thinking back, I'd already loved Yui-san even back then. Honestly, I couldn't say exactly when it started. By the time I noticed, I was already in love. Though it took me... a little while to actually admit that to myself.
 
-"Is that so? That's good. I'm relieved."
+"Really? Good, that's a relief."
 
-When I implied that I also liked Yui, Yukiyasu-san smiled happily.
+Once I'd implied, indirectly, that I loved Yui-san too, Yukiya-san smiled, genuinely pleased.
 
-"So, Yukiyasu-san... you knew about Yui?"
+"Yukiya-san, you... already knew about Yui-san, then."
 
-I hesitated slightly, reluctant to use the phrase 'homosexual' in this context.
+I hedged slightly, not quite comfortable saying the word "gay" out loud in this setting.
 
-"The only one who hasn't realised is Dad. Even though she's engaged, I'd never heard her mention any romantic interest in men before that either. I did find it odd... but when I first met Kanata-chan, I knew for sure. Ah, so that's it – Yui likes women. I've never heard it from her mouth, so I just pretend I don't know."
+"Dad's the only one who hasn't noticed. Even before the engagement, I never once heard so much as a rumor about her with a man, and I always thought it was strange... but the first time I met you, Kanata-chan, it clicked. Ah, I see, so Yui likes women. I've never heard it from her own mouth, so I just play dumb about it."
 
-　Indeed, it was only natural to find it odd that someone as beautiful as Yui-san, who was popular with both men and women, never had a single boyfriend. She seemed utterly disinterested in Kitakami-san too...
+It's true, someone as beautiful as Yui-san, popular with everyone regardless of gender, never once having a boyfriend — that alone should have raised questions. And she's never shown the slightest interest in Kitagami-san either...
 
-"Besides, Yui was ridiculously jealous of me back then, wasn't she? It was pretty obvious."
+"Also, back then, Yui was jealous of me to a genuinely funny degree. Pretty easy to read."
 
-Saying this, Yukiyasu-san chuckled heartily. Pulling the memory back, I recalled that Yui really had been terribly sulky back then.
+Yukiya-san said it, laughing brightly. Digging back through memory, I remembered — right, Yui-san really had been in a foul mood that day.
 
-Truthfully, the relationship between Yui and me wasn't exactly something to be proud of. Given that she was engaged to Kitakami-san, regardless of how she felt, society would see me as the 'other woman'...\
-But seeing Yukiyasu-san's attitude, I felt he accepted me rather favourably, and that gave me a little reassurance.
+Honestly, my relationship with Yui-san isn't exactly something to be proud of. As long as she's still engaged to Kitagami-san, regardless of how either of us actually feels, in the world's eyes, I'm the "other woman"...\
+But watching how Yukiya-san carried himself, it felt like he genuinely accepted me, warmly, and something in me eased, just a little.
 
-"...I don't know what happened, but things didn't work out when you were students, did they? You were so down about it, I reckon you must have genuinely liked her. If it was because of what happened with Shinji that you two broke up, then it was my fault... I've felt terribly guilty about it ever since. So, I'm really glad Kanata-chan came back to Yui."
+"...I don't know what happened, but it didn't work out between you two back in college, right? She was genuinely devastated, so I figured she must have really loved you. And if things ending with you two traces back to Shinji, that's on me — it's been weighing on me this whole time. So I'm genuinely glad you've come back to Yui, Kanata-chan."
 
 "Eh...?"
 
-　Why would it be Yukiyasu-san's fault? I stopped eating my pasta and looked at him. He lowered the outer corners of his eyebrows and smiled sadly.
+Why would that be Yukiya-san's fault? I stopped eating and looked at him, and his brows drew down, and he smiled, sad.
 
-"The reason Father is trying to make Yui the successor, even going so far as to make Shinji her fiancé, is because I, her elder brother, am hopeless. I've been running away from Father all this time, and the fallout has landed on Yui. I truly feel terribly sorry about that. That's why I accepted the director position too. When Yui first said she wanted to become president, Father dismissed her, saying she was too young. So she came crying to me. I never imagined Father would agree just because I became a director."
+"The reason Dad's pushing so hard to make Shinji her fiancé and set Yui up as heir, even now, is because I'm useless. I kept running from Dad, for so long, and all that pressure ended up landing on Yui instead. I genuinely feel terrible about it. That's why I took the director position too. When Yui said she wanted to become president, Dad wouldn't hear it, said it was too soon. So Yui came to me, practically in tears. I never imagined just my taking on a director role would actually get Dad to agree, though."
 
-Ah, so that's why Yukiyasu-san, who shouldn't have had any connection to the group, ended up becoming a director.
+Ah, I see — that's how Yukiya-san, who was supposed to have no connection to the Group at all, ended up as a director.
 
-Indeed, for Father, it was a precious chance to pull back a son who had once drifted away. There was no way he wouldn't agree. You really think things through, Yui.
+For their father, this must have been a rare chance to draw Yukiya-san back in after he'd distanced himself — of course he wouldn't refuse. Yui-san really does think these things through carefully.
 
-"When I asked Yui why she wanted to become president so quickly, she said it was to break off her engagement with Shinji... So I decided to support her wholeheartedly. Honestly, I believe we've established a profitable management foundation over these past two years. This is the result of Yui's efforts... and also thanks to you, the driving force behind it all."
+"When I asked Yui why she wanted to become president so suddenly, she said she wanted to break off the engagement with Shinji... so I decided to support her with everything I had. And honestly, I think we managed to build a genuinely profitable management foundation over these past two years. That's the result of Yui's own hard work... and it's thanks to you too, Kanata-chan, since you're what's been driving her."
 
-"Oh, I haven't done anything..."
+"No, I haven't done anything..."
 
-Yui-san's efforts to break off the engagement weren't necessarily for my sake. After all, this reunion was truly coincidental. Even if she does like me now, it might just be a case of rekindled feelings...\
-But if it really was for my sake... nothing could make me happier. A warmth slowly spreads deep within my chest.
+Everything Yui-san's worked toward for the sake of breaking off the engagement isn't necessarily for my sake. This reunion happened by pure coincidence, and even if she does still love me right now, that could just be old embers catching fire again, nothing more...\
+But if it really is for my sake, after all... nothing could make me happier than that. Something warm slowly welled up, deep in my chest.
 
-"I want Yui to live freely. I don't want her to live for my father or me at the expense of suppressing her true self. So, if you still care for Yui, I'll support the two of you. Father too... once he knows how hard Yui is trying, I'm sure he'll understand."
+"I want Yui to live freely. I don't want her crushing who she is just to live for Dad's sake, or mine. So if you still care for Yui, I'll support the two of you too. Dad, too... once he understands how hard Yui's worked, I'm sure he'll come around."
 
-Hearing Yukiyasu-san say that somehow makes me feel incredibly reassured. That's right. I know from all the stories Yui's told me that her father, though awkward, is a deeply loving man.
+Hearing Yukiya-san say that put me strangely at ease. Right — I already know, from everything Yui-san's told me, that her father, however clumsy he is, is a genuinely, deeply loving man.
 
-He must have been genuinely delighted to hear about Yukiyasu-san becoming a director. They are father and son, after all.
+And Yukiya-san, too — hearing he'd become a director must have made him genuinely happy. They're father and son, after all.
 
-But that doesn't mean my worries have vanished. Father is one thing... but would Kitakami-san be the sort to accept this?
+But it's not like every worry's gone. Her father might be fine with it, but... would Kitagami-san actually accept it that easily?
 
-　I heard Yui-san got engaged when she was eighteen. That means this autumn marks eight full years. Surely, after such a long engagement, the other party wouldn't just quietly step aside?
+I've heard Yui-san got engaged at eighteen. Which means, come this autumn, it'll be a full eight years. However you look at it, would someone engaged for that long really just step aside quietly?
 
-"Yukiyasu-san. Um... what sort of person is this Kitakami-san?"
+"Yukiya-san. What... what kind of person is Kitagami-san?"
 
-When I asked, Yukiyasu-san furrowed his brow and made a sour face, humming thoughtfully.
+Asked that, Yukiya-san's brows knit together, and his face soured, thoughtful.
 
-"Well... for better or worse, he's the type with strong ambitions, I suppose. Ever since we were kids, he's been competing with me over everything... a real pain in the neck. Though I'll admit he's a hard worker."
+"Hmm... good and bad, but definitely the ambitious type. Been competing with me over everything since we were kids... a real hassle of a guy. Though I'll admit, he's a hard worker."
 
-He did say they were childhood friends, but it seemed Yukiyasu didn't think much of Kitakami either.\
-Indeed, marrying Yui would undoubtedly secure him an important position within the Ichinose Group, and that would naturally require effort.
+Right — he'd said they were childhood friends, but Yukiya-san doesn't seem to think especially highly of Kitagami-san either.\
+It's true, marrying Yui-san would mean securing an important position within the Ichinose Group without question, and that would naturally demand serious effort too.
 
-"Frankly, I opposed the engagement itself. I didn't say anything because Yui said she wanted it... but it really wasn't good at all. Not realising that back then was my fault."
+"Honestly, I was against the engagement from the start. Yui said it was fine, so I never said anything... but it really wasn't fine, not at all. Not catching that back then — that's on me."
 
-I couldn't help but smile faintly at Yukiyasu-san, who let out a deep sigh. Yui-san really is loved, isn't she? Somehow, it made me feel incredibly tender.
+Letting out a deep sigh, Yukiya-san, and I couldn't help a faint smile. Yui-san really is loved, isn't she. Something in me softened, warm.
 
-"Yukiyasu-san. Is Kitakami-san... a necessary person in Yui-san's life?"
+"Yukiya-san. Is Kitagami-san... someone Yui-san actually needs, in her life?"
 
-Four years ago, I stepped aside, believing he was the one Yui-san needed in her life, not me. That's why I wanted to ask. I wanted to know what Yukiyasu-san, who knew Kitakami-san well, thought.\
-When I asked, Yukiyasu-san looked at me intently. So I, too, looked straight back into those eyes, so similar to Yui-san's.
+Four years ago, I'd stepped back, thinking Yui-san's life needed him, not me. That's exactly why I wanted to ask. What someone who actually knows Kitagami-san well, someone like Yukiya-san, actually thought.\
+Asked that, Yukiya-san looked at me, steady. So I looked back, just as steady, into those eyes so much like Yui-san's.
 
-"...That's not for Dad or me to decide. The person Yui needs is someone she should choose herself."
+"...That's not something Dad or I get to decide. Whoever Yui actually needs — that has to be Yui's choice."
 
-Hearing that, the lingering doubt deep within my chest seemed to vanish cleanly.\
-Yes, that is something Yui-san should decide, not something for me to decide.
+Hearing that, whatever hesitation had been tangled up inside my chest seemed to loosen, all at once.\
+Right. That's something Yui-san has to decide. Not something I get to decide either.
 
-If Yui-san were to choose me this time — this time, I thought, I would never run away and leave you behind again.
+If Yui-san chooses me, this time — I will never, ever run away and leave you behind again. That's what I thought.
 
-　I'm so glad I got to see Yukiyasu today and talk with him. It felt like my doubts had cleared away, leaving me strangely refreshed.\
-After polishing off the recommended fresh pasta, he even treated me to tea afterwards. This should help me focus on work this afternoon.
+*
 
-When I get back, I'll try telling Manager Yamazato how I feel. She might be reluctant, or it might be impossible. Still, I won't know unless I try.\
-　I want to be there for Yui-san. Talking with Yukiyasu-san only strengthened that feeling.
+I was genuinely, deeply glad I got to see Yukiya-san today, get to talk with him. Whatever hesitation I'd been carrying felt cleared away, and something in me felt refreshed.\
+I finished off the recommended fresh pasta completely, and even got treated to tea afterward. I think I'll be able to focus properly on work this afternoon.
 
-"Oh, right, Kanata-chan. This time, you really must give me your contact details. If anything happens, you can always get in touch."
+Once I'm back, I'll tell Manager Yamasato-san how I actually feel. She might hesitate, might even say it's impossible. But I won't know unless I try.\
+I want to be Yui-san's support. Talking with Yukiya-san only made that feeling stronger.
 
-After exchanging contact details, Yukiyasu-san raised his index finger to his lips and said with a mischievous smile, "It's a secret from Yui, alright?"
+"Oh, right, Kanata-chan. This time, actually give me your contact info. If anything ever comes up, reach out anytime."
 
-　That smile was so much like Yui-san's. I couldn't help but smile back and promised, "I'll keep it a secret."
+Exchanging contact info, Yukiya-san held a finger up to his lips — "keep this from Yui, okay?" — and grinned, mischievous.
 
-Leaving the shop, I glanced at my watch. It had been about an hour since we'd left at noon. Perfect timing.
+That smile, too, so much like Yui-san's. Drawn along, I laughed too and promised, "I'll keep it secret."
 
-We walked together back to the office. It was nice it was so close. By July, the midday sun was scorching hot.
+*
 
-"Are you heading back to Yui-san's place after this, Yukiyasu-san?"
+Stepping outside and checking my watch, almost exactly an hour had passed since I'd left for lunch. Good timing.
 
-"No. I've finished what I needed to do, so I'm heading back to my own company."
+We walked back toward the office together. Glad it's close by. Come July, midday heat blazes down, sharp and relentless.
 
-And yet he'd gone out of his way to walk me back to the office. The Ichinose family really were kind. When we reached the automatic doors, I bowed deeply to thank Yukiyasu-san.
+"Are you heading back to Yui-san's place after this, Yukiya-san?"
 
-"Thank you for lunch today."
+"Nope. I'm done with what I needed, so I'll head back to my own company."
 
-"No, thank you for keeping me company. Well then, I shall..."
+And yet he'd gone out of his way to walk me all the way back to the office. The Ichinose family really is kind, through and through. Right in front of the automatic doors, I bowed deeply to thank him.
 
-Just as Yukiyasu's voice trailed off with "I'll be off now," a familiar voice called out "Kanata!" making me turn around.
+"Thank you so much for today."
+
+"No, thank you for keeping me company. Well then, I'll..."
+
+Cutting through Yukiya-san's voice — "I'll get going" — a familiar voice called "Kanata," and I turned.
 
 "...Why are Kanata and Yuki-nii together?"
 
-Yui-san stood there, a plastic bag from the convenience store dangling from one hand, her brows knitted together in a sullen frown.
+There stood Yui-san, a convenience store bag in one hand, brows drawn down, faintly displeased.
 
-"I just invited her to lunch because we bumped into each other. Yui wouldn't come with me, you see. Right, Kanata-chan?"
+"We ran into each other by chance, so I just invited her to lunch. You wouldn't come with me, after all. Right, Kanata-chan?"
 
-"Y-yes. We just went for lunch together..."
+"Th-that's right. We just went to lunch together..."
 
-Somehow, the atmosphere felt unpleasant. As I glanced nervously between the two of them, my arm was suddenly grabbed firmly, pulling me away from Yukiyasu-san.\
-Yui-san peered at my face, looking flustered.
+Something felt off, tense. Glancing back and forth between the two of them, my arm was suddenly grabbed, firm, and I was pulled away, put at a distance from Yukiya-san.\
+Yui-san, looking almost panicked, peered into my face.
 
-"Kanata, Yukiyasu-san has a girlfriend, you know?"
+"Kanata, just so you know, Yuki-nii has a girlfriend."
 
-She said that, as if to emphasise something I hadn't even asked about, and I couldn't help but stare at her, wide-eyed.\
-Then Yukiyasu-san laughed out loud, "Ahaha."
+Said with such emphatic urgency, though I hadn't even asked, that I blinked, wide-eyed, caught off guard.\
+At that, Yukiya-san burst out laughing.
 
-"You don't need to worry so much, I wasn't hitting on her. Right?"
+"You don't have to worry that much. I wasn't putting the moves on her. Right?"
 
-Asked for agreement, I nodded vigorously. Yui-san always gets in a foul mood whenever Yukiyasu-san is mentioned.\
-As I stood there flustered, wondering what to do, Yukiyasu-san looked at me and chuckled softly.
+Asked to back him up, I nodded, quick, over and over. Yui-san gets this touchy the second anything involves Yukiya-san.\
+Flustered, unsure what to do, Yukiya-san watched me and laughed, soft.
 
-"Right then, I'll be off now. See you both later."
+"Well, I'm off then. See you both later."
 
-With that, he waved his hand lightly and simply walked away. I watched his retreating back. Better safe than sorry... he must have thought that.
+Waving, easy and breezy, he left just like that, and I watched his back go. Better not poke the bear, I'm sure he was thinking.
 
 "...Kanata."
 
-Called by name, I turned awkwardly. Yui-san smiled unnaturally brightly and said to me, "Shall we go inside?"
+Called by name, I turned back, awkward. Yui-san smiled, unnaturally bright, and said, "Let's head inside."
 
-"...Yui-san, is that all you had for lunch?"
+*
 
-While waiting for the lift, I stared at the convenience store bag in Yui-san's hand. One rice ball, salad, perhaps?
+"...Yui-san, is that really all you're having for lunch?"
 
-　With the grand opening of the new large resort hotel looming next month, Yui-san seemed so busy she couldn't even spare time for lunch in the company cafeteria.
+Waiting for the elevator, I studied the convenience store bag in her hand. One onigiri, and... a salad, maybe?
 
-"...What did you and Yuki-nii have to eat?"
+With the new resort hotel opening next month, Yui-san seems too busy even to spare time eating in the company cafeteria.
 
-When she asked me that, I realised I might have chosen the wrong topic. Because even though she looked like she was smiling, the depths of her eyes weren't smiling at all.
+"...Kanata, what did you and Yuki-nii eat?"
 
-"Er, he treated me to pasta..."
+Asked back like that, I thought — ah, wrong topic choice. Because though she looked like she was smiling, there was nothing in her eyes matching it at all.
+
+"Um, I got treated to pasta..."
 
 "Hmm..."
 
-The lift arrived, and we stepped inside. When the doors closed, the sudden silence felt a little awkward. This wasn't exactly the atmosphere where I could casually ask if I could volunteer to be her secretary either.
+The elevator arrived, and we stepped inside. Once the doors closed, the silence in that enclosed space felt more than a little awkward. Definitely not the mood for asking whether I could put my own name forward for the secretary posting.
 
-"You didn't have to go with Yuki-nii... I know better restaurants than that."
+"You didn't have to go with Yuki-nii of all people... I know better places, you know."
 
-Yui-san muttered, turning her head away. I almost laughed out loud, quickly biting my lip to stifle it.
+Turned away, Yui-san muttered it, low. I nearly laughed, and scrambled to bite my lip shut instead.
 
-So, she was jealous after all. Yui-san, you're adorable.
+Well, well. So she really was jealous after all. Yui-san, honestly, so cute.
 
-I gently squeezed her fingertips. Her shoulder jerked in surprise, making me chuckle softly.
+I hooked a finger gently around hers. Her shoulder jumped, startled, and I couldn't hold it back any longer — a small laugh slipped out.
 
-"Then next time, take me to a nice restaurant. On your day off."
+"Then, take me to a good place next time. On a day off."
 
-"Is that... an invitation for a date?"
+"That's... an invitation for a date?"
 
-Her eyes widened as Yui peered at my face, just as the lift reached our floor.
+Her eyes went round, and just as she leaned in to peer at my face, the elevator reached our floor.
 
-It wouldn't do if anyone saw us chatting so casually, so I released our clasped fingers and stepped forward as the doors opened.\
-Without answering her question, I turned back to Yui and said,
+Being seen chatting so casually would be a problem, so I let go of her finger, and the moment the doors opened, I stepped forward.\
+Without answering the question, I turned back to her and said instead:
 
-"Let's get back to work this afternoon, shall we?"
+"Let's both do our best at work this afternoon too."
 
-Yui-san was jealous. Maybe it's okay to think she still likes me after all.
+Yui-san was jealous. Maybe it's okay to believe, after all, that she still loves me.
 
-The thought made me happy, and my steps towards the office felt light.
+Thinking that made me so happy that my steps toward the office felt light.
