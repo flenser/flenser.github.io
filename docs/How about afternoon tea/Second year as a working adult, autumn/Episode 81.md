@@ -4,7 +4,7 @@ layout: episode
 nav_order: 10
 parent: Second year as a working adult, autumn
 sequence: 85
-title: 'Episode Seventy-Six: Hold Me Properly, More'
+title: 'Episode Eighty-One: Surrender?'
 ---
 ## Episode Eighty-One: Surrender?
 
