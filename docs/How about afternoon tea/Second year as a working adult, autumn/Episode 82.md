@@ -4,7 +4,7 @@ layout: episode
 nav_order: 11
 parent: Second year as a working adult, autumn
 sequence: 86
-title: 'Episode Eighty-Two: Don't Blame Me If She Gets Jealous'
+title: "Episode Eighty-Two: Don't Blame Me If She Gets Jealous"
 ---
 ## Episode Eighty-Two: Don't Blame Me If She Gets Jealous
 

@@ -4,7 +4,7 @@ layout: episode
 nav_order: 8
 parent: Second year as a working adult, autumn
 sequence: 83
-title: 'Episode Seventy-Nine: I'll Spend My Whole Life Making It Come True'
+title: "Episode Seventy-Nine: I'll Spend My Whole Life Making It Come True"
 ---
 ## Episode Seventy-Nine: I'll Spend My Whole Life Making It Come True
 

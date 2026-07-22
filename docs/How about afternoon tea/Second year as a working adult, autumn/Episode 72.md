@@ -4,7 +4,7 @@ layout: episode
 nav_order: 1
 parent: Second year as a working adult, autumn
 sequence: 76
-title: 'Episode Seventy-Two: First, I'll Teach Your Body'
+title: "Episode Seventy-Two: First, I'll Teach Your Body"
 ---
 ## Episode Seventy-Two: First, I'll Teach Your Body
 

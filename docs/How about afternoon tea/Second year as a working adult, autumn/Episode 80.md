@@ -4,7 +4,7 @@ layout: episode
 nav_order: 9
 parent: Second year as a working adult, autumn
 sequence: 84
-title: 'Episode Eighty: You're Unusually Assertive Today'
+title: "Episode Eighty: You're Unusually Assertive Today"
 ---
 ## Episode Eighty: You're Unusually Assertive Today
 

@@ -4,7 +4,7 @@ layout: episode
 nav_order: 4
 parent: Second year as a working adult, autumn
 sequence: 79
-title: 'Episode Seventy-Five: I'm Not Trying to Provoke You, You Know'
+title: "Episode Seventy-Five: I'm Not Trying to Provoke You, You Know"
 ---
 ## Episode Seventy-Five: I'm Not Trying to Provoke You, You Know
 

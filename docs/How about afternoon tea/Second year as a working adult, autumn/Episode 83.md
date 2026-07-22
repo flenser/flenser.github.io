@@ -4,7 +4,7 @@ layout: episode
 nav_order: 12
 parent: Second year as a working adult, autumn
 sequence: 87
-title: 'Episode Eighty-Three: If It's Just a Little While, I'll Wait'
+title: "Episode Eighty-Three: If It's Just a Little While, I'll Wait"
 ---
 ## Episode Eighty-Three: If It's Just a Little While, I'll Wait
 

@@ -4,7 +4,7 @@ layout: episode
 nav_order: 13
 parent: Second year as a working adult, autumn
 sequence: 88
-title: 'Episode Eighty-Four: If You Don't Actually Say It, I Won't Understand'
+title: "Episode Eighty-Four: If You Don't Actually Say It, I Won't Understand"
 ---
 ## Episode Eighty-Four: If You Don't Actually Say It, I Won't Understand
 
