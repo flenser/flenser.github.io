@@ -4,7 +4,7 @@ layout: episode
 nav_order: 2
 parent: 'Chapter One: Childhood Friends'
 sequence: 2
-title: "Episode 1: A Childhood Friend Becoming My Sister Is Just Too Convenient!"
+title: "Episode 2: A Childhood Friend Becoming My Sister Is Just Too Convenient!"
 ---
 ## Episode 2: A Childhood Friend Becoming My Sister Is Just Too Convenient!
 
