@@ -1,172 +1,187 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 140
+nav_order: 14
 parent: Second year as a working adult, autumn
 sequence: 89
-title: 'Autumn Special: To the Ends of the Earth'
+title: 'Autumn Bonus Chapter: To the Ends of the Earth'
 ---
-Autumn Special: To the Ends of the Earth
+## Autumn Bonus Chapter: To the Ends of the Earth
 
-How many people can one truly love from birth to death?
+\
+How many people, I wonder, can a person actually love, between birth and death?
 
-To be honest, I cannot recall the number of women I have shared the night with.
+The number of women I've spent a night with — honestly, I don't remember.
 
-There have been two people I have loved.\
-But the one I loved from the depths of my heart will likely remain the only one in my lifetime.
+There have been two people, up to now, that I've fallen for.
+But the one I've loved from the very bottom of my heart — that seems set to be just one, for my whole life.
 
-Thanks to that first person I fell for — I feel I was able to correctly recognise that I am homosexual.
+That very first person I fell for — I think, thanks to her, I came to properly understand that I'm gay.
 
-　For eighteen-year-old me, parting with my first girlfriend was excruciatingly painful. Yet looking back now, that sorrow seems trivial compared to the separation from Kanata I would experience years later.
+For eighteen-year-old me, parting with my first girlfriend was a genuinely painful thing. But now, looking back, compared to the parting I'd go on to experience with Kanata a few years later, it feels like nothing more than a minor ache.
 
-Had I not broken up with my ex and instead dragged out the relationship through university, I might have found some excuse to refuse Kanata's proposal to live together. Had that happened, I would never have met this dear girl.
+If I hadn't broken up with my ex, if I'd kept dragging that relationship on all the way through college, I might have found some excuse to turn down the idea of living with Kanata. And if that had happened, I never would have met this precious girl at all.
 
-　They say life is about serendipity, and I truly feel that to be the case. If the eighteen-year-old me, despairing of everything and resigned to giving up on life that night, could hear that a day would come when I'd meet someone I cherish this deeply, I'd be utterly astonished.
+They say life is full of chance encounters — I find myself agreeing with that, sincerely, deeply. That a day like this would come, meeting someone I could treasure this much — if I'd told that to myself at eighteen, drowning in despair, having given up on everything, she'd have been utterly astonished.
 
-　Exhausted, I pressed my lips to the long lashes of Kanata, who slept soundly beside me, gently stroking her soft cheek, careful not to wake her.\
-Gently drawing her white, rounded shoulders closer, I felt they were slightly cool. After tucking the duvet up over her shoulders, I held her slender body tightly.
+Worn out, I pressed my lips to the long lashes of Kanata, sleeping soundly beside me, and gently stroked her soft cheek, careful not to wake her.\
+Pulling her pale, round shoulder in close, I found it a little cool to the touch, so I pulled the blanket back up over her shoulder and hugged her slender body tight.
 
-　The nightclothes I'd hastily stripped off and tossed aside were probably lying under the bed somewhere, but before I could retrieve them and dress her, she'd already fallen asleep in my arms. So I gave up on getting dressed myself and decided to sleep like this tonight.
+Kanata's loungewear, stripped off and tossed aside in the rush, had probably ended up somewhere under the bed, but there'd been no time to retrieve it and dress her again before she'd fallen asleep in my arms, so I gave up on getting dressed myself too, and decided to just sleep like this tonight.
 
-　Autumn nights are long.
+Autumn nights run long.
 
-Even though I'd promised to go eat pancakes with Kanata tomorrow, sleeping felt like such a waste, and Friday nights always ended up like this, staying up late.\
-The usual Saturday morning routine was Kanata waking before me, puffing out her cheeks in a pout as she shook my shoulder to wake me.
+We'd promised to go get pancakes together tomorrow, and yet sleep feels like such a waste that Friday nights, I always end up staying up too late.\
+Waking before me, Kanata puffing out her cheeks in annoyance while shaking my shoulder awake — that's always been our usual Saturday morning routine.
 
-But it couldn't be helped.
+Well, can't be helped.
 
-　Kanata might not know it, but just holding her like this as I sleep, my chest tightens unbearably, and my love for her piles up like snow.
+Kanata might not realize it, but just holding her like this while she sleeps is enough to leave my chest so tight it aches, love piling up, thick, like falling snow.
 
-That snow, piling up and never melting away, takes away all the pain and suffering in my heart.
+That snow, piling and piling, never once melting — it strips away every bit of pain and suffering in my heart.
 
-I want us to live together soon. I want to fall asleep in each other's arms every night. If you're there beside me when I wake in the morning, I need nothing else.
+I want to live together, soon. I want to fall asleep in each other's arms, every single day. If you're beside me when I wake in the morning, I don't need anything else at all.
 
-You might laugh if I said such things, but I'm always seriously thinking about nothing but this.
+If I said something like that out loud, Kanata might laugh at me — but honestly, I'm always seriously thinking about things exactly like this.
 
-　I wish spring would come sooner.
+*
 
-When I bumped into Shinji — I realised. That Kanata felt guilty about this relationship.\
-I remember how our clasped hands trembled slightly, and my chest tightened terribly.
+I wish spring would just hurry up and come.
 
-I swore I’d never hurt you again, yet here I am, causing this girl I adore so much pain once more.\
-　Come to think of it, it was only natural. Unlike me, Kanata is earnest and sincere, the type who thinks things through deeply before acting.
+*
 
-There's no way Kanata has the sort of character that could tolerate infidelity.
+The moment we ran into Shinji — I noticed something. That Kanata carries real guilt over this relationship.\
+I remember her hand, laced with mine, trembling faintly, and how much that squeezed my chest.
 
-Even if there was absolutely no love between Shinji and me, there was no way she could have no conflict about a relationship with me while I had an engagement.
+I'd sworn I'd never hurt her again, and yet, here I am, causing this precious girl pain all over again.\
+Thinking about it properly, of course it would be like that. Unlike me, Kanata's serious, sincere, the type who thinks things through carefully before acting.
 
-And yet, she accepted my feelings — I know it was because of her affection.
+There's no way, honestly, that Kanata's the type who could easily accept infidelity.
 
-　I couldn't bear it. When Kanata told me she wanted to be my secretary, that she wouldn't let any other girl have that role, I became certain her feelings were still directed towards me.\
-From that moment on, my heart was so full I couldn't sleep at night, I loved Kanata so much, so very much. I couldn't wait until spring.
+However true it is that there's zero love between me and Shinji, there's no way she wouldn't struggle with being in a relationship with someone who still has a fiancé.
 
-　Three years ago, when I promised my father I would "absolutely deliver results," it was both a personal resolution and an act of selfishness.\
-My first year as a working adult was spent in the holding company's corporate planning department, where I poured blood, sweat, and tears into my work.\
-I worked relentlessly during the weekdays, studied relentlessly after returning home, sacrificing sleep, and on weekends, I would crash at Yuki-nii's place, bowing my head to beg for his guidance.
+And yet she accepted my feelings anyway — I know that's purely out of love.
 
-　Because I was the president's daughter. Because I was the next president. I was subjected to those curious stares, and I know there were times when people gossiped behind my back. But none of that mattered.
+I couldn't hold back. When Kanata said she wanted to be my secretary, that she didn't want to hand that role over to anyone else — that's when I became certain her feelings were still turned toward me.\
+Ever since then, my chest has been so full it's kept me up at night — I love her, love her, unbearably. I couldn't wait until spring anymore.
 
-There were times when I found the position I was born into troublesome. But looking back now, perhaps it was a fortunate thing.
+*
 
-What I can give to Kanata is never very much.
+Three years ago, my promise to my father — "I'll deliver results, no matter what" — was both a resolve I made for myself, and, at the same time, a selfish demand.\
+That first year as a working adult, I threw everything I had into the Holdings company's business planning office.\
+Working myself to the bone on weekdays, studying late into the night once I got home, sparing no sleep, and on weekends, crashing at Yuki-nii's place, bowing my head, begging him to teach me.
 
-But now I have social standing and financial security. Though I’d always thought these things bound me, they were also strengths. Even if something were to happen to me from now on — I have something I can leave behind.
+Because I'm the president's daughter. Because I'm the next president. I know I drew curious stares for it, know there was whispering behind my back too. But none of that mattered to me at all.
 
-Of course, I wish to live by her side until we grow old together, but human life is fleeting. Parting comes abruptly. It is equal for everyone.
+There were times I resented the position I'd been born into, found it a burden. But now, looking back, maybe that was actually a stroke of good fortune.
 
-　How agonising it must be to leave a loved one behind in a place beyond reach. Only now could I imagine, painfully so, the regret my mother must have felt leaving behind her beloved husband and young children.
+There's not much I can actually give Kanata.
 
-Precisely because I had found someone precious, the fear of loss constantly lingered right beside my happiness. This was an emotion I only came to know after meeting Kanata and falling in love.
+But right now, I have social standing, financial security. Things I'd always felt bound by, restricted by — turned out, in the end, to be strengths too. If something ever happened to me, going forward, there's something I could still leave behind for Kanata.
 
-　Until I reunited with Kanata, I was always in a hurry. I didn't always choose the best solution in every situation. Even so, I couldn't just stand by and do nothing.
+Of course, I want us to grow old together, side by side. But life is fragile. Parting comes suddenly, without warning. Fair to everyone, without exception.
 
-I wanted to go and fetch her quickly. This time, with a completely pure body. That single-minded desire was my driving force.
+How painful it must be, leaving someone you love, going somewhere far, somewhere unreachable. Now, I can imagine, painfully, exactly how my own mother must have felt, leaving behind a beloved husband, a young child, with such regret.
 
-What if Kanata already had a lover? What if she'd gotten married?
+Because I've found someone precious, the fear of losing her now sits right beside my happiness, always. This is a feeling I never knew until I met Kanata, until I fell in love with her.
 
-　There were nights when just the thought of it made my chest feel like it was being squeezed tight. It was unbearably painful and agonising. I travelled to Osaka where Ritsu was, crying my heart out, and each time she would slap my back like whipping a racehorse. How much that pain in my back saved me.
+Right up until we reconnected, I was always rushing, anxious. Not every choice I made was the optimal one. Even so, I couldn't stand doing nothing at all.
 
-As the days passed like this, my resolve gradually hardened.
+I wanted to go find her, quickly. This time, with nothing left tying my hands. That single wish was the engine driving me forward.
 
-　After settling everything, I would go to see Kanata. And if, at that moment, someone else was by her side — even if she was married — I would take her back, no matter what it took. I resolved that.
+What if Kanata already had a partner? What if she was already married?
 
-I didn't care what anyone said. Unfortunately, unlike Kanata, it seems I wasn't a sensible person.
+There were nights just thinking about it left my chest twisted painfully tight. Unbearable, suffocating, and more than once, I made the trip to Osaka, where Ritsu was, to cry and vent — and every time, she'd slap my back like she was whipping a racehorse. I don't know how many times that painful slap on the back saved me.
 
-Even if it was socially wrong, I loved her so deeply that I could easily leap over such things.
+Piling up days like that, one after another, my resolve solidified, before I even fully noticed.
 
-　In that spring of my third year, burning with such ambition, Kanata appeared before me with the same smile she'd always had.
+Once everything's settled, I'll go find Kanata, and if, at that point, someone else was beside her — even if she'd already married — whatever it took, I'd steal her back. That's what I'd decided.
 
-I found myself thinking something quite out of character: perhaps God really does exist.
+I don't care what anyone says about it. Unfortunately, unlike Kanata, I'm apparently not exactly a person of good conscience.
 
-Spring passed, summer went by, autumn arrived, and now Kanata lies in my arms. Could there be anything happier than this? I simply cannot imagine ever letting go of this warmth.
+However wrong that might be, by the world's standards, I loved her enough to leap right over that line without a second thought.
 
-Truthfully, perhaps it would be simpler to tell my father soon that I am gay and have him call off my engagement to Shinji.\
-　He’d be shocked, no doubt, and deep down disappointed, but I don’t think he’d force me to marry Shinji. The father I know well was clumsy, but that was the sort of man he was.
+Burning with that ambition, in the spring of my third year, Kanata appeared before me, wearing that same unchanged smile from back then.
 
-But the reason I haven’t done it immediately, keeping Kanata waiting — is because I feel strongly that I want to show my father, through concrete results, that my feelings aren’t half-hearted, that I’m serious.
+*Maybe God really does exist* — I found myself thinking, uncharacteristically.
 
-　Since my student days, my father had probably noticed I wasn't keen on running the company. At every opportunity, he always apologised to me. "I'm sorry for pushing the responsibility onto you," he'd say.
+Spring passed, summer came and went, autumn arrived, and now, Kanata is here, in my arms. Could there possibly be a happiness greater than this? I don't think I could ever let go of this warmth again, not now.
 
-That's why he arranged Shinji for me. His ambition for social status must have seemed perfect for someone as unambitious as me. Had I not met Kanata, I would surely have chosen to marry Shinji without complaint.\
-　He doesn't force 'love' upon me. That suited me perfectly. Far better than being pressured into a romantic relationship.
+*
 
-But then I met Kanata.
+Honestly, all I really need to do is tell my father, quickly, that I'm gay, and have him call off the engagement with Shinji.\
+He'd surely be shocked, and, in his heart, disappointed — but I don't think he'd force me to marry Shinji regardless. My father, the man I know so well, is clumsy, but that's exactly the kind of person he is.
 
-So now I can't marry Shinji, and the feeling that 'I must have children' has vanished completely within me.
+But the reason I haven't done that yet, the reason I've kept Kanata waiting — it's because I want to deliver real, undeniable results first, so my father truly understands that this isn't some half-hearted feeling. That I'm serious.
 
-The only thing I can give back to my father, who raised me entirely alone, is achieving results in my work.
+Since my college years, my father's probably sensed that I was never especially enthusiastic about running the company. He's apologized to me for it, over and over, at every opportunity. "I'm sorry, for putting this responsibility on you."
 
-　Kanata understands my desire to at least give my father peace of mind.
+That's why he matched me with Shinji. Shinji's hunger for social status must have seemed like a perfect fit for someone as unambitious as I was. If I'd never met Kanata, I probably would have chosen to marry Shinji without a single complaint.\
+He never demands "love" from me. That made him convenient. Far more convenient than someone who wanted an actual romantic relationship.
 
-That's precisely why Kanata says nothing to me. Without a single complaint about this limbo we're in, she simply trusts me and stays by my side.
+But I met Kanata.
 
-So I want to respond properly to Kanata's kindness and feelings.
+Which means I can no longer marry Shinji, and that whole notion — "I have to have children" — has completely, cleanly vanished from inside me.
 
-Come spring — I'll be able to say proudly, without hiding it from anyone, that I love you with all my heart.
+The only thing I can give back to the father who raised me alone is delivering real results at work.
 
-"Mmm..."
+At the very least, I want to put my father's mind at ease. Kanata understands that feeling of mine.
 
-Had I unconsciously tightened my embrace? Kanata gave a small groan against my chest. Her slender arms pulled me closer, her silky chestnut hair tickling my collarbone.
+Which is exactly why Kanata never says anything to me about it. Never once complains about this suspended, undefined relationship — just trusts me, and stays by my side.
 
-Gently patting her back once more, as if to lull her back to sleep so she wouldn't wake, I soon heard her steady breathing resume.
+Which is exactly why I want to properly answer that kindness, that feeling of hers.
 
-I'm sorry, Kanata. But I won't let you go now. I'll cherish you forever. As long as you stay by my side, until this heart stops beating, forever... forever.
+Once spring comes — I'll finally be able to say it, proudly, hiding nothing from anyone: that I love you, from the bottom of my heart.
 
-　I buried my cheek in her fluffy hair and closed my eyes. If 'happiness' truly existed in this world in tangible form, it was undoubtedly here, in my arms, right now. I felt certain of it.
+"Mnh..."
 
-　The next morning, as usual, I overslept. Kanata shook my shoulder, pouting her lips in displeasure. Her fingertips touched the bite marks on my shoulder – marks I'd grown accustomed to and no longer noticed – and they stung just a little.\
-Even though I thought, 'That was definitely on purpose,' I didn't point it out. Instead, I blinked several times to reboot my brain.
+Maybe I'd unconsciously tightened my arms around her, because Kanata gave a small groan against my chest. Her slender arm pulled tight around my back, her long, glossy chestnut hair tickling my collarbone.
 
-"Hey, Yui-san, wake up. It's already nine o'clock. If we don't hurry, the limited-edition pancakes will sell out..."
+Careful not to wake her, I patted her back gently, soothing, and soon, the steady rhythm of her sleeping breath returned.
 
-"Mm... right, I'm getting up now. Good morning, Kanata..."
+Sorry, Kanata. But I'm never letting go again. I'll treasure you for the rest of my life. As long as you stay by my side, until this heart stops beating, I'll — always, always.
 
-The alarm was set for eight, I'm sure. Probably, judging by this feeling, Kanata must have turned it off for me. I reached out, still weak from sleep, to pull Kanata closer, but she slipped away. My palm fell flat onto the crisp white sheets, leaving behind only warmth.
+Nuzzling my cheek against her soft hair, I closed my eyes. If "happiness" has any physical form in this world, it's undeniably, right now, held in these arms. I truly believed that, in that moment.
 
-"Eh? What about the morning hug...?"
+*
 
-Saying this with apparent dissatisfaction, Kanata got out of bed. She gathered up the clothes I'd tossed aside last night, turning her head away abruptly.
+The next morning, right on schedule, I overslept, and Kanata woke me, shaking my shoulder, lips pursed in displeasure. Her fingertip brushed the bite mark on my shoulder — one I'd long since stopped noticing — and it ached, faintly.\
+*That was definitely on purpose*, I thought, but decided not to point it out, blinking a few times to reboot my still-groggy brain.
 
-"There's no time for that. Just get up and get ready."
+"Hey, Yui-san, wake up. It's already nine. If we don't hurry, the limited pancakes will sell out..."
 
-I smiled faintly at Kanata, who was fumbling to fasten her bra clasp behind her back, and reached out to help her. She was as clumsy and adorable as ever.
+"Mn... yeah, I'm up. Morning, Kanata..."
 
-When I hugged her from behind, she pinched my arm hard. I protested, "Ouch!" but she glared at me even more fiercely, making me laugh involuntarily.
+I'd set my alarm for eight, but going by this, Kanata must have turned it off herself. Reaching out to pull her close, my arm still weak from sleep, she slipped away easily. My hand fell, anticlimactic, onto the still-warm sheet where she'd been.
 
-"If it's sold out, it'll be your fault, Yui-san. I told you we'd have to queue at the shop, didn't I? You promised to take me..."
+"Wait, where's my good-morning hug...?"
 
-I recalled how yesterday, Kanata had gazed at the image of fluffy, thick pancakes topped with generous syrup and whipped cream with sparkling eyes. I genuinely regretted oversleeping.
+Displeased, I said it, and Kanata got out of bed, gathering up the clothes I'd tossed aside the night before, and turned pointedly away.
 
-"Mm, it's alright. I'll get ready quickly."
+"No time for that. Just hurry up and get ready."
 
-I did oversleep a bit... but I'm sure it'll be alright.
+Watching her fumble, clumsy, reaching behind her back to hook her bra, I laughed, faint, and reached out to help. Still as adorably clumsy as ever.
 
-Kanata must have been up by eight o'clock, yet she waited until the very last moment to wake me. That's her kindness.
+Hugging her from behind, she pinched my arm, hard. "Ow," I protested, and she just glared back at me, harder still, and I couldn't help but laugh.
 
-To repay that kindness, I've just decided to get ready at full speed.
+"If it's sold out, it's your fault, Yui-san. I told you there'd be a line. You promised to take me..."
 
-If it's what my beloved wishes, I'm prepared to take her anywhere.
+Remembering how, just yesterday, Kanata had stared at that photo of pancakes — fluffy, thick batter piled high with syrup and whipped cream — with such sparkling eyes, I genuinely regretted having overslept.
 
-　Even if it meant going to the ends of the earth.
+"It's fine, I'll get ready right away."
 
-If Kanata wished it, I believe I could surely fly through the sky.
+Overslept a little, sure, but... it'll probably be fine.
+
+Kanata must have woken at eight herself, and yet she'd let me sleep, right up to the last possible minute — that's Kanata's own kindness, showing through.
+
+To answer that kindness properly, I resolved, right then, to get ready at full speed.
+
+If it's what my beloved girl wants, I'm ready to take her anywhere at all.
+
+*
+
+Even if it's to the ends of the earth.
+
+*
+
+If Kanata wishes it, I think I could probably even fly.

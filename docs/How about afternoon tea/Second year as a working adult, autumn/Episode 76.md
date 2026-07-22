@@ -1,236 +1,237 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 50
+nav_order: 5
 parent: Second year as a working adult, autumn
 sequence: 80
-title: 'Episode 76: Hold Me Tighter'
+title: 'Episode Seventy-Six: Hold Me Properly, More'
 ---
-Episode 76: Hold Me Tighter
+## Episode Seventy-Six: Hold Me Properly, More
 
-It was a Monday afternoon, nearing mid-September. The sound of keyboard clicks in the president's office abruptly ceased. Yui let out a deep sigh before stretching her stiffened body with a satisfying groan.
+\
+Mid-September now, a Monday afternoon. The sound of keyboard typing echoing through the president's office suddenly went quiet, and Yui-san let out a deep sigh, then stretched out what must have been a stiff, aching body.
 
-Lately, it like felt Yui had been sighing more often.
+Lately, I feel like Yui-san's sighs have gotten more frequent.
 
-There was a perfectly good reason for this: the Group Joint Presidents' Meeting was scheduled for early next month.\
-　This was the crucial quarterly meeting where each president under the Ichinose Group umbrella reported their performance to the president of the parent company, Ichinose Holdings — Yui-san's father.
+There's a real reason behind it, too — early next month, the "Group Joint President's Meeting" is coming up.
+Once a quarter, every president under the Ichinose Group reports business performance to the president of the parent company, Ichinose Holdings — meaning, Yui-san's father. An important meeting.
 
-Since morning, Yui-san had been buried in preparing materials for the meeting.\
-She'd been staring intently at her PC, occasionally pausing to ponder, so I sensed she was somewhat stuck.
+Since this morning, Yui-san had been buried in preparing materials for it.\
+Hunched over her laptop, occasionally stopping to sit and think, clearly working through something — I could tell, vaguely, that she'd hit some kind of wall.
 
-　The large resort hotel opened this summer had been a resounding success, and the company's performance was strong. If things continued this way, it looked set to brilliantly achieve increased revenue and profits this term, exactly as outlined in the three-year medium-term management plan Yui had established upon taking office.
+The large-scale resort hotel that opened this summer had been a huge success too, and the company's performance was strong. At this rate, the three-year mid-term management plan Yui-san had set out when she took office looked set to hit its target — revenue and profit both growing this fiscal year, right on schedule.
 
-Even so, the fact that good performance alone couldn't allow for complacency spoke volumes about just how high the standards demanded at this 'Presidents' Meeting' were.
+Even so, the fact that strong performance alone doesn't let her feel optimistic says a lot about just how demanding the standards at this "president's meeting" actually are.
 
-　Just imagining it made my stomach churn. Given that Yui-san became the youngest president in the company's history, our firm seems to be under considerable scrutiny even within the group.\
-It's good that we're delivering solid results, but the pressure is immeasurable.
+Just imagining it made my stomach hurt a little. Since Yui-san took office as the youngest president in the company's history, our company apparently draws a fair amount of attention from the other companies within the Group too.\
+Delivering solid results is a good thing, of course, but the pressure that comes with it must be immeasurable.
 
-"...I'm popping over to Yuki-nii's company for a bit. He said he'd be free this afternoon, so I'll go discuss next month's President's Meeting materials."
+"...I'm going to head over to Yuki-nii's company for a bit. He said he's free this afternoon, so I want to talk through the materials for next month's president's meeting."
 
-Slowly rising, she slipped on the dark grey jacket hanging from the rack and let out another deep sigh.
+Standing, unhurried, she pulled on the dark grey jacket hanging on the rack, and let out another deep sigh.
 
-"Understood. Do take care."
+"Understood. Please take care on the way."
 
-I stood from my desk to see her off. Our eyes met, and Yui smiled gently, wrapping one arm around my waist.
+I stood from my desk to see her off. Our eyes met, and Yui-san smiled, gentle, and pulled my waist in close with one arm.
 
-"Right. I'll be back by five."
+"Yeah. I'll be back by five."
 
-I accepted her gentle kiss, barely a touch. Taking advantage of being alone together, Yui-san always touched me like this.\
-It wouldn't be so bad if it were just the president's office, but she'd touch me without a care even in places that made me a bit uneasy – like the lift or the meeting room – so my heart always ended up racing.
+I accepted the light, gentle kiss. Taking advantage of being alone together, Yui-san always touches me like this.\
+The president's office is one thing, but she does it in the elevator too, in conference rooms, places where it's honestly a little concerning — completely unbothered — and it always leaves my heart racing.
 
-At first, I was fidgety, wondering if anyone might see us. But in the president's office — it was practically impossible for anyone to just walk in, so before I knew it, I'd grown accustomed to it.
+At first, I'd been anxious, worried someone might see. But in the president's office, at least — there's basically no chance of anyone just walking in — so somewhere along the way, I'd simply come to accept it.
 
-Reluctantly, Yui gently pulled away from me and smiled happily.
+Reluctant, gently releasing my body, Yui-san smiled, happy.
 
-"Right then, I'll be off."
+"Alright, I'm off."
 
-After seeing Yui-san off from the president's office with a "Have a good trip," I let out a sigh myself.
+Seeing her out of the president's office with a "take care," I let out a small sigh of my own too, once she'd gone.
 
-Yui-san's birthday was fast approaching next month. Yet I still hadn't managed to ask her who she planned to spend it with.
+Yui-san's birthday is coming up next month. And yet, I still hadn't managed to ask her who she's planning to spend it with.
 
-Back in university, Yui-san would go to a "dinner gathering" once a month with her father and Kitakami-san. But looking at Yui now, there's no sign she's seeing Kitakami-san.\
-She's no longer a student, and she's past the age of meeting men through her father, so perhaps those 'dinner meetings' have stopped.
+Back in college, once a month, Yui-san used to go to a "dinner" with her father and Kitagami-san. But watching Yui-san now, there's no sign at all that she's still meeting with Kitagami-san.\
+She's not a student anymore, and she's well past the age where her father would need to arrange meetings with a man on her behalf — so maybe those "dinners" have simply stopped happening.
 
-Yet, the morning after we spent together, even though it was a holiday, Yui received a call from Kitakami-san.\
-After that, she never returned his call in front of me, so I didn't ask anything.
+But the morning after we'd spent that night together, despite it being a holiday, a call had come in for Yui-san from Kitagami-san.\
+In the end, after that, Yui-san never once returned the call in front of me, so I never asked about it either.
 
-　To say I wasn't curious would be a lie. But I simply couldn't bring myself to ask Yui-san all sorts of questions and put even more pressure on her, especially when she was trying so hard for my sake.
+Saying it doesn't bother me at all would be a lie. But there's one thing I absolutely didn't want to do — pile on questions, add more pressure, to someone already working this hard for my sake.
 
-It's alright. I trust Yui-san.
+It's fine. I trust Yui-san.
 
-I thought I'd brew some tea and take a breather. Just as I stood up from my desk, I noticed the red light on the telephone flashing.\
-　An internal call from reception. I reached out and picked up the receiver.
+Maybe I'll brew some tea, take a small breather. Just as I thought that and started to rise from my desk, I noticed the phone's red light blinking.\
+An internal call from reception. I reached over and picked up the receiver.
 
-"Good afternoon. This is Aosawa, the secretary."
+"Good afternoon. This is Aozawa, secretary."
 
-'This is Wada from reception. There's a visitor here for the president right now...'
+*"This is Wada at reception. There's a visitor here for the president right now..."*
 
-Hearing 'visitor' startled me. I manage all of Yui-san's schedule. There shouldn't have been any appointments for this afternoon. Had I overlooked something?
+Hearing "visitor," I froze, startled. I manage every bit of Yui-san's schedule. There shouldn't have been any appointment for this afternoon. Had I missed something?
 
-　Clamping the receiver between my shoulder and ear, I double-checked the schedule while operating the PC. But indeed, nothing was booked for the afternoon. If so, perhaps it was a cold call or something similar.
+Wedging the receiver between my shoulder and ear, I double-checked the schedule on my computer. But there really was nothing on the calendar for this afternoon. A cold-call sales visit, maybe?
 
-"Could you please tell them we cannot put through visitors without an appointment?"
+"Could you let them know we can't accept visitors without an appointment?"
 
-'Well... they said we'd know who it was if we just gave their name. It's a gentleman from Ichinose Holdings, Kitakami-san.'
+*"That's the thing... he said if I gave his name, you'd understand. A man named Kitagami, from Ichinose Holdings."*
 
-Hearing that name sent a chill down my spine. My hand holding the receiver trembled ever so slightly.
+Hearing that name, something crawled, unpleasant, across my skin. The hand holding the receiver trembled, faint.
 
-Calm down. I told myself, breathing in slowly, deeply, deeply.
+Calm down. Telling myself that, I drew a slow, deep breath.
 
-　Even without an appointment... I couldn't turn him away. I simply couldn't. After all, Kitakami-san was an employee of the parent company. Moreover, he was attached to the president. He was a close aide to Yui-san's father. To send him back at reception would be an unthinkable discourtesy — I couldn't possibly do that.
+No appointment or not... I couldn't turn him away. There was no way I could turn him away. Because Kitagami-san is an employee of the parent company. Attached directly to the president, no less. One of Yui-san's father's own closest aides. Sending him off rudely at reception simply wasn't an option.
 
-"Very well... I shall see to it myself. Please show him to the reception room."
+"...I'll handle it myself. Please show him to the reception room."
 
-Saying this, I placed the receiver down and stood up. I could feel the sweat forming on my palms.
+Saying that, I set the receiver down and stood. I could feel a faint sweat gathering on my palms.
 
-　What should I do? Kitakami-san had come.
+What do I do. Kitagami-san's here.
 
-This was work. Personal feelings had no place here. As Yui-san's secretary, I simply needed to handle this firmly.
+This is work. I shouldn't let personal feelings get involved. As Yui-san's secretary, I just need to handle this with composure.
 
-Besides, we'd met just once, four years ago, for only a moment. He probably didn't even remember me.\
-Hoping against that slim chance, I placed my hand on the door handle of the president's office.
+Besides, I'd only met him once, four years ago, for just a moment. He might not even remember me.\
+Clinging to that faint possibility, I put my hand on the reception room's doorknob.
 
 ＊＊＊
 
-Even now, four years on, I can recall that day as if it were yesterday.\
-I have never cried so much, before or since. Closing my eyes against the stinging pain that resurfaced, I took a deep breath.
+Even now, four years later, I can still recall that day like it was yesterday.\
+I've never cried that hard, before or since. Closing my eyes against the prickling ache of that memory resurfacing, I took one deep breath.
 
-Then I opened the door to the reception room.
+Then I opened the reception room door.
 
-The figure that came into view was unchanged from four years ago, exactly as I remembered.
+The figure that came into view hadn't changed a bit from four years ago — exactly as I remembered.
 
-　I stood before the black leather sofa, watching him.\
-Tall. Neatly groomed hair, the very picture of a businessman. Clad in a deep navy suit, he saw my face and his eyes widened for a moment — then narrowed sharply.
+I looked at him, standing in front of the black leather sofa.\
+Tall. Clean, neatly styled hair, every bit the polished businessman. Dressed in a dark navy suit, the moment he saw my face, his eyes widened for an instant — and then narrowed, sharp.
 
-Summoning my courage against the urge to flinch, I met his gaze directly.
+Steeling myself against the urge to flinch, I looked straight back into those eyes.
 
-"Thank you for your continued support. I'm Aosawa, the secretary."
+"Thank you for everything. I'm Aozawa, secretary."
 
-I didn't say 'pleased to meet you'. Because I realised. He remembered me. I was almost certain of it.
+I didn't say "nice to meet you." Because I'd already understood. He remembers me. That was near certainty.
 
-His eyes were a unique burnt brown, like deep-roasted coffee with just a few drops of milk added.\
-Within those eyes, I saw a sharp blade. I felt an uneasy discomfort, as if its tip were pressed against my throat.
+Eyes the color of dark-roast coffee with just a few drops of milk stirred in — a distinctive shade of tawny brown.\
+Deep within those eyes, I could see a sharp blade. A discomfort like having a blade's point pressed against my throat.
 
-　His thin lips curved into a smile. He smiled, and I thought he was like a snake.
+His thin lips curved into an arc. Smiling like that, he looked, I thought, exactly like a snake.
 
-"You, I'm sure we've met before... when Yui was still a student. That's right, you're the one who lived with Yui."
+"You... we've met before, right? Back when Yui was still a student. Right, you're the girl who lived with her."
 
-A chill ran down my spine at the sight of those icy, cold eyes.
+A chill raced down my spine at that ice-cold gaze.
 
-"I remember you very clearly. I heard you'd ended your cohabitation, so I assumed you'd fallen out... but I was wrong."
+"You made quite an impression on me. I'd heard you two stopped living together after that, and I figured you'd had some kind of falling out... guess I was wrong."
 
-"...The president is currently out of the office. If you have any business, I can take your details."
+"...The president is currently out of the office. If there's something you needed, I'll take care of it."
 
-I responded with a purely businesslike reply, avoiding the question. To turn up without an appointment – what on earth is Kitakami-san thinking?\
-　His gaze, appraising me as if weighing me up, carried a clinging humidity that made breathing difficult.
+I answered without addressing his question, keeping it strictly businesslike. What is Kitagami-san even thinking, showing up without an appointment like this?\
+His gaze, assessing me, sizing me up, seemed to cling to my whole body with an unpleasant heaviness, and it made breathing difficult.
 
-"Oh, really? That's a shame, she's out. ...She doesn't answer her phone, barely replies to messages, so I came to talk in person. Bad timing, eh? Yui's always been rubbish at keeping in touch, but you'd think she'd at least reply to messages from her boyfriend."
+"Ah, is that right? Too bad, out of the office. ...She doesn't pick up her phone, doesn't even bother replying to messages properly, so I figured I'd come talk in person, but bad timing, I guess. Yui's always been bad at keeping in touch, but you'd think she could at least manage a proper reply to messages from her *partner*."
 
-Boyfriend. I clenched my back teeth at the word. I forced myself not to show it, endured, swallowed it down, then made a smile and looked back at Kitakami-san.
+*Partner* — hearing that word, I clenched my back teeth hard. Careful not to let it show on my face, I swallowed it down, forced a smile, and looked back at Kitagami-san.
 
-"If there's something you wish to convey, shall I pass it on for you?"
+"If there's something you'd like conveyed, shall I pass along a message?"
 
-"Oh? Sorry about that. It's about celebrating Yui's birthday next month... I've invited her out for a meal, but she keeps saying she's busy that day and won't give me the time of day. Could you tell her to let me know when she is free?"
+"Really? Sorry to trouble you. It's about Yui's birthday next month... I invited her to dinner, but she keeps saying she's busy that day and won't even discuss it properly. Could you let her know to tell me when she's actually free?"
 
 "...Understood."
 
-Hearing that, I felt an immense wave of relief wash over me. Thank goodness. Yui-san had turned down Kitakami-san's invitation.\
-Come to think of it, there was no way that Yui-san would ever say something like, "I'm having dinner with Shinji that day." I felt relieved, realising I'd been worrying too much.
+Hearing that, an enormous wave of relief washed through me. Thank goodness. Yui-san really had turned down Kitagami-san's invitation.\
+Thinking about it properly — there's no way Yui-san would ever say, "I'm having dinner with Shinji that day." I'd been overthinking it, and relief settled in.
 
-"Sorry for interrupting your work. Give my regards to Yui, then."
+"Sorry for interrupting your work. Well then, give my regards to Yui."
 
-Saying that, Kitakami-san passed by me and grasped the door handle. Relieved, I let out a small, quiet sigh, careful not to be noticed.\
-Regardless of the content, I was glad it was such a straightforward matter.\
-I'd managed to get through it. If he just went home without suspecting anything, that would be fine.\
-Overthinking is my bad habit. It'll be alright. Kitakami-san couldn't possibly think Yui-san was seeing a woman...
+Saying that, Kitagami-san walked past me and grabbed the reception room's doorknob. Relieved, I let out a small breath, careful not to let him notice.\
+Whatever the actual content, at least the matter itself had been simple. Grateful for that.\
+Somehow, I'd made it through. As long as he leaves now, without suspecting anything further, that's all that matters.\
+Overthinking things is a bad habit of mine. It's fine. There's no way Kitagami-san would ever imagine that Yui-san is actually dating a wom—
 
-"...Ah, yes. Aosawa-san. There's something I've been meaning to ask you. Would that be alright?"
+"...Ah, right. Aozawa-san. There's one thing I wanted to ask you, if that's alright."
 
-Before turning the handle, Kitakami-san looked back at me, and tension shot through me like my heart clenched.
+Before turning the doorknob, Kitagami-san turned back to face me, and my heart clenched, tight, tense.
 
-"Back when you were students, what sort of relationship did you and Yui have?"
+"Back when you were students — what exactly was the relationship between you and Yui?"
 
-He looked me straight in the eye and said it. His eyes weren't smiling. His piercing gaze made me swallow hard.
+He said it, looking straight into my eyes. Those eyes weren't smiling at all. Under that piercing gaze, I swallowed, hard.
 
 "...What do you mean by that?"
 
-"Aosawa-san, do you remember? The first time we met. After I introduced myself, you just started running without saying a word, didn't you? After that, Yui panicked and ran after you — and then I chased after Yui. You were already gone, but seeing Yui so distraught like that... it was the first time I'd ever seen her like that. I couldn't help but wonder. What kind of relationship do you two have?"
+"Aozawa-san, do you remember? The first time we met. After I introduced myself, you took off running without a word, didn't you? Right after that, Yui went chasing after you in a panic — and then I went after Yui too. You were already gone by then, but... I'd never seen Yui that shaken before. It stuck with me. What kind of relationship was that, exactly?"
 
-I don't know. How much had he noticed? Slowly, like something tightening around my ankles, suffocating me.\
-To hide my unease, I didn't break eye contact with his dark brown eyes. Staring straight at him, I opened my lips.
+I don't know. I don't know how much he's actually figured out. I could feel a slow, creeping tightness closing in from my feet upward, breath growing difficult.\
+Careful not to let my agitation show, I never once looked away from those tawny brown eyes. Holding his gaze steady, I parted my lips.
 
-"We were close, senior and junior. Back then, we just... had a bit of a row. As you can see, we've made up now, so please don't worry about it."
+"We were close, as senior and junior. That day, we'd just had... a small falling-out, that's all. As you can see, we've made up since then, so please don't worry about it."
 
-Saying it myself was painful. What I really wanted to say was: Yui-san's lover isn't you, it's me. But I couldn't say it. Not yet.
+Saying that myself was genuinely painful. I wanted to say the truth. That Yui-san's partner isn't you — it's me. But I can't say that. Not yet, not now.
 
-Whether he knew my feelings or not, Kitakami-san narrowed his eyes and smiled faintly.
+Whether he'd noticed how I actually felt or not, Kitagami-san narrowed his eyes and gave a thin smile.
 
-"Is that so? Well, that's fine then. Anyway, do continue getting along well with Yui. Cheers."
+"Is that right? Then that's fine. Well, keep getting along with Yui, going forward too. Take care."
 
-With surprising nonchalance, Kitakami-san left the reception room. All the strength drained from my body, and I slumped limply onto the sofa.
+With almost startling ease, Kitagami-san left the reception room. All the strength drained out of my body, and I sank, boneless, onto the sofa.
 
-Kitakami-san was far more inscrutable than I'd imagined. Yukiyasu-san had called him "a troublesome man" — but after speaking with him, I understood what that meant.
+Kitagami-san turned out to be a far more unreadable person than I'd imagined. Yukiya-san had called him "a real hassle of a guy" — and now, having actually talked to him myself, I understood exactly what that meant.
 
-　He had more than a few quirks. Whether he was a good person or a bad one, I couldn't even tell.
+Layered, complicated. I couldn't even tell whether he's a good person or a bad one.
 
-I felt utterly drained, and until Yui came back, my mind was completely elsewhere.
+Thoroughly drained, I stayed distracted, unfocused, the whole rest of the afternoon until Yui-san came back.
 
 ＊＊＊
 
-"I'm home."
+"I'm back."
 
-The door to the president's office opened just before five o'clock. The moment it slammed shut, I practically threw myself at Yui.
+The president's office door opened just before five. The moment it clicked shut behind her, I threw myself against Yui-san, half-colliding.
 
-"Whoa—"
+"Wa—!"
 
-Yui-san staggered slightly, but steadied me firmly with one arm.\
-Truthfully, I was on the verge of tears. But not wanting to trouble her, I desperately held back the welling tears. Holding her tight, tighter still, I breathed in the scent of my beloved Yui-san, and gradually, my feelings began to settle.
+Yui-san stumbled, just slightly, but caught me firmly with one arm regardless.\
+Honestly, I'd felt like crying. But not wanting to trouble her, I fought hard to hold back the tears threatening to spill. Hugging her tight, tight, that beloved scent of Yui-san's reached me, and, slowly, my feelings settled.
 
-"Kanata, what's the matter?"
+"Kanata, what's wrong?"
 
-"...I felt lonely. Hold me properly, more tightly."
+"...I felt lonely. Hold me properly, more."
 
-Saying this in a clingy way, Yui-san placed the paper bag she was holding on my desk and wrapped her arms firmly around me with both hands.\
-Glancing down at the desk, I saw it was a paper bag from the cream puff shop near the station I'd mentioned liking before. Apparently, she'd bought me a souvenir.\
-　She peered at my face with concern, making me smile involuntarily.
+Asking like that, wheedling, Yui-san set the paper bag she'd been carrying down on my desk and wrapped both arms firmly around me.\
+Glancing down at the desk, I recognized the bag — from that cream puff shop near the station I'd once mentioned liking. Apparently, she'd brought back a souvenir.\
+Peering into my face, worried, I couldn't help a small, unbidden smile.
 
-I wrapped my arms around her neck and stood on tiptoe just a little. Then I kissed her, pressing my lips against hers.\
-This was a privilege only I possessed, something Kitakami-san couldn't do.\
-When I pulled away and met her dark eyes, Yui looked momentarily stunned before pulling me closer, her arms tightening around my waist.
+I wound my arms around her neck and rose slightly on my toes. Then I pressed my lips against hers, just a light touch.\
+Something Kitagami-san could never have — a privilege granted only to me.\
+Pulling back, I looked into those black eyes, and Yui-san blinked, blank, for a moment, then pulled my waist in even tighter.
 
-　This time, Yui-san bent down slightly, and our lips met once more. As if teaching me how it should be done, she changed the angle repeatedly, letting our lips touch.
+This time it was Yui-san who bent down slightly, and our lips met again. Like she was teaching me — *this is how it's done* — she kissed me over and over, shifting the angle each time.
 
-After kissing me several times, as if to soothe me, Yui-san looked at me with concern. "Is something wrong?"
+After repeating those soothing kisses for a while, "Did something happen?" Yui-san asked, worried.
 
-"...Kitakami-san came. To see you."
+"...Kitagami-san came. To see you."
 
 "Eh?"
 
-Her perfectly shaped brows drew together, Yui's expression hardening.
+Her well-shaped brows drew together, her expression turning sharp.
 
-"He left a message. He wants to celebrate your birthday. He said, 'Let me know when you're free'."
+"I took a message for you. About your birthday celebration — he said, 'let me know when you're actually free.'"
 
-"...I'll tell Shinji never to come to the company again. I'm sorry for making you feel uncomfortable."
+"...I'll tell Shinji never to come to the company again. Sorry, for making you feel awful."
 
-　She gently stroked my cheek, lowering her eyebrows in sincere apology. So I shook my head from side to side.\
-I'm fine. Compared to all the suffering and effort you've endured until now, this is nothing.\
-The day Yui-san confessed to me, I decided to shoulder both the guilt and the punishment together. I can't afford to whinge over something like this.
+Gently stroking my cheek, Yui-san's brows drooped, genuinely apologetic. So I shook my head, side to side.\
+I'm fine. Compared to everything you've suffered through, everything you've worked for, this is nothing.\
+The day Yui-san confessed to me, I decided — whatever sin, whatever punishment comes with it, I'll carry it together with you. I can't afford to complain over something this small.
 
-"No, I'm fine. More importantly... Yui, do you have plans for your birthday? Kitakami-san said you were busy that day and turned him down."
+"No, I'm fine. More importantly... Yui-san, do you have plans for your birthday? Kitagami-san said you turned him down, saying you were busy that day."
 
-Pouting my lips as I said this, Yui chuckled softly.
+Pouting slightly, I said it, and Yui-san laughed, soft.
 
-"Of course I have plans. My lovely girlfriend was supposed to celebrate with me... Wasn't that right?"
+"Of course I have plans. My cute girlfriend's supposed to be celebrating with me... or am I wrong?"
 
-Just as I thought. I knew she'd say that. Relieved, I broke into a soft smile too.
+Just as I thought. Knowing she'd say that, relief settled in, and I smiled back, easy.
 
-"Yes... absolutely. I'll celebrate you properly."
+"...No, you're not wrong. I'll celebrate with you. A lot."
 
-"Thank you. I'll look forward to it."
+"Thank you. I'm looking forward to it."
 
-Our eyes met and we shared a laugh. "I bought some cream puffs, let's eat them together," Yui-san said, so I smiled and nodded.
+Meeting each other's eyes, we laughed together. "I got cream puffs, let's eat them together," Yui-san said, so I smiled and nodded too.
 
-　That look from Kitakami-san was a little worrying, though — there's no way he'd have noticed. If we just say we're women who are simply good friends, surely there'd be no room for further suspicion.
+That look in Kitagami-san's eyes had left me a little uneasy — but there's no way he could have actually figured it out. We're two women, close friends, nothing more — if that's how it looks, surely there's no room left for suspicion beyond that.
 
-I'd better forget that unpleasant memory quickly and start thinking about plans for celebrating Yui-san's birthday next month.\
-With that thought in mind, I took a bite of the cream puff.
+Let's forget the unpleasant memory quickly, and start thinking through next month's birthday celebration plans for Yui-san instead.\
+Thinking that, I bit into a cream puff.
