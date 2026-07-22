@@ -1,215 +1,222 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 60
+nav_order: 6
 parent: Second year as a working adult, autumn
 sequence: 81
-title: 'Episode 77: When are you going to make it up to me? Tonight?'
+title: 'Episode Seventy-Seven: When Are You Going to Make It Up to Me? Tonight?'
 ---
-Episode 77: When are you going to make it up to me? Tonight?
+## Episode Seventy-Seven: When Are You Going to Make It Up to Me? Tonight?
 
-Birthdays are that one special day that comes but once a year. On a certain holiday afternoon, with Yui-san's birthday — the tenth of October — just around the corner, I sat alone in a café, my head in my hands.
+\
+A birthday only comes once a year — that special day. On a holiday afternoon, with Yui-san's birthday, October tenth, drawing near, I sat alone at a café, head in my hands.
 
-It was enough to make one sigh. I'd been full of enthusiasm about making Yui-san's birthday — after four long years — the best day ever, but already I'd hit a wall.
+Even I couldn't help but sigh. I'd been so fired up about making this year's birthday — four years overdue — the best one yet, and here I was, already stuck.
 
-　I couldn't decide on a present for Yui. My steps, light when I left home that morning, now felt as though lead weights were attached to them.
+I couldn't settle on a present for Yui-san. My steps had felt so light leaving the house this morning; now they felt weighted down, like lead.
 
-I'd decided from the start that the present would be a necklace.\
-I placed my hand over my own chest. There, the necklace Yui had given me sparkled.\
-Because she gave me this one, Yui hasn't been wearing a necklace lately. That's why I thought I'd give her a new one for her birthday.
+I'd decided from the very start: the present would be a necklace.\
+I pressed a hand to my own chest. There, glinting, was the necklace Yui-san had handed down to me.\
+Since giving it to me, Yui-san hasn't worn a necklace at all lately. So I'd planned to give her a new one for her birthday.
 
-　That was why, on this holiday, I'd come alone by train to buy a present.\
-I'd looked online, of course, but you really can't tell without seeing the actual item.\
-Thinking that, I'd visited several shops since morning, but I just couldn't find anything that seemed quite right for Yui-san's neck.
+With that in mind, I'd come out alone today, riding the train, to buy the present.\
+I'd searched online, of course, but there's only so much you can tell without seeing the real thing.\
+So I'd spent the whole morning making the rounds of shop after shop — but nothing I'd found quite suited Yui-san's chest, somehow.
 
-So now, tired from walking, I'm taking a break in a café.
+Which is how I'd ended up here, worn out from walking, taking a break at this café.
 
-　The summer bonus I received after joining Yui's company was the highest I'd ever been paid.\
-Naturally, I hadn't touched a penny of it. I knew autumn would bring Yui's birthday.\
-There's no such thing as a budget for a present. It doesn't matter how much it costs. More than that, I absolutely refuse to compromise. Because Yui will surely treasure it forever. That's why I want to give her the one thing that suits her best.\
-It's the first present since we became lovers.
+My first summer bonus since joining Yui-san's company had come in at the highest amount I'd ever received.\
+Of course, I hadn't touched a single yen of it. Because I'd known Yui-san's birthday was coming this autumn.\
+There's no budget limit on this present. However much it costs doesn't matter. What I refused to compromise on was something else entirely. Because Yui-san, I'm certain, will treasure it forever. So I want to give her whatever suits her chest best.\
+Our first present since becoming a couple.
 
-　I absolutely would find a wonderful necklace. Just as Yui-san had given to me, I would give to her.
+I'll find a beautiful necklace, no matter what. Just like Yui-san gave me — I'll give her one too.
 
-I gave my cheek a light pat and stood up. There was no point dawdling here.\
-I returned the tray with the teacup to the return counter, steeled myself, and left the café.
+Slapping my cheeks lightly, I stood. No use wasting time here.\
+I returned the tray with my teacup to the counter, steeled myself again, and left the café.
 
-　I didn't want to waste today, a day I'd secured by turning down a holiday date. Truth be told, I hadn't been able to go on a proper date with Yui-san for quite some time. And it seemed she was rather unhappy about it.\
-She still didn't know – though it was only natural – that I'd turned down her invitation to stay over at the weekend, and that I'd been poring over date plans late into the night.
+*
 
-Because when I'm with Yui, I simply can't spare the energy to think about anything else.\
-So I thought I needed to physically distance myself to think things through properly. It's for Yui's sake. That's what I thought, but apparently Yui has been complaining to Ritsu about me turning down dates.
+I didn't want to waste today — a day I'd secured by turning down a weekend date, no less. Honestly, I hadn't managed a proper date with Yui-san in a while. And she seemed, understandably, unhappy about it.\
+Turning down her invitation to stay over this weekend, spending late nights instead poring over date plans — Yui-san, of course, still had no idea about any of that.
 
-　Last night, Ritsu messaged me saying, "Yui's sulking," which made me chuckle a bit.\
-It's a secret that I secretly saved the photo attached to the message – a picture of my dear, beloved girlfriend looking sulky and drunk at a bar.
+Because whenever I'm actually with Yui-san, there's no room left in my head to think about anything else at all.\
+So I'd wanted physical distance, some space to actually plan properly. All for Yui-san's sake, I'd told myself — but apparently, my turning down dates had Yui-san venting to Ritsu-san about it.
 
-When I told Ritsu, "I'm planning her birthday celebration, so could you help me cover it up nicely?", she replied, "Got it," so I reckon it'll probably be fine.
+Last night, a message came from Ritsu-san — "Yui's sulking" — and it made me laugh, just a little.\
+The photo attached, of my beloved girlfriend apparently drunk and pouting at a bar, I secretly saved. That part's a secret.
 
-　I must properly apologise to Yui later.
+I'd told Ritsu-san, "I'm planning a birthday celebration, could you cover for me smoothly?" and gotten back a simple "roger," so I think it's probably fine.
 
-Walking alone through the town as autumn arrives and the air grows gradually chilly, a familiar design suddenly catches my eye. Mesmerised by the shop window, I stop in my tracks.
+I'll need to apologize to Yui-san properly, later.
 
-A four-leaf clover. It's the same design as the earrings Yui gave me on my twentieth birthday.
+Walking alone through streets that had, with autumn, started turning faintly chilly, a familiar design suddenly caught my eye, and I stopped, my gaze snagged by a shop window.
 
-　I looked up at the shop. So, there was a shop here after all.\
-Four springs ago, had Yui-san perhaps come here to buy my earrings?
+A four-leaf clover. The same design as the earrings Yui-san gave me for my twentieth birthday—
 
-As if drawn in, I passed the guard at the entrance and stepped inside the shop.
+I looked up at the shop. Right — so this is where the shop actually was.\
+Four years ago, that spring, had Yui-san maybe come here, of all places, to buy my earrings?
 
-I knew these earrings Yui-san gave me were expensive.\
-But I hadn't known just how much they cost.
+Drawn in as if pulled, I passed the entrance guard and stepped into the store.
 
-　Seeing the price tag on the pair displayed in the showcase, the very same ones adorning my ears, I gasped involuntarily.\
-I knew Yui-san was the type who didn't spare a penny, but I hadn't realised they were this expensive.\
-Ah, I see. That explains why the perceptive Seno-san noticed my boyfriend was wealthy.
+*
 
-And yet, back then, Yui-san was still just a university student...
+I'd known this pair of earrings Yui-san gave me was expensive.\
+But I hadn't known exactly how much.
 
-　As I thought this, I spun around to survey the shop. That’s when I noticed a necklace featuring the same motif as my earrings.\
-The design was identical, but the colour differed. A black clover edged in gold. I pictured it resting upon Yui-san’s chest.
+Seeing the price tag on the same earrings displayed in the case, currently sitting in my own ears, I caught my breath, unbidden.\
+I'd known Yui-san was the type who didn't spare a single yen once she'd decided on something — but I never imagined it had been this expensive.\
+I see. So that's how sharp-eyed Seno-san managed to guess my partner was rich.
 
-It would suit her perfectly, I thought. My feet moved naturally towards that display case, and I peered inside. The more I looked, the more I felt drawn in, unable to tear my gaze away.
+And back then, Yui-san had still only been a college student—
+
+Thinking that, I turned, scanning the shop, and noticed a necklace bearing the same motif as my earrings.\
+Same design, different color. A black clover, rimmed in gold. I imagined it resting at Yui-san's collarbone.
+
+It would suit her — absolutely, I thought. My feet carried me naturally toward that display case, and I leaned in to look. The more I looked, the more my eyes stayed drawn, unable to look away.
 
 "...Would you like to try it on?"
 
-Perhaps because I'd been staring intently, the shop assistant suddenly spoke to me from behind, making me turn around in a fluster. After saying this with a warm smile, the assistant's gaze shifted to my ears.
+Apparently noticing how intently I'd been staring, a staff member spoke up suddenly from behind, and, startled, I turned. She smiled, bright, and then let her gaze drift toward my ears.
 
-"You have mother-of-pearl earrings, don't you? In that case, the matching necklace is over here. I think it would look even more lovely if you coordinated the colour with your earrings."
+"You have the mother-of-pearl earrings, I see. In that case, the matching necklace in that same line is over here. Matching the color with your earrings would look even more lovely, I think."
 
-The shop assistant seemed to be trying to guide me to where the matching necklace was displayed, but I hastily shook my head.
+She seemed ready to guide me toward the necklace matching my own earrings, but I shook my head quickly.
 
-"Ah... um, this isn't for me..."
+"Ah... um, this isn't for me, it's..."
 
-At that, she stopped dead in her tracks and looked me straight in the eye.
+At that, she stopped and looked into my eyes.
 
-"Well... for my partner."
+"...For my partner."
 
-I wasn't entirely without trepidation about how she might react to me saying "a gift for my partner" about what was clearly women's jewellery... but it was the truth. It wasn't something to be ashamed of, so I tentatively said it anyway.
+Saying "this is a gift for my partner," about jewelry clearly designed for women, I'd been a little anxious about how she might react — but it was the truth, nothing to be ashamed of, so, tentative, I said it anyway.
 
-Then, for a moment, the shop assistant's eyes widened, before she calmly replied, "I see. That's lovely." Somehow, just a little bit of the tension left my shoulders.
+The staff member's eyes widened for a beat, then she simply answered, composed, "I see, how lovely" — and something in my shoulders eased, unwound.
 
-"In that case, please do take a closer look."
+"In that case, please, feel free to hold it and take a proper look."
 
-I took it out of the display case and stared intently at the necklace laid out before me. The stone, said to be onyx, was an endless, deep black. Just like Yui-san's eyes.
+Taken out of the display case, the necklace laid before me — I studied it closely. The stone, apparently onyx, was a black so deep it felt bottomless. Just like Yui-san's eyes.
 
-The more I looked, the more certain I became that this was the only one.
+The more I looked, the more certain I became — this, and nothing else.
 
-I glanced at the price tag. Hmm, it's fine. If I spent my entire summer bonus, it wasn't beyond my means.\
-The image of Yui's face when I gave her this necklace flashed before me, and my cheeks relaxed without me realising. She'd definitely be delighted. After all, it matched my earrings.
+I glanced at the price tag. Yes, this would work. Putting my entire summer bonus toward it, it wasn't out of reach.\
+I could already picture Yui-san's face when I gave her this, and my cheeks softened, unbidden. She'll definitely be happy. Because it matches my earrings.
 
 "...I'll take this one."
 
-When I said that, the shop assistant smiled warmly and offered to gift-wrap it for me. I nodded.
+Saying that, the staff member smiled, bright, and said she'd wrap it as a gift, so I nodded.
 
-　Paper bag in hand, I walked to the station in high spirits. All that remained was to arrange the perfect situation to give her this present.
+*
 
-Back in my student days, Yukiyasu-san had arranged a hot spring trip for us, but this year — how about glamping? Summer's over now, so it's just the right season.
+Paper bag in hand, giddy, I walked to the station. All that's left now is arranging the perfect setting to give her this present.
 
-That said, I can't drive, so I'll end up asking Yui-san to drive us there after all...
+Back in college, thanks to Yukiya-san's arrangement, we'd gone on a hot-spring trip. This year — maybe glamping? Summer's passed, and the season's just about right for it.
 
-Since we're making the effort, let's hire a rather nice cottage where we can forget all about work and just enjoy ourselves... Splash out and stay somewhere decent. Some places even have hot springs, you can do barbecues, and we could spend the whole day relaxing in nature.
+Though, since I can't drive, I'd end up relying on Yui-san to drive us there anyway...
 
-Once the present was decided, one idea after another popped into my head. I'd suggest it to Yui-san first thing on Monday. With that thought, I set off for home.
+Since we're at it, why not rent a nice cottage somewhere, one where we could forget all about work entirely and just relax... splurge a little, stay somewhere really nice. Some places apparently even have hot springs, and barbecue too — maybe we could spend a whole day just unwinding out in nature.
+
+Once the present's decided, one idea after another kept coming to me. I'll pitch it to Yui-san first thing Monday. With that plan set, I headed home.
 
 ＊＊＊
 
-Monday morning. Arriving at the office, Yui-san was propped up on her desk, her face clearly sulking.\
-It was the polar opposite of my own elated mood, now that the birthday celebration plans were set.\
-Apparently, not being able to go away for two weekends in a row had really rubbed her up the wrong way. Her dark eyes glared at me, full of resentment.
+Monday morning. Coming into the office, Yui-san sat at her desk, chin propped on one hand, plainly, obviously sulking.\
+The complete opposite of me, giddy over having finally settled the birthday plan.\
+Missing two weekends in a row to stay over apparently hadn't sat well with her at all. Her black eyes gave me a resentful, sidelong glare.
 
-"...So, over the weekend, while you left your girlfriend high and dry, who was Kanata with, and what were you two up to, I wonder..."
+"...I wonder who Kanata ditched her girlfriend for, and what she was up to all weekend..."
 
-Her face practically screamed 'I'm in a foul mood'. I couldn't help but chuckle as I placed my bag on my desk.\
-Ritsu-san had mentioned she was sulking, but honestly, I hadn't expected it to be quite this intense.\
-　Lately, we'd only seen each other at work, and I'd missed spending private time together... but knowing she felt the same way made me happy. Yui-san really is adorable.
+*I'm in a bad mood* practically written across her face. I couldn't help a small laugh, setting my bag down at my own desk.\
+I'd heard from Ritsu-san that she was "sulking," but honestly, I hadn't expected it to be quite this bad.\
+We'd been seeing each other at work these past few weeks, sure, but not getting any private time together had left me lonely too — knowing she'd felt the same made me happy. Yui-san really is so cute.
 
-"Don't sulk like that. I had things to do."
+"Don't sulk like that. I had all kinds of errands to take care of."
 
 "Hmm...?"
 
-"Besides, didn't you go out drinking with Ritsu-san too?"
+"Besides, weren't you out drinking with Ritsu-san too, Yui-san?"
 
-"I had no choice but to drink with Ritsu because Kanata wouldn't come stay over."
+"Since you wouldn't come stay over, I had no choice but to drink with Ritsu."
 
-No choice, huh. And yet it was Yui-san who called Ritsu-san out. Their usual closeness is rather endearing.
+*No choice*, she says. You're the one who called Ritsu-san out, aren't you. Their friendship, as close as ever, always so endearing.
 
-"I'll make it up to you properly. Also, there's something I wanted to discuss with you—"
+"I'll make it up to you properly. Also, there's something I wanted to run by you—"
 
-　I'd bought a magazine at the bookshop featuring autumn glamping, planning to choose a place to stay for my birthday with Yui-san.\
-Just as I reached into my bag to take out the magazine, I was suddenly hugged tightly from behind, startling me and making my hand freeze.
+I'd bought a magazine featuring an autumn glamping special from the bookstore, wanting to pick out a place to stay together for her birthday.\
+Just as I reached into my bag for the magazine, I was suddenly hugged tight from behind, and, startled, my hand froze.
 
-She should have been sitting at her desk just now. When did she get here?
+She'd been sitting at her desk just a moment ago — when had she—
 
 "...Hey, when are you going to make it up to me? Tonight?"
 
-Judging by the tone of Yui-san's voice at my ear, she still seems to be sulking. She's rubbing her head against my neck, which tickles a bit and makes me laugh.
+Judging by the tone of Yui-san's voice at my ear, she's apparently still sulking. Nuzzling insistently against my neck, it tickled a little and I laughed.
 
-"Tonight... it's Monday, isn't it?"
+"Tonight? ...It's Monday, though."
 
-"But I've been put off for two whole weeks already, haven't I? I can't wait until the weekend."
+"But you've had me waiting two whole weeks already. I can't wait until the weekend."
 
-　Can't wait, she says. What exactly does that mean? I almost ask, but bite my lip hard. Better not ask that, absolutely.
+*Can't wait* — what does that mean, exactly? I nearly asked, and bit down on my lip instead. Better not to ask that. Absolutely.
 
-Right now, soothing Yui-san comes first. Thinking that, I turn around, only to have her suddenly pull me close by the waist, closing the distance instantly.\
-Thinking she's about to kiss me, I hurriedly stop her lips with my palm.
+Calming Yui-san down comes first, right now. Thinking that, I turned around, and my waist was pulled close in one motion, the distance closing instantly.\
+About to be kissed, I scrambled to press my palm against her lips, stopping her.
 
-"...Kanata, your hand. It's in the way."
+"...Kanata, hand's in the way."
 
-Yui-san frowned, her perfectly shaped brows knitting together in displeasure as she protested. But no. Talking came before kissing right now.\
-After all, she had an appointment in an hour, and her schedule was packed solid for the entire day. I only had about an hour to talk properly.
+Her fine brows drew together, displeased, protesting. But no. Talking comes before kissing, right now.\
+Because I've got an appointment in an hour, and today's schedule is packed solid, wall to wall. I'll only get about an hour to actually talk properly.
 
-"...It's nearly Yui-san's birthday, isn't it?"
+"...Isn't your birthday coming up soon, Yui-san?"
 
 "Yeah, that's right."
 
-Even as she said that, her mischievous left hand lifted my skirt and stroked my thigh, making my body jump involuntarily.
+Even as she said that, her mischievous left hand hitched up my skirt and traced along my thigh, and my body jolted, startled.
 
-"Yui-san! Are you even listening to me!? This is the office, you know...!?"
+"Yui-san, are you even listening to me!? This is the office...!?"
 
-I scolded her, but Yui-san just narrowed her eyes, her hand moving steadily higher.
+I said it, scolding, but Yui-san just narrowed her eyes, and her hand kept climbing, higher and higher.
 
-"If tonight's no good, then now is fine. No?"
+"If tonight's no good, right now works too. Not allowed?"
 
-"Of course it's no good!"
+"O-of course it's not allowed!"
 
-My heart pounded as if it might burst, completely ignored by Yui-san who kept pushing forward relentlessly.\
-Her fingertips finally reached my waist. Startled, I looked at Yui-san. The moment I met her eyes, I realised – oh, she's serious. If she pushes through like this, it'll be trouble.
+Pushed forward relentlessly, with zero regard for my own opinion, my heart pounded, wild, like it might break.\
+Her fingertips finally reached my waist, and, startled, I looked at Yui-san. The instant I met her eyes — ah, she's serious, I realized. Getting pushed through on this would be genuinely bad.
 
-"What if someone comes in...!?"
+"What if someone comes in!?"
 
-"As long as you stifle your voice, Kanata, it'll be fine."
+"If you hold back your voice, it'll be fine."
 
-I wanted to retort that she'd said before she wanted to keep work and private life separate, yet what she said and what she did were completely different.\
-Impossible, absolutely impossible. It might be fine for Yui-san since she's the one doing it, but if I were to be done like that now, I'd be useless for the rest of the day.
+*Didn't you say you wanted to keep work and personal life separate* — the words you say and the things you do are completely different, I wanted to point out.\
+Impossible, absolutely impossible. Maybe it's fine for Yui-san, since she's the one doing the touching, but if she actually did something like that to me right now, I'd be useless for the rest of the day.
 
-"Hey, Yui-san... I'll make it up to you loads on your birthday, won't that do? If you just hold back now, I'll do anything you say on your birthday...!"
+"Hey, Yui-san... I'll make it up to you plenty on your birthday, isn't that enough? If you hold back now, I'll do whatever you ask on your birthday...!"
 
-Desperately trying to placate her, I blurted out those words, and her hand stopped dead.
+Grasping at anything, desperate, I said it, and her hand went perfectly still.
 
 "Really?"
 
-Nodding vigorously, her dark eyes fixed on me intently, then she smiled brightly.\
-Her hand slipped out from beneath my skirt, which she'd pulled up smoothly, and I breathed a sigh of relief.
+I nodded, quick, over and over, and those black eyes studied me steadily, then she smiled, bright.\
+Her palm slid smoothly back out from under my hitched-up skirt, and I let out a breath of relief.
 
-"All right. In that case... I'll hold off for now."
+"Got it. Then... I'll hold back, for now."
 
-　Somehow, I felt like I'd made a terribly rash promise just to get through the moment. Would it be alright? I felt a little uneasy.\
-But... knowing the immediate crisis had passed, I took the magazine I'd bought out of my bag to achieve my goal.
+I have a feeling I just made some kind of reckless, desperate promise, but is it really okay? A small anxiety crept in.\
+But — grateful, at least, for having escaped the crisis, I pulled the magazine I'd bought out of my bag to accomplish my actual goal.
 
-"Yui-san, so, it's your birthday... I was wondering if glamping might be nice?"
+"Yui-san, so, about your birthday... what do you think about glamping?"
 
 "Glamping?"
 
-Yui-san's eyes widened as she looked down at the magazine I was holding.
+Yui-san's eyes went round, and dropped to the magazine in my hands.
 
-"It would mean asking you to drive, but I thought we could relax together. What do you say...?"
+"You'd have to drive us, but... I thought it might be nice, to relax together, slowly. What do you think...?"
 
-When I finished, Yui smiled happily, gave a soft chuckle, and pulled me close.
+Once I'd finished saying that, Yui-san laughed, soft and happy, and pulled my body into an embrace.
 
-"...Thank you, Kanata. I'm really happy. It's alright, leave the driving to me."
+"...Thanks, Kanata. I'm really happy. Don't worry, leave the driving to me."
 
-I'd missed staying at Yui's place these past two weeks just as much as she had.\
-　But because I made her wait so long, I was able to choose a wonderful present. I'll make sure her birthday is a day she'll never forget.
+Missing two weeks of staying at Yui-san's place had left me lonely too, just as much as her.\
+But because I'd made her wait so long, I got to pick out a truly wonderful present. I'm determined to make this birthday one she'll never forget.
 
-My beloved, beloved girlfriend, who seemed to have finally cheered up, gently stroked my cheek and brought her lips closer.\
-As I accepted the kiss, I wrapped my arms tightly around her neck and hugged her back, holding her close, so very close.
+Finally, apparently, in a better mood, my beloved, beloved girlfriend gently stroked my cheek and leaned in close.\
+Accepting her kiss, I wrapped my arms tight around her neck, and hugged her back, just as tight, in return.

@@ -1,205 +1,206 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 80
+nav_order: 8
 parent: Second year as a working adult, autumn
 sequence: 83
-title: "Episode 79: I'll Spend My Whole Life Making It Happen"
+title: "Episode Seventy-Nine: I'll Spend My Whole Life Making It Come True"
 ---
-Episode 79: I'll Spend My Whole Life Making It Happen
+## Episode Seventy-Nine: I'll Spend My Whole Life Making It Come True
 
-If asked which season I loved most out of the four, the old me would have answered "summer" without hesitation. It was for childish reasons — the long holidays, the excitement of countless events packed into the calendar. But now that I'm grown, I'd say autumn is my favourite.
+\
+If you'd asked me, before now, which season I loved most out of the four, I would have said "summer" without hesitation. Nothing more than childish reasons — long breaks, one exciting event after another. But now, as an adult, I'd answer differently: autumn is my favorite.
 
-Because autumn is the season you were born in — the person I cherish most in the whole world.
+Because autumn is the season you were born in — you, the person I love most in the entire world.
 
-　Lying in the hammock on the wooden deck, feeling the autumn breeze caress my skin and the rustle of leaves, I glanced over at my lover in the hammock beside me. Through the parting of her long black hair, I could see the outline of her beautifully shaped ear, where a silver earring sparkled, reflecting the orange glow of the setting sun.
+Lying in one of the hammocks lined up along the wood deck, feeling the autumn breeze brush my skin and the leaves rustling overhead, I glanced over at my girlfriend in the hammock right beside me. Through the gap in her long black hair, the shapely curve of her ear peeked out, a silver earring catching the orange evening light, glinting.
 
-　In fleeting moments, I sometimes think: Yui really did become my lover. Right now, everything about this person is mine alone. When I think that, a warm glow spreads deep within my chest.\
-It was none other than Yui who taught me this feeling has a proper name, and that it's called 'affection'.
+There are moments, out of nowhere, when it hits me all over again. Yui-san really did become my girlfriend. Right now, every bit of her belongs only to me. Thinking that, something deep in my chest warms, slow.\
+This feeling has a proper name — "love" — and it was Yui-san herself, no one else, who taught me that.
 
-"Karuizawa is a lovely place, isn't it?"
+"Karuizawa really is a nice place."
 
-　Yui-san said, gazing up at the sky with deep feeling, so I agreed, "Yes, it is." It's cool, the breeze feels wonderful, and I could stay here forever.
+Looking up at the sky, savoring it, Yui-san said that, and I agreed too — "it really is." Cool, the breeze pleasant, I could stay here forever.
 
-"I'd like to come every year. Maybe we should just buy a holiday home. What do you think, Kanata?"
+"I want to come every year. Might as well just buy a vacation home. Kanata, what do you think?"
 
-Looking at me beside her, Yui-san smiled brightly. "A holiday home"... I, possessing only the financial sense of an ordinary person, stared in surprise.\
-　Just how much do you earn, Yui-san? – I started to say, but stopped myself. Even if she's my girlfriend, asking that feels like breaking the rules. Though it did cross my mind, that's true.
+Turning to look at me, Yui-san grinned. "A vacation home" — I, with only an ordinary person's sense of money, widened my eyes, startled.\
+*Yui-san, exactly how much do you even make* — I nearly asked, and stopped myself. Even between partners, that felt like a question against the rules. Though I admit, I was a little curious.
 
-"In all my life, I've never even considered owning a holiday home..."
+"I've never once, in my whole life, even considered owning a vacation home..."
 
-The Aosawa family moved around a lot for work, always living in rented flats. The idea of buying a house had never even occurred to me.\
-　But I absolutely adore that single-storey house she owns. Once everything’s settled, I want us to live together there again. It holds more meaning to me than any home I’ve ever lived in.
+The Aozawa family always moved for my father's transfers, drifting from one rented apartment to another, so the idea of buying a house had simply never occurred to me at all.\
+But I love that single-story house Yui-san owns. Once everything's settled, I want to live there with her again. It's a home I feel more attached to than any other place I've ever lived — enough to think that.
 
-"Once work settles down, let’s take a long holiday together. Just the two of us. A trip would be nice."
+"Once work settles down, let's take a long vacation together, relax properly. A trip would be nice too."
 
-Once work settles down, huh. Meaning after this quarter’s accounts are finalised, I suppose. If we push through until March, our relationship will finally be out in the open.
+Once work settles down, huh. Meaning, once this fiscal year's results close out. Hold out until March, and our relationship can finally become something public.\
+I haven't told Yui-san yet, but I've been thinking — I need to tell my family too. Maybe when I go home to London over the New Year, I need to tell them that I'm in love with a woman, and that I want to spend my life with her.
 
-I haven't told Yui yet, but I too felt I had to tell my family. I thought I'd have to tell them when I went back to London over New Year – that I'm in love with a woman, and that I want to be with her.
+That felt, to me, like the only proper way to honor Yui-san, who's staked so much of her life loving me this far.
 
-That felt like the right thing to do for Yui, who has devoted her life to loving me this far.
+My father and mother — I think they'll accept it. My father's like a golden retriever, always smiling, doting on his kids.\
+My mother, who adores that father of mine, is gentle and easygoing, and I think she'd wish for my happiness above everything else.\
+But Kaname — I wonder about him. He'd probably make a huge fuss, demanding to meet whoever it is. He's surprisingly attached to his big sister.\
+I have no plans yet to reveal that the person is Yui-san... but my father would definitely be shocked.
 
-　My mum and dad — I think they’d accept me. My dad’s like a golden retriever, always smiling and doting on his kids.\
-My mum, who adores my dad, is incredibly gentle and I know she’d wish for my happiness above all else.\
-　But what about Kaname? He'd probably make a huge fuss, demanding I bring the person home. He's surprisingly attached to his big sister.\
-I don't plan to reveal that person is Yui just yet... but Dad would definitely be shocked.
+Even if we can't marry, I'm this happy already. Because you're here beside me, right now.
 
-Even if we can't marry, I'm this happy. Because you're here beside me now.
+"I hope you can get time off. Together."
 
-"I hope we can get time off. The two of us."
+"It'll be fine. I'm not going to stay at this company forever anyway — being this busy is only temporary."
 
-"It'll be fine. I won't be at this company forever anyway. It's only busy for now."
+"Eh, really?"
 
-"Eh? Really?"
+"Yeah. Subsidiary presidents usually rotate out somewhere between three and five years. If it's okay with you, Kanata, I'd like you to come with me whenever I move on... but if you want to stay at the current company, that's fine too. You can decide when the time comes. There's no guarantee I'll be president again next time, either."
 
-"Yes. The president of a subsidiary usually changes every three to five years or so. If Kanata's willing, I'd like you to come with me when I move... but if you want to stay at your current company, that's fine too. You can think about it then. It's not certain I'll be president again next time."
+"I see... so that's how it works, with companies..."
 
-"Huh... So that's how companies work..."
+I'd just assumed Yui-san would stay president of this company forever. Apparently the world doesn't work quite that simply. But she's eventually meant to become president of the Holdings company anyway, so I suppose that makes sense too.
 
-I'd assumed Yui-san would be president of her current company forever. Apparently, that's not how the world works. But then again, she's supposed to become president of the holding company eventually, so I suppose that makes sense.
+"Besides, it'd be such a waste, spending all my time on work. ...No one knows when they might die. That's exactly why I want to treasure the time we get to spend together. I'll always make time for it, however much it takes."
 
-"Besides, it'd be a waste to just work all the time. ...Nobody knows when they'll die. That's why I want to treasure the time we can spend together. I'll make as much time as it takes."
+Yui-san said it, looking straight into my eyes. Maybe... she's thinking of her mother. That's what I thought.
 
-Yui-san gazed intently into my eyes as she said this. Probably... she was thinking about her mother. That's what I thought.
+"...Whatever you want to do, Kanata, I'll spend my whole life making it come true."
 
-"...Whatever Kanata wants to do, I'll spend my whole life making it happen for you."
+Saying that, Yui-san smiled, gentle. My chest tightened, squeezed with fondness.\
+Please, even in the very last moment of my life, I want you beside me. I want you holding this hand. However many years pass, however many decades, this feeling will never change.
 
-Yui-san said that and smiled gently. My heart tightened with such tenderness.\
-Please, when my life ends, I want you beside me. I want you holding my hand. No matter how many years pass, no matter how many decades pass, this feeling will never change.
+As long as we live in Japan, we can't marry. I know that. I'd only just thought, a moment ago, that I could be happy even without marriage.
 
-　Living in Japan, we cannot marry. I know that. Just moments ago, I thought I could be happy without marriage.
+And yet.
 
-But still.
+I still want to marry you. Yui-san. That's what I found myself thinking, even so.
 
-I want to marry. Yui. That's what I found myself thinking.
+I want you to swear your love to me, and only me, before God. Swear that you'll never love anyone else again. That you'll go on loving only me, for the rest of your life. Swear it, properly.
 
-I want you to swear your love to me alone before God. To swear you'll never love another. That you'll love only me for the rest of your life. Swear it properly.
-
-　Why did this suddenly occur to me? I knew from the start we couldn't marry.\
-Even though I love her this much, why can't we? Why can't we marry? We wouldn't trouble anyone. I just love her, love her, love her so much I can't bear it, and I just want to live with her.
+Why did this thought suddenly hit me now, out of nowhere? I'd known from the very start that marriage was impossible for us.\
+Loving her this much, so why can't we? Why can't we marry? I'm not causing anyone any trouble. I just love her, love her, love her so much I can't bear it, and I just want to live my life together with her—
 
 "Hey, Yui-san."
 
-"Hmm?"
+"Mm?"
 
 "...I love you."
 
-　Whispering those words with every ounce of feeling I had, Yui-san smiled with such profound happiness, reached out to my cheek, and stroked it gently.
+Pouring every bit of feeling I had into that word, Yui-san smiled, genuinely, wholeheartedly happy, and reached out to gently stroke my cheek.
 
-It seems humans just get greedier and greedier. I still couldn't bring myself to say something so embarrassing as wanting her to swear eternal love.
+People really do just keep getting greedier, it seems. Asking her to swear eternal love — I don't think I could ever actually say something that embarrassing out loud, not yet.
 
-But someday, I want to see Yui-san in a wedding dress. That's what I thought.
+But someday, I want to see Yui-san in a wedding dress. That's what I found myself thinking.
 
 ＊＊＊
 
-Just as the internet reviews promised, the barbecue prepared for us was superb. The thick cuts of meat grilled outdoors were so delicious they made your cheeks drop, and there was such a variety of vegetables that the two of us couldn't possibly finish it all.\
-By the time we'd eaten our fill and rested a little, it had grown completely dark. Before we knew it, orange lamps had been lit, softly illuminating the surroundings.
+Just as the online reviews had promised, the prepared barbecue was fantastic. The thick cuts of meat, grilled on the outdoor grill, were delicious enough to make my cheeks fall off, and there was such a wide variety of vegetables that the two of us couldn't finish it all.\
+Full, and after a short rest, it had gone completely dark, and by the time I noticed, the orange lamps had already come on, casting a soft glow all around.
 
-　Checking my phone as if suddenly remembering, I saw it was nearly time for our reserved bath.
+Remembering, I checked the time on my phone, and it was nearly time for our reserved bath slot.
 
-"Yui-san, shall we head to the bath now?"
+"Yui-san, we should head to the bath soon."
 
-"Yeah, let's go. I'm looking forward to having it all to ourselves."
+"Yeah, let's go. Looking forward to having it to ourselves."
 
-Peering at my face, she said it teasingly, so I quickly looked away, hoping she wouldn't notice my flushed cheeks.
+Peering into my face, saying it with a mischievous edge, I turned my face away quickly, hoping she wouldn't notice my flushed cheeks.
 
-"It's special today, you know. It's your birthday celebration..."
+"Today's special, you know. Because it's your birthday celebration, Yui-san..."
 
-"Yeah, I know. Thanks for indulging me."
+"Yeah, I know. Thanks for indulging my selfish request."
 
-Back in the dome tent, I packed my change of clothes into the tote bag and got ready. Then, holding hands with Yui-san, we walked along the path to the hot spring facility.\
-At the entrance, we collected the key and headed towards the changing room. I'd heard it was an open-air bath, but the light in the changing room was still a bit bright, making me hesitate to undress.
+Back at the dome tent, packing a change of clothes into a tote bag, we walked hand in hand to the hot spring facility.\
+Collecting the key at the entrance, we headed for the changing room. I'd heard it was an open-air bath, but the changing room lighting was still fairly bright, and I hesitated over undressing.
 
-　Even though she'd held me countless times before and was probably used to seeing me naked, I still felt nervous.
+I've already been held by her so many times, and she must be well used to seeing me undressed by now — and yet, even so, I still get nervous.
 
-Yui gathered her long black hair and slipped off the shirt she'd been wearing without hesitation. I couldn't quite pluck up the courage, fidgeting as I fiddled with the buttons of my blouse. Yui, now in her underwear, noticed my hesitation and giggled softly.
+Yui-san gathered up her long black hair and, without hesitation, took off the shirt she'd been wearing. Fumbling with my blouse buttons, still hesitating, still shy, Yui-san, already down to her underwear, noticed and laughed, soft.
 
-"What's the matter? Can't you undress yourself?"
+"What's wrong? Can't undress yourself?"
 
-"N-no, that's not it!"
+"Th-that's not it."
 
-Then, suddenly, Yui-san's long, white fingers reached out and touched the buttons of my blouse.
+Then, suddenly, Yui-san's pale, long fingers reached out and touched my blouse's buttons.
 
-"I'll undress you."
+"I'll take it off for you."
 
-"Eh... w-wait a moment!"
+"Eh... w-wait a second."
 
-Wait, I'm not mentally prepared yet. I tried to stop her hand as she moved to undress me, looking up at Yui-san in a panic.\
-　Then — I saw a mischievous glint in those gentle eyes, like the sea at night, and realised she was teasing me. My cheeks flushed bright red.
+Wait, I'm not ready yet. I caught the hand reaching for my clothes and looked up at her, flustered.\
+Then — I saw it, that eye, gentle as the nighttime sea, holding a mischievous glint, and understood: I was being teased. My cheeks flushed hot.
 
-"I-I can take it off myself, I tell you!... Yui-san, turn away."
+"I-I can undress myself, thank you...! Yui-san, look the other way."
 
-Desperately blurting that out, Yui-san laughed and looked away from me with a resigned sigh. One moment she's teasing, the next she's kind — Yui-san really is impossible to figure out.\
-Thanks to that, I'm always being led around by her, my heart pounding so loudly it won't stop.
+Forcing that out, desperate, Yui-san laughed, and turned her gaze away — *fine, fine.* Mischievous one moment, gentle the next — I really can't figure Yui-san out.\
+Which is exactly why I'm always the one getting swept along, my heart pounding, loud, unable to settle.
 
-As requested, she didn't look at me in the bright light, and I was relieved she kept her eyes averted until we got into the hot spring.
+True to my request not to look while it was bright, Yui-san kept her eyes averted until we were both in the water, and I felt relieved.
 
-　Once I was submerged up to my shoulders in the warm water, Yui-san hugged me tightly from behind. Her smooth skin touched mine, and finally, my tense, stiff body felt like it could relax.
+Sinking into the warm water up to my shoulders, Yui-san hugged me tight from behind. Smooth skin touching, and finally, the tension that had been coiled tight in my body eased, relaxed.
 
-"...You really don't need to be so shy. Kanata, you're truly lovely."
+"...You don't have to be this shy. You're really cute, Kanata, you know."
 
-"I'm not as well-proportioned as you, Yui-san, so being seen naked in bright light is embarrassing for me."
+"I don't have a figure like yours, Yui-san, so being seen naked in a bright place is embarrassing."
 
-Unlike Yui, I'm not particularly tall, and my chest and figure are just average. It's embarrassing to be stared at like that in bright light.
+Unlike her, I'm not especially tall, and my chest and body are entirely ordinary — being studied closely, in the light, is embarrassing.
 
-"Not at all. You're absolutely beautiful. Remember when we went to Hakone and bathed together? I thought it back then. Your skin is so smooth and lovely. It makes me want to hold you close forever."
+"That's not true. You're beautiful. Remember when we went to Hakone, and bathed together? I've thought it ever since then. Your skin's so smooth, feels so good. Makes me want to keep holding you forever."
 
-She whispered this softly in my ear, and I pouted in annoyance.
+Whispered gently at my ear, I pouted, lips pursed.
 
-"That... who are you comparing me to?"
+"That... who are you comparing me to, when you say that?"
 
-Unlike me, Yui-san has plenty of "comparisons" to draw from, which is annoying. When I pointed this out, Yui-san just laughed and shook her head.
+Unlike me, Yui-san has plenty of "comparisons" to draw from, and it wasn't fun to think about. Pointing that out, Yui-san laughed and shook her head.
 
 "I'm not comparing you to anyone."
 
-Really? Taking her left hand, which had slipped around my waist, I traced the tip of her neatly filed, pale brown nails.
+I wonder if that's really true. Taking the left hand wrapped around my stomach, I traced the smooth, rounded fingertips, done in a pale brown polish.
 
-　When I first trimmed my own nails for tonight, I kept remembering Yui-san's nails. Since we started dating, Yui-san's nails have grown short again, like they were in university. Back then, those nails were kept neat for countless girls.\
-But now — Yui-san always keeps her nails trimmed, just for me.
+The first time I ever bothered to do my own nails, in preparation for tonight, I kept thinking, over and over, of Yui-san's nails.\
+Since we started dating, Yui-san's nails have stayed short, same as back in college. Back then, those nails had been kept smooth for the sake of any number of unspecified girls.\
+But now — Yui-san keeps them smooth only for my sake, always.
 
-I remembered how, when I filed my own nails, that fact made me feel a strange mix of happiness and embarrassment.
+Filing my own nails, I remembered feeling something indescribable, caught somewhere between happiness and embarrassment, over that fact.
 
-　I love these long fingers of yours, so well-groomed, not a single hangnail. Unable to resist, I kissed her left hand, and Yui's lips gently brushed my neck.
+Not a single rough edge, so carefully maintained, these long fingers of yours — I love them. Unable to help it, I pressed a kiss to the fingers of that left hand, and Yui-san's lips touched, gentle, against my neck.
 
 "Kanata."
 
-Hearing my name, I turned just my face, and her lips gently pressed against mine. Her hand, clasping mine tightly, felt hot. When our lips parted, her feverish eyes peered into mine.
+Called by name, I turned just my face, and our lips met, gentle. The hand gripping mine, tight, felt hot. Pulling apart, heated eyes searched mine.
 
-"When you do things like that... I can't help but think you're inviting me. Is it alright to do it here?"
+"Doing something like that... I can't help but read it as an invitation. Is it okay, here?"
 
 "Eh?"
 
-I was startled by such a sudden remark. I was merely playing with Yui-san's fingers.
+Caught off guard by such a sudden question, I froze. I'd only been playing with her fingers.
 
-"I didn't mean to..."
+"I didn't mean it like that..."
 
-I hurriedly stopped the hand creeping up my thigh. Yui-san furrowed her brow deeply and sighed softly.
+The hand crawling along my thigh, I scrambled to stop. Yui-san's brows drew together, tight, and she let out a small sigh.
 
-"...Kanata. You really need to do something about that unconscious habit of yours... My rationality just can't hold out."
+"...Kanata. That habit of doing things like that without realizing it, seriously, please, do something about it. My restraint can't take it."
 
-"W-What, it's my fault? It's because you're always thinking lewd thoughts, isn't it?"
+"I-is that my fault? You're the one always thinking dirty thoughts, Yui-san."
 
-"But it can't be helped, can it? It's only natural to want to do it when you like someone, right? Is it different for you, Kanata? You don't want to do it with me?"
+"Can't be helped, though. I love you, so of course I'd want to. Don't you feel the same, Kanata? Don't you want to, with me?"
 
-She stared straight into my eyes as she said that, so I couldn't help but look away. When someone says something so directly, I never know what to say.
+Looking straight into my eyes, saying that, my gaze went wandering, unbidden. Said that directly, I don't know how to answer.
 
-"It's not that... But here... it's no good..."
+"That's not it... but, not here, this isn't right..."
 
-My voice grew fainter and fainter. If I let her push me around here, my plan would be ruined.\
-After the bath, I'd booked a bar. I'd planned to drink there. Because I probably couldn't... well, I couldn't just push Yui-san down without a drink, I thought.
+My voice kept getting smaller and smaller. If I got swept along right here, my whole plan would fall apart.\
+Once we're out of the bath, I've booked the bar. I'd planned on drinking there. Because I don't think I could — push Yui-san down, without a little alcohol in me first.
 
-Yui-san's dark eyes fixed on me as I stammered.
+Stammering, flustered, Yui-san's black eyes studied me steady.
 
-"Then... would the bed be alright?"
+"Then... the bed's okay?"
 
-Her voice was gentle, almost indulgent. I bowed my head and nodded. Yui chuckled softly.
+Her voice, gentle, coaxing, reached me. I ducked my head and nodded, small, and Yui-san laughed, soft.
 
-"You're being mean, Yui. Why are you laughing..."
+"You're so mean, Yui-san. Why are you laughing..."
 
-Feeling embarrassed and sulky, I muttered that. Then, Yui pulled me close, wrapping her arms tightly around my body.
+Embarrassed, sulking, I said it, and Yui-san pulled my body into a tight embrace, facing me properly.
 
-"Sorry, sorry. I just can't help how much I adore you. I'll be good, I promise."
+"Sorry, sorry. You're just too precious for your own good. I'll hold back properly, promise."
 
-Her warm body pressed against mine felt so comforting I closed my eyes. My heart still pounded wildly.
+Pressed close together, warm and comfortable, I closed my eyes. My heart stayed pounding, fast, the whole time.
 
-Will I be alright? Can I really... hold out until nightfall? Suddenly, my confidence faltered. Thinking this, I wrapped my arms around her white back and hugged her back.
+Will I really be okay? Will I actually make it until tonight? My confidence suddenly wavered. Thinking that, I wrapped my own arms around her pale back too, and hugged her back, tight.

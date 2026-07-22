@@ -1,217 +1,224 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 110
+nav_order: 11
 parent: Second year as a working adult, autumn
 sequence: 86
-title: "Episode 82: I'm Not Aware of Being Jealous"
+title: "Episode Eighty-Two: Don't Blame Me If She Gets Jealous"
 ---
-Episode 82: I'm Not Aware of Being Jealous
+## Episode Eighty-Two: Don't Blame Me If She Gets Jealous
 
-On a certain day in November, the wind had grown thoroughly cold, whipping through the fallen leaves of the street trees.\
-I was sitting across from Mitsuya-san in a private room at an izakaya during its lunch service.
+\
+An early-November day, when the wind had turned properly cold, sweeping fallen leaves along with it as it cut through the streets.
+I was sitting in a private room at an izakaya during its lunch service, across the table from Mitsuya-san.
 
-The reason we found ourselves in this situation was that — this morning, out of the blue — Mitsuya-san had invited me to lunch. It was the first time since I’d become Yui-san's secretary.
+Why I'd ended up in this situation — Mitsuya-san had suddenly invited me to lunch that morning, out of nowhere. The first time since I'd become secretary.
 
-　When I asked Yui-san if it was alright to go, she said, "Of course it is," so I left the president's office at twelve sharp, carrying only my purse.
+I'd checked with Yui-san whether it was okay to go, and she'd said "of course, go ahead," so I left the president's office at exactly noon with nothing but my wallet.
 
-That was already several tens of minutes ago.
+That had been several dozen minutes ago now.
 
-And yet, it was Mitsuya-san who had invited me.
+Mitsuya-san had been the one to invite me, and yet.
 
-After solemnly and silently polishing off her pork cutlet set meal, even after finishing, Mitsuya-san remained completely silent.
+Having polished off her pork loin cutlet set with a solemn, brooding expression, she'd stayed silent, ever since, even after finishing.
 
-　I'd never seen her like this before, and honestly, I was a bit flustered. She lowered her slanted eyes, looking troubled, and sighed deeply. Then, she started picking up each shred of the free-refill cabbage with her chopsticks and putting it into her mouth, one by one.
+I'd never seen her like this before, and honestly, it left me a little at a loss. Her narrow eyes, lowered, weighed with something, letting out a deep sigh, and then, picking up the free-refill shredded cabbage one strand at a time with her chopsticks, she just kept eating it, methodically.
 
-　This... Perhaps I should be the one to start the conversation? Or is she waiting to be asked?
+Maybe I should be the one to bring it up. Or is she waiting to be asked?
 
-Not to boast, but I'm certainly not the most skilled listener. But Mitsuya-san right now was simply... simply too much.\
-This was getting nowhere. Reluctantly, as if testing the waters, I opened my mouth.
+Not to brag, but I'm not exactly skilled at drawing people out. But Mitsuya-san right now was just... too much, even for me.\
+This wasn't going anywhere on its own. Reluctant, testing the waters, I opened my mouth.
 
-"Um, Mitsuya-san. Did you invite me out today because something happened...?"
+"Um, Mitsuya-san. Did something happen today, and that's why you invited me...?"
 
-At that question, Mitsuya-san suddenly looked up, her eyes wide with surprise.
+Asked that, Mitsuya-san's face snapped up, startled, looking at me.
 
-"Eh? How did you know...?"
+"Eh, how'd you know...?"
 
-No, no, no, it would be strange if I didn't know, I started to say, but I clamped my mouth shut. Because Mitsuya-san isn't usually this quiet, is she?\
-　She's straightforward, cheerful, quick to move on — she shouldn't be the type to dwell on things.
+*No, no, no, of course I'd know* — I bit back the words before they could spill out. Because Mitsuya-san's normally not the reserved type at all.\
+Clean, bright, quick to bounce back — never someone who broods over things, as far as I've ever seen.
 
-What on earth could be troubling her this much?
+What could possibly be troubling her this much?
 
-"Um, if you'd like, I'm happy to listen."
+"Um, if it's okay, I'll listen, if you want to talk."
 
-She lowered her eyebrows apologetically, set down her chopsticks, and cleared her throat softly.
+She lowered her brows, apologetic, and set down her chopsticks. Then, clearing her throat once, small.
 
-"...Aosawa-chan, sorry. Would it be alright if I had a cigarette?"
+"...Aozawa-chan, sorry. Mind if I smoke one?"
 
-White smoke curled and drifted upwards from the lit end of the cigarette towards the ceiling. With a click, she closed the silver lighter's lid. Mitsuya-san closed her eyes and exhaled a deep, deep breath of white smoke, as if sighing.\
-Still holding the cigarette in her mouth, she crumpled the box and shoved it into her jacket pocket. Then, once more, she looked straight at me with those sharp, slanted eyes.
+*
 
-"...Is smoking actually enjoyable?"
+White smoke rose, wavering, toward the ceiling from the lit end of her cigarette. With a small click, she snapped the silver lighter shut, closed her eyes, and let out a deep, deep breath of white smoke, almost like a sigh itself.\
+Cigarette still between her lips, she crumpled the pack and shoved it into her jacket pocket, then looked back at me, straight, with those sharp, narrow eyes once more.
 
-The question, one I needn't have asked, slipped out.\
-Because just moments ago, she'd seemed anxious, yet the instant she took that drag, her expression softened slightly.
+"...Is it good? Smoking?"
 
-"...It's not about enjoyment. It's beyond that. Honestly, I couldn't manage without it. I couldn't live. Even if a pack cost over a thousand yen, I'd keep smoking."
+A question I didn't even need to ask slipped out of me, unbidden.\
+Because just a moment ago she'd looked so anxious, and the instant she lit that cigarette, something in her expression had visibly relaxed.
 
-Hearing her say it so earnestly, I couldn't help but laugh. Over a thousand yen, huh.\
-I've never felt the urge to smoke myself, but I do feel sorry for smokers, always having to squeeze it in wherever they can. I mean, Mitsuya-san, you even bring an umbrella on days when it's pouring down to go up to the roof for a smoke.
+"...It's beyond a question of 'good' at this point. I genuinely can't function without it anymore. I'd probably keep smoking even if a pack cost over a thousand yen."
+
+Said that seriously, I couldn't help a small laugh. Over a thousand yen, huh.\
+I've never once wanted to smoke myself, but I do think smokers have it rough these days, poor things. Because Mitsuya-san brings her own umbrella even in a downpour, just to go smoke on the roof.
 
 "So, what happened?"
 
-I asked, taking a sip of the iced tea I'd ordered after the meal. Mitsuya-san looked a bit hesitant.
+Sipping the iced tea I'd ordered after the meal, I asked, and Mitsuya-san's face turned faintly awkward.
 
-"Well, no, nothing really happened. I just wanted to ask something. Aosawa-chan's boyfriend... he's rich, right?"
+"Mm, no, it's not that anything happened, exactly. There's just something I wanted to ask. Aozawa-chan's partner — rich, right?"
 
 "Eh?"
 
-Why does she know that? I racked my brains, trying to recall. Come to think of it, we did talk about it at the beer garden we went to celebrate the new business' success.
+How does she know that, I dug back through memory. Right — I think I'd mentioned it at the beer garden, celebrating the new store's success.
 
-"Um, yes. ...Yes."
+"Um, yeah. ...That's right."
 
-　As she said, Yui-san is wealthy. And not just a little bit wealthy. That much is true, and there’s no need to deny it, so I nodded honestly.\
-But why was she asking?
+Just as she'd asked, Yui-san is rich. And not just a little rich, either. That's simply true, nothing to deny, so I nodded, honest.\
+But why is she asking me this?
 
-"I see. ...What sort of person is Aosawa-chan’s boyfriend?"
+"I see. ...What kind of person is Aozawa-chan's partner?"
 
-Her piercingly intense gaze. That look seemed to be searching for some answer within this question. For some reason, it felt like she was looking at someone else, not me.\
-　What sort of person, you ask. I fold my arms, picturing my beloved lover's face as I ponder.
+Her eyes, sharp enough to pierce straight through. That gaze seemed to be searching for something else entirely, buried within this question. For some reason, it felt like she was looking at someone other than me.\
+What kind of person, huh. Arms crossed, I pictured my beloved girlfriend's face, thinking it over.
 
-I recall Hayakawa-kun asking me the same thing long ago. Back then, I'm sure I described Yui-san as "incredibly kind, but a bit sly."\
-The impression I have of Yui-san now has changed slightly from how I saw her back then.
+Long ago, Hayakawa-kun had asked me the same thing once. Back then, I think I'd answered — "really kind, but a little unfair too."\
+The Yui-san in my heart, then and now, has shifted a little.
 
-"...they're incredibly kind and truly wonderful."
+"...Really kind, and an absolutely wonderful person."
 
-When I try to describe Yui-san to someone, these words are all I can think of now.\
-My cheeks relax naturally. My lover is the most wonderful person in this world. I genuinely believe that no matter how far you search the entire universe, you won't find anyone better than Yui-san.
+When I try to describe Yui-san to someone, no other words come to mind anymore, these days.\
+My cheeks softened naturally. My girlfriend is the most wonderful person in this entire world. I genuinely believe there's no one better than Yui-san, anywhere in the whole universe.
 
-Without teasing me particularly for gushing, Mitsuya-san smiled faintly, as if suddenly relaxed.
+Not particularly teasing me for gushing like that, Mitsuya-san smiled, faint, like something in her had gone slack.
 
-"Aosawa-chan, you really like him, don't you?"
+"Aozawa-chan really loves him, huh."
 
-Not him, her — I corrected myself silently before nodding honestly.\
-Mitsuya-san took a cigarette between her fingertips, placed it between her lips, and drew deeply. The tip glowed red with a hiss.
+Not "him," but "her" — I corrected it in my heart, then nodded, honest, "yes."\
+Mitsuya-san brought the cigarette pinched between her fingers to her lips and inhaled, deep. The tip glowed red with a faint hiss.
 
-Smoke filled the private room. It felt as though I were enveloped in her sigh.\
-　Just like this smoke, her heart must surely be wavering too. It seemed somehow incredibly fragile, precarious.
+Smoke filled the private room. It almost felt like being wrapped in her own sigh.\
+Like this smoke, her heart, too, must be wavering, unsettled. Something about it looked fragile, precarious.
 
-"So, what if, for example, that boyfriend wasn't rich... then what?"
+"So, hypothetically, if that partner of yours wasn't rich... how would that be?"
 
-Her eyes, asking me that question, held a glimmer of unease. It wasn't like her, usually so strong-willed. Those words felt like something she wanted to ask someone else, not me.
+Her eyes, asking me that, carried a color of real anxiety. Not like her usual confident self at all. It felt like this question wasn't really meant for me at all, but for someone else entirely.
 
-　I didn't know who that someone was, but somehow I understood.\
-Mitsuya-san must be in love with someone right now.
+I don't know who that someone else is, but somehow, I understood anyway.\
+Mitsuya-san, I'm certain, is in love with someone right now.
 
-"Nothing, really. I don't think having money or not affects how much I want to be with someone."
+"It wouldn't be anything. I don't think whether or not there's money has anything to do with wanting to be with someone."
 
-Not just lip service, but genuinely. When I stated it plainly, Mitsuya-san smiled and stubbed out her now very short cigarette in the ashtray.
+Not empty words — I meant it, genuinely. Saying it plainly, Mitsuya-san laughed and stubbed out her cigarette, burned down short, into the ashtray.
 
-"Yeah, well, I suppose you would say that, Aosawa..."
+"Right, of course... well, that's exactly what you'd say, Aozawa-chan..."
 
-"Does Mitsuya-san's lover have no money? Or are they perhaps terribly in debt?"
+"Is your partner short on money, Mitsuya-san? Do they have huge debts or something?"
 
-I didn't think she was the type to fall for someone like that... but you never know.\
-She widened her narrowed eyes just a little, then laughed, "No, it's not that. They're not my lover to begin with."
+Mitsuya-san didn't seem like the type to fall for someone like that... but you never know.\
+Her narrow eyes widened, just slightly, then, "No, that's not it — they're not even my partner in the first place," she said, laughing.
 
-　Not a boyfriend. So it must be unrequited love then. I wonder what kind of person Mitsuya-san is in love with.
+Not her partner. So this is unrequited love, then. What kind of person is it — whoever Mitsuya-san's fallen for?
 
-"...Apparently, she wants to marry a rich man."
+"...Apparently wants to marry someone rich."
 
-She said it with a distant look in her eyes, and my chest tightened painfully.
+Said that with a gaze fixed on somewhere far away, and something in my chest squeezed, painful.
 
-"...Did she... tell you that?"
+"...Someone told you that, directly?"
 
-I frowned involuntarily as I asked.
+Brows drawn, I asked without meaning to.
 
-It wasn't said directly to me... but she'd been saying it for a while... She lacks confidence, I suppose. Honestly, she doesn't really know what she wants or what she wants to become.
+"Not directly, but... she's said it before, in the past... it's less about confidence and more that I honestly don't know what I want myself, or what I want to become."
 
-Not understanding your own feelings about yourself... I've felt that way too. Though it was a long time ago now.
+Not knowing your own feelings, even about your own self — I've felt that before too. A long time ago, now.
 
-For a while, I was bewildered and couldn't admit that I'd fallen for Yui-san. All because, back then, Yui-san had publicly declared she 'wouldn't have a girlfriend'.\
-　I took quite a roundabout route myself. I buried my feelings, made up all sorts of excuses, and even though my heart was screaming that I liked her, I kept pretending not to see it for a very, very long time.
+For a while, I was too confused and uncertain to admit I'd fallen for Yui-san. All because, back then, Yui-san openly declared she'd never make a girlfriend.\
+I took a long detour myself, too. Sealing away my own feelings, coming up with excuses, all while my heart kept, honestly, screaming that I loved her — and I just kept pretending not to see it, over and over.
 
-It took me months to admit I liked her, so I understand Mitsuya-san's feelings all too well, painfully so.\
-Even if your head knows it's someone you shouldn't fall for, your heart won't listen. It's not about logic, you see.
+It took months before I could admit I loved her, so I understand, painfully well, exactly what Mitsuya-san must be feeling.\
+Even knowing, logically, that this isn't someone you should fall for — the heart doesn't listen to reason. That's just how these things work, isn't it.
 
-　I'm sure Mitsuya-san must feel the same now as I did back then.\
-If I could speak to my past self now... what could I say to help her choose a path without regret?
+Mitsuya-san, too, right now, might be feeling exactly what I felt back then.\
+If I could speak to my own past self now — what could I say that would let her choose a path she wouldn't come to regret?
 
 "...Mitsuya-san."
 
-I called her name softly. Her eyes, usually so steady, looked at me uncertainly.
+I said her name, gentle. Those normally steady, resolute eyes looked back at me, uncertain.
 
-"Before I started seeing my current partner, I actually made a huge mistake."
+"Before I started dating my current partner, I actually made a huge mistake."
 
 "A huge mistake?"
 
-"...I couldn't be honest with my own feelings. I didn't really want to leave, but I was terrified I might ruin the other person's life... so I ran away. At the time, I genuinely believed it was the best course of action."
+"...I couldn't be honest with my own feelings. I didn't actually want to leave, but I was afraid I might end up wrecking the other person's whole life, so... I ran away. At the time, I genuinely believed that was the best possible choice."
 
-I couldn't bring myself to be selfish. I didn't even try to resist. Back then, I was... a coward.
+I couldn't bring myself to be selfish. Didn't even try to resist. I was — a coward, back then.
 
-"But... what awaited me afterwards was hellish days. Even now, I think... if only I hadn't chickened out and searched for a way to stay together back then."
+"But... what waited for me afterward was something like hell. Even now, I still think — I wish I'd searched for a way to stay together, instead of getting scared and running."
 
-I clenched my palm tightly. If Yui hadn't kept me in her thoughts, I'd surely still be left alone, abandoned at the very bottom of the deep, deep sea.
+I gripped my own palm tight. If Yui-san hadn't kept holding on to me, hadn't forgotten me — I'd probably still be alone, right now, sunk at the very bottom of some deep, deep sea.
 
-"I don't know what kind of person Mitsuya-san likes... but you really ought to face your own feelings more simply. If you like them, then you like them. Isn't that alright?"
+"I don't know what kind of person you're in love with, Mitsuya-san... but I think you should face your own feelings more simply. If you love someone, that's fine, isn't it?"
 
-Life is a one-time-only affair, and lost time cannot be rewound. Whether one has always made the best choices is something only known after the fact.\
-That is precisely why I now believe that being true to one's feelings is the path to the fewest regrets.
+Life only happens once, and you can never wind back lost time. Whether you're always making the best possible choice — you never really know that, until after the fact.\
+That's exactly why I believe, now, that being honest with your own feelings is the path you'll least regret.
 
-When I stated it plainly, Mitsuya-san gave a soft, fleeting smile.
+Saying that, plainly, Mitsuya-san smiled, soft.
 
-"...Aosawa-chan, thank you. Somehow, I feel a bit lighter now."
+"...Thanks, Aozawa-chan. I feel a little lighter, somehow."
 
-　Love comes in many shapes and forms, as varied as the people who experience it. The worries may never end, but for every painful feeling overcome, happier days await.
+Ten people, ten different shapes of love. The worries might never fully end, but for every bit of hardship you push through, a happier day waits ahead.
 
-I found myself hoping that would be true for Mitsuya-san too.
+I hope, wholeheartedly, that Mitsuya-san finds that too.
 
-Afterwards, saying "I invited you, after all," Mitsuya-san treated me to lunch. Feeling somewhat indebted, I accepted her offer, and we walked together back to the office.
+*
 
-　We looked up at the street trees, their leaves scattered by the wind, their branches nearly bare. Winter was drawing near.\
-Feeling a chill, I wrapped my arms around myself. Noticing this, Mitsuya-san peered at my face and smiled.
+Afterward, "since I'm the one who invited you," Mitsuya-san treated me to lunch. Feeling a little guilty about it, but taking her up on the offer anyway, we walked back toward the office together.
 
-"Aosawa-chan, you look cold in such light clothes."
+Leaves scattered on the wind, and I looked up at the street trees, nearly bare now. Winter's getting close.\
+Feeling a little chilly, I hugged my own arms around myself, and Mitsuya-san, noticing, peered into my face and laughed.
 
-"Yes, I am. I hadn't expected it to be this cold."
+"Aozawa-chan, you're underdressed, aren't you, you look cold."
 
-"It wouldn't do for the president's secretary to catch a cold, would it? I'll lend you my jacket for today."
+"You're right. I didn't expect it to get this cold today."
 
-Saying that, Mitsuya-san took a cigarette and lighter from the jacket she was wearing and draped it over my shoulders.
+"Wouldn't do to have the president's secretary catch a cold. Here, I'll lend you my jacket for the day."
 
-"It's alright, you'll catch a cold, Mitsuya-san."
+Saying that, Mitsuya-san pulled the cigarettes and lighter out of her jacket pocket and draped it over my shoulders.
 
-"Me? Ah, it's fine. I've got a cardigan at the office."
+"It's fine, really, you'll catch cold, Mitsuya-san."
 
-"...Are you really sure?"
+"Me? Ah, don't worry, I've got a cardigan back at the office."
 
-"It's fine — just bring it back when you leave."
+"...Are you sure it's really okay?"
 
-Since Mitsuya-san said so, I decided to take her up on her offer. The jacket she'd been wearing was warm and faintly scented with tobacco.
+"It's fine~, just bring it back to me before you head home."
 
-After parting ways with Mitsuya-san, who headed for the rooftop saying she'd have another cigarette, I made my way to the president's office. In the corridor, I bumped straight into Seno-san.
+Since she insisted, I decided to take her up on it. Mitsuya-san's jacket, still warm, carried a faint scent of cigarettes.
 
-　After giving me a once-over, she asked, "Were you with Kaori?"\
-Somehow, Seno-san had started calling Mitsuya-san by her first name. It warmed my heart to see how much closer they'd become while I was away.
+*
 
-Seno-san, who always brought her own lunch, was carrying a cute lunch tote in one hand. She looked like she was on her way back from the break room.
+Saying she'd smoke one more before heading in, Mitsuya-san split off toward the roof, and on my way back to the president's office, I ran straight into Seno-san in the hallway.
 
-"Yes, she invited me to lunch... so I went out to eat."
+Looking me over, head to toe, she asked, "Were you with Kaori?"\
+At some point, Seno-san had started calling Mitsuya-san by her given name, and it warmed my heart, a little, thinking about how close they must have gotten while I wasn't around.
 
-"...Hmm, I see. That's Kaori's jacket, isn't it?"
+Seno-san, who always brings her own lunch, had a cute lunch tote in one hand, apparently just back from the break room.
 
-"Eh? Oh, yes. I said I was cold, and she lent it to me. Mitsuya-san is kind, isn't she?"
+"Yes, she invited me to lunch... I went and had some food with her."
 
-"Well, yes. She is kind to her cute junior, Aosawa-san. Not to me at all, though."
+"...Hmm, I see. That's Kaori's jacket, isn't it."
 
-Saying that, Seno-san let out a small sigh. Finding it odd, I looked up at her slightly taller frame, and Seno-san grinned, narrowing her eyes.
+"Eh? Ah, yes. I said I was cold, so she lent it to me. Mitsuya-san's really kind, isn't she."
 
-"That jacket... I wonder if it's alright. I won't be responsible if she gets jealous, you know?"
+"I suppose. Kind, to her cute little junior, Aozawa-san. Not so much toward me, though."
+
+Saying that, Seno-san let out a small sigh. Puzzled, I looked up at her — a little taller than me — and Seno-san narrowed her eyes into a sly grin.
+
+"That jacket... I wonder if it's really okay. Don't blame me if someone gets jealous~?"
 
 "Eh...?"
 
-Jealous? What did she mean? Before I could ask, Seno-san waved flutteringly and was gone, leaving me tilting my head.
+Jealous? What does that mean? Not giving me a chance to ask further, Seno-san waved a hand, breezy, and walked off, leaving me tilting my head.
 
-Who would be jealous of me borrowing Mitsuya-san's jacket? Sure, it wouldn't be strange if someone in the company liked Mitsuya-san... but would they really notice this was her jacket so easily?
+Who, exactly, would get jealous over me borrowing Mitsuya-san's jacket? It's true it wouldn't be strange at all if someone in the office had feelings for Mitsuya-san... but would they really recognize this as her jacket that easily?
 
-Pondering that, I opened the door to the president's office.
+Thinking that, I opened the president's office door.

@@ -1,246 +1,248 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 90
+nav_order: 9
 parent: Second year as a working adult, autumn
 sequence: 84
-title: "Episode 80: You're unusually proactive today, aren't you?"
+title: "Episode Eighty: You're Unusually Assertive Today"
 ---
-Episode 80: You're unusually proactive today, aren't you?
+## Episode Eighty: You're Unusually Assertive Today
 
-Seated side by side at the dimly lit bar counter, illuminated by orange indirect lighting. Relaxing background music filled the space. Not overly crowded, the atmosphere seemed perfect for savouring drinks at a leisurely pace.
+\
+We settled onto stools side by side at the dimly lit bar counter, lit by warm orange indirect lighting. Easy background music drifted through the space. Not too crowded — the kind of place that felt built for savoring a slow drink.
 
-She lowered her gaze to the drink menu presented to her.
+I dropped my eyes to the drink menu held out in front of me.
 
-"Kanata, what would you like to drink?"
+"Kanata, what do you want?"
 
-"Um... do you have any recommendations?"
+"Um... do you have a recommendation?"
 
-It was my first time in a bar. Looking at the names of the drinks listed on the menu, I had absolutely no idea what any of them were. When I asked, looking utterly lost, Yui-san gave me a gentle smile.
+First time I'd ever been to a proper bar. Scanning the list of drink names on the menu, I had no idea what any of it even meant. Helpless, I asked, and Yui-san smiled at me, gentle.
 
-"That's unusual. Not a lemon sour today?"
+"Unusual, not going for a lemon sour today."
 
-"Since it's a special occasion... I'd like to try something different."
+"Since we're here... I want to try something different."
 
-"Something sweet? Or something refreshing?"
+"Something sweet? Something crisp?"
 
-"As long as it's not bitter, either is fine."
+"As long as it's not bitter, either's fine."
 
-From beside me, Yui-san peered over at the drinks menu. The closeness of her proximity made my heart thump steadily and naturally.\
-Thinking about what would happen back at the tent made me feel a little nervous. It'll be fine, my plan should be foolproof.\
-I swallowed the feeling of unease.
+Yui-san leaned in beside me to look over the drink menu too. At that closer distance, my heart naturally picked up its pace, quick.\
+Thinking about what would happen once we got back to the tent left me a little tense. It's fine, my plan should be flawless.\
+I swallowed down the anxious feeling threatening to rise.
 
-　First, drink some alcohol to ease this tension. Must relax as much as possible to avoid failure.
+First, drink some alcohol, ease this nervous tension. Can't afford to fail, so I need to relax as much as possible.
 
 "...Then, how about a Darjeeling Cooler?"
 
-"Darjeeling? Is that a tea-based liqueur?"
+"Darjeeling? A tea-based cocktail?"
 
-"Yes. If you can't drink it, I'll finish it for you."
+"Yeah. If you can't manage it, I'll drink it for you."
 
-I didn't know that. Is there such a thing as tea-flavoured liquor? When I nodded, Yui-san propped the menu against the counter and ordered that 'Darjeeling Cooler' and a 'Salty Dog' from the bartender.
+I hadn't known that — cocktails made with tea actually existed. When I nodded, Yui-san set the menu back and ordered the "Darjeeling Cooler" along with a "Salty Dog" for herself.
 
-Ah, I've heard that name before. Grapefruit-flavoured liquor, wasn't it? She used to say she drank it often at bars back in her student days.
+Ah, that name — I'd heard it before. A grapefruit cocktail, I think. She'd mentioned drinking it often at bars back in college.
 
-"I'm so happy we've reached a day where Kanata and I can drink together like this. It's the best birthday celebration ever."
+"Never imagined I'd get to drink with you like this someday, Kanata. Best birthday celebration ever."
 
-　Leaning her elbows on the counter, Yui turned to face me and smiled. Just seeing that smile made me happy too.\
-After this, when we got back to the tent, I planned to give her the present. She'd definitely be delighted. Just imagining Yui's face the moment I handed it to her made me smile naturally.
+Elbow propped on the counter, Yui-san turned to face me and smiled. Just seeing that smile was enough to make me happy too.\
+Once we got back to the tent after this, I planned to give her the present. She'd definitely be happy. Just picturing her face the moment I handed it over was enough to bring a smile to mine, unbidden.
 
-"Yui, you're twenty-six now right? It feels like it's gone by in a flash, doesn't it?"
+"You're already twenty-six now, Yui-san. Feels like it happened in a blink."
 
-"Yes, it does. Lately, I really feel how quickly time passes."
+"It really does. Lately I keep thinking how fast time actually moves."
 
-The first time we met, Yui was twenty-one. Five years have passed since then.\
-I earnestly hope we can spend our lives together so happily that we can laugh off those four years that fell empty.
+We first met the year Yui-san turned twenty-one. Five years had passed since then.\
+I hope, from the bottom of my heart, that we'll get to spend a life together happy enough to laugh off those lost four years entirely.
 
-Listening to the bartender shake my drink with a brisk, rhythmic clatter, I reflect deeply, wondering if I've grown up a little.
+Listening to the bartender shake my drink with a rhythmic rattle, I found myself reflecting, quietly — maybe I really had grown up, at least a little, since back then.
 
-　Back in my student days, cooking and housework were mostly left to Yui, but since starting to live alone, I've gradually taken on chores and cooking myself, clumsy though I am.\
-Going forward, if we start living together, I want us to support each other, not just rely on one another. So I intend to challenge myself to overcome things I'm not good at.
+Back in college, cooking and housework had been almost entirely Yui-san's job. But since I started living alone, I've gradually, clumsily started handling more of it myself.\
+Going forward, once we're living together again, I want us to support each other, not just have me leaning on her — so even the things I'm not good at, I want to keep working to improve, keep challenging myself.
 
-That's why — well, this night. I don't want to just keep receiving from her; I want to give back too...
+Which is exactly why — even at night. I don't want it to always be her doing everything for me. I want to, too...
 
-　While I was thinking such things, the bartender handed me the finished cocktail over the counter. It looked... like iced tea.\
-Yui-san took her drink next. That must be the Salty Dog. At first glance, it just looked like grapefruit juice, but as I'd heard, there was salt on the rim of the glass.
+While I was lost in that thought, the bartender set the finished cocktail down in front of me across the counter. Looked like... iced tea, almost.\
+A beat later, Yui-san received her drink too. So that's a Salty Dog. At a glance it looked like plain grapefruit juice, but, just as she'd said, salt lined the rim of the glass.
 
-"Kanata, cheers."
+"Cheers, Kanata."
 
-Yui-san smiled brightly and offered me her glass, so I clinked mine gently, trying not to make too much noise.
+Yui-san smiled and held her glass out to me, and I clinked mine gently against it, careful not to make too loud a sound.
 
 "Wow, it really does smell like Darjeeling."
 
-When I put the glass to my lips, the familiar scent of black tea surprised me. It had a refreshing, crisp taste, and I immediately thought it was delicious.
+Bringing it to my lips, I caught the familiar scent of black tea and, surprised, took another sip. Crisp, refreshing on the tongue, and immediately, delicious.
 
-"Are you alright? You didn't dislike it?"
+"You okay? Not too much for you?"
 
-"It's absolutely delicious."
+"It's really delicious."
 
-Even though I wasn't particularly thirsty, I found myself gulping it down because it tasted so good. I might even prefer it to lemon sour.\
-Seeing me like this, Yui-san smiled and said, "Don't drink too much, alright?"
+Not even particularly thirsty, but it tasted so good I kept drinking, one gulp after another. Might even like this more than lemon sour.\
+Watching me, Yui-san laughed, "don't drink too much, now."
 
 ＊＊＊
 
-Somehow, it felt like I was floating on a cloud, the back of my head feeling light and fuzzy. My whole body felt warm and hot.\
-　I really wanted to enjoy more drinks, but halfway through, Yui-san took my glass away, saying "You're drinking too much." So, holding hands, we walked slowly back to the tent, enjoying the night breeze.
+My head felt hazy, floaty, like I was up above the clouds somewhere. My whole body warm, hot.\
+I'd really wanted to enjoy more, but partway through, Yui-san had confiscated my drink — "that's enough" — and now, walking the road back to the tent, hand in hand, taking in the night air, slow.
 
-"Kanata, are you alright? I did tell you not to drink too much."
+"Kanata, you okay? I told you not to drink too much."
 
-"I'm fine, really. Not drunk at all. Just a little light-headed."
+"I'm fine, not drunk at all. Just a little floaty, that's all."
 
-"Really? Your face is bright red though."
+"Really? Your face is completely red, though."
 
-You say that as if you're flabbergasted, but it's alright. I'm still perfectly conscious.
+She said it, exasperated, but it's fine. I'm still perfectly conscious.
 
-"Are you worried about me? You're kind, Yui-san."
+"Are you worried about me? You're so kind, Yui-san."
 
-I smiled happily, and Yui-san let out a small sigh, then smiled resignedly.
+Happy, I laughed, and Yui-san let out a small sigh, then smiled, resigned.
 
-"...Well, when we're together, it's alright to drink a bit too much sometimes. You're incredibly cute when you're drunk."
+"...Well, when we're together, drinking too much once in a while is fine. Drunk Kanata's really cute."
 
-Cute, she said. Weird. It's not like I'm any different from usual.
+Cute, huh. Strange. Nothing's really different from usual, is it.
 
-When we reached the tent, Yui lit the lamp for me. The orange glow enveloped the interior, making it incredibly romantic.\
-It had been clear today, so I thought I might see the stars while lying down. Yet, Yui pulled down the tent curtains.\
-We'd specifically chosen a dome tent with a transparent section so we could see outside.
+Back at the tent, Yui-san switched on the lamp. The room wrapped in orange light — so romantic.\
+Clear skies today, so maybe we'd even see stars from bed. That's what I'd thought — but Yui-san lowered the tent's curtain instead.\
+And here I'd specifically picked this dome tent with the transparent panel section, just to see outside.
 
-"Hey, Yui-san, why did you pull the curtain down? We won't be able to see the stars like this."
+"Hey, Yui-san, why'd you lower the curtain? We won't be able to see the stars like that."
 
-I plopped down onto the bed and said that. Yui-san smiled brightly and walked over to me. A warm palm pressed against my shoulder, and I looked up at her, bewildered.
+Sitting down on the bed with a soft thud, I said it, and Yui-san smiled, bright, and walked toward me. A warm palm pressed against my shoulder, and I blinked up at her, puzzled.
 
-"Because I don't want anyone seeing you naked, Kanata."
+"Because I don't want anyone else seeing you naked, Kanata."
 
 "Eh?"
 
-　Naked...? Before I could ask again, the world spun upside down. The bed creaked as Yui-san came crashing down on top of me.
+Naked — ? Before I could even ask, the world had already spun, flipping. The bed creaked, a small groan, and Yui-san leaned over me.
 
-"I held out until the bed, just like we promised. Kanata, you promised to do whatever I asked, right? Can I do whatever I like with you today?"
+"Held out until the bed, exactly as promised. You promised you'd do whatever I asked, didn't you, Kanata? Can I do whatever I want, tonight?"
 
-I was stunned by Yui-san, who'd pinned me down at full throttle. Hang on. I haven't given you your present yet. Looking up in panic, I saw her eyes, gleaming like a predator's, staring down at me.
+Startled by how full-throttle she'd pushed me down. Wait, hold on. I still haven't given her the present. Scrambling to look up, those eyes, glinting like some predator, looked down at me.
 
-That hungry, feverish gaze sent a shiver down my spine.\
-Maybe it was because we'd been intimate so many times before. Just one look from her made my body anticipate pleasure on its own. A sensation like a fire lighting deep in my stomach made me frantically push her shoulders.
+That heated, desire-laden gaze sent a shiver racing down my spine.\
+Maybe it's from all the nights we've spent together by now — my body's started expecting pleasure from just a look alone. A fire seemed to kindle, low in my stomach, and, flustered, I pushed at her shoulder.
 
-"Y-Yui-san, not yet... Wait, just a moment."
+"Y-Yui-san, not yet... wait a second."
 
-"No. I can't wait any longer."
+"No. Can't wait anymore."
 
-Though I turned my face away, her left hand abruptly turned me to face her, and she took my lips without hesitation. Her thumb slipped into the gap between my parted lips, and her tongue slipped inside. Startled by her urgency, I gripped Yui-san's clothes tightly.
+I'd turned my face away, but her left hand pulled it firmly back, and my lips were claimed, easy. Her thumb slipped in, and through the gap it left, her tongue pushed in, and, startled by how urgent it felt, I gripped her clothes tight.
 
-"Mmm...!"
+"Mn...!"
 
-The faint flavour of grapefruit I sensed through our intertwined tongues. My pulse, already quickened by the alcohol, accelerated further. Her left hand, having lifted my skirt, gently stroked my thigh.
+A faint hint of grapefruit, tasted through our tangled tongues. My heartbeat, already racing from the alcohol, sped up further still. Her left hand, hitching up my skirt, gently stroked my thigh.
 
-I hadn't expected her to demand me so forcefully; panic flooded my mind. What should I do? I must resist. If I don't, she'll overpower me.
+Never imagining she'd want me this forcefully, my head went into a full panic. What do I do, I need to resist. At this rate, I'll get swept along entirely.
 
-　Even as I thought this, a part of me didn't want her to stop. Realising I might cling to her if I let myself, I steeled myself and pushed Yui-san's shoulder away.\
-Noticing the stronger resistance than usual, Yui-san pulled away.\
-Breathing heavily through my shoulders, I took in the oxygen I'd been lacking and steadied my breath.\
-　She had stopped... but Yui-san looked down at me, her brows knitted together in displeasure.
+Even thinking that, some part of me, somewhere, didn't want her to stop either. Feeling like I might give in completely if this kept going, I steeled myself and pushed at her shoulder.\
+Maybe noticing the resistance was stronger than usual, Yui-san pulled her body back.\
+Shoulders heaving, I drew in the oxygen I'd been missing, steadying my breath.\
+She'd stopped, but... Yui-san looked down at me, brows drawn together, displeased.
 
-"Yui-san, no... I said no."
+"Yui-san, n-no... I told you."
 
 "...Why?"
 
-It was the first time she'd demanded me so strongly — I regretted holding back for too long. A sulking Yui-san was cute, but if I gave in now, my entire plan would be ruined.
+Being wanted this intensely, for the first time — I found myself regretting having made her wait so long. Sulking Yui-san is cute, but if I got swept along here, the whole plan would fall apart.
 
-"I've got a present ready... just wait a little longer."
+"I have your present ready, so... just wait a little longer."
 
 "Eh?"
 
-At that, Yui-san's eyes widened in surprise.
+Hearing that, Yui-san's eyes went round, startled.
 
 "A present?"
 
-I nodded. Could it be... Yui-san thought the glamping trip was her only birthday present?\
-That couldn't possibly be it. Smiling at the startled Yui-san, I sat up.
+I nodded, small. Had Yui-san assumed the glamping trip itself was the whole birthday celebration?\
+As if that could ever be true. Laughing at her surprised face, I pushed myself upright.
 
-"So please wait just a little longer. Okay?"
+"So, just wait a little bit, okay?"
 
-"U-uh-huh..."
+"O-okay..."
 
-She obediently moved away, so I took Yui-san's hand firmly in mine as she sat up, peering into her eyes that still seemed startled.
+Obedient, she pulled her body back, and I gripped the hand of the still-startled Yui-san and looked into those eyes.
 
-"I need to prepare it, so could you close your eyes?"
+"Could you close your eyes while I get ready?"
 
-I gave a faint smile to Yui, who had suddenly become so demure, and said that. She replied, "Okay," and closed her eyes. I stepped away from the bed and retrieved the box from my Boston bag.\
-Yui, lying quietly on the bed with her eyes closed just as I'd asked, looked incredibly cute, and I couldn't help but let out a soft chuckle.
+I said it with a small smile at how uncharacteristically meek she'd suddenly become, and Yui-san said "got it" and closed her eyes. Slipping off the bed, I pulled the box out of my Boston bag.\
+Watching Yui-san obediently keeping her eyes shut on the bed, exactly as I'd asked, was so unbearably cute that a laugh spilled out of me.
 
-　The fluttering in my chest surely wasn't just from the alcohol.
+The floaty warmth in my chest surely isn't just from the alcohol.
 
-I climbed onto the bed too, gazing directly at Yui, her eyes still closed. Such a beautiful face. I could look at her forever.
+Climbing back onto the bed, I looked straight at her, eyes still closed. Such a beautiful face, really. I could watch it forever.
 
-"Kanata, are you ready?"
+"Kanata, ready yet?"
 
-"Not yet,"
+"Not yet."
 
-Yui-san said, seemingly losing patience, but I wanted to look at you just a little longer.\
-Taking both her hands, I placed the box upon them. At the same time, I kissed her, just enough for me to touch her.
+Apparently losing patience, she said that, but I wanted to look at her just a little longer.\
+Taking both her hands, I set the box on top of them. At the same time, I gave her a light, brief kiss.
 
-When our lips parted, Yui-san blinked rapidly and lowered her gaze. The moment she saw the box resting on her hands, Yui's face showed surprise.
+Pulling my lips away, Yui-san blinked, rapid, and dropped her gaze down. The instant she saw the box resting on her hands, her face went startled.
 
-"...This..."
+"...This is..."
 
-"Yui, hurry up and open it."
+"Yui-san, hurry, open it."
 
-Urging her, Yui slowly opened the box. Inside was a necklace with a clover motif, matching my earrings.\
-Reflecting the orange light, its black surface sparkled, shining like Yui's own eyes.
+Urged along, Yui-san slowly opened the box. A clover-motif necklace, matching my own earrings.\
+Reflecting the orange lighting, that black stone glittered, just like Yui-san's own eyes.
 
-"It's a matching piece to the earrings you gave me."
+"It matches the earrings you gave me, Yui-san."
 
-As I said this with a smile, Yui suddenly pulled me tightly into her embrace.
+Saying that with a smile, Yui-san suddenly pulled my body into a tight, tight embrace.
 
-"Kanata... thank you. What should I do? I'm so happy..."
+"Kanata... thank you. I don't know what to do, I'm so happy..."
 
-"At last we have matching things."
+"We finally have matching things."
 
-"Yes... I'll treasure them forever. Both the necklace and you."
+"Yeah... I'll treasure it forever. The necklace, and you too."
 
-As she pulled away and spoke, Yui-san's eyes were moist. Just as I'd hoped, she was delighted, and warmth spread deep within my chest.\
-I took the necklace from the box and slipped it around Yui-san's neck. Just as I'd imagined, the onyx clover looked exquisite against her pale skin.
+Pulling back to say that, her eyes were welling, and, just as I'd hoped, seeing how genuinely happy she was, something warm welled up deep in my chest.\
+Taking the necklace out of the box, I looped it around Yui-san's neck. Just as I'd imagined, that onyx clover suited her pale chest beautifully.
 
-"Just as I thought, it suits you perfectly."
+"Just as I thought, it looks really good on you."
 
-"Hehe... thank you."
+"Fufu... thank you."
 
-Smiling happily, Yui leaned her lips towards mine. This time, I didn't refuse, accepting her kiss. As we changed angles and pressed our lips together repeatedly, my head gradually grew hazy.
+Smiling, happy, Yui-san brought her lips close to mine. This time, I didn't refuse, and accepted them. Kissing again and again, tilting the angle each time, my head slowly grew hazy.
 
-My body, already heated by the alcohol, showed no sign of cooling down. With every touch, it felt like more and more heat built up inside me.
+The heat in my body, stoked by the alcohol, showed no sign of cooling, and with every touch, it seemed to gather, thicker, more insistent.
 
-　Her arms tightened around my waist. As we kissed, a mischievous palm gently traced my body, fingers catching on the buttons of my blouse.
+Her arm pulled my waist in tight. Mid-kiss, her mischievous palm traced gently over my body, and her fingers caught on my blouse buttons.
 
-Then, I realised Yui was trying to undress me and gasped.
+That's when it hit me — she was trying to undress me.
 
-Dangerous. It felt so good, I was about to drift along like I usually did—
+Dangerous. Feeling this good, I'd nearly let myself get swept along, same as always.
 
-　As if remembering, I pulled away from her lips. Surprised by my sudden distance, Yui stared at me intently, sizing me up.\
-Without a moment's hesitation, I placed my hand on her shoulder and pressed down hard. Throwing my weight into it, I pushed her down and straddled her hips.
+Remembering myself, I pulled my lips away, and Yui-san, apparently startled by my sudden retreat, watched me carefully, gauging.\
+Without a moment's hesitation, I placed a hand on her shoulder and pressed down, firm. Bracing myself, I put my full weight into it and pushed her down, then climbed onto her waist.
 
-Looking down, Yui-san blinked in surprise, her eyes widening.\
-Ever since, my heart had been pounding like a broken machine, accelerating relentlessly, refusing to settle.
+Looking down at her, Yui-san blinked, wide-eyed, startled.\
+My heart had been pounding, wild, this whole time, refusing to settle.
 
-But I did it. Thank goodness... I managed to pin Yui-san down properly. It was a bit dicey, but so far, everything was going according to plan.
+But I did it, good, I really did it... I actually managed to push Yui-san down. A little dicey there for a moment, but this much, at least, had gone exactly to plan.
 
-"Yui..."
+"Yui-san..."
 
-My voice, calling her name, was hoarse with tension, embarrassingly weak.\
-Yui seemed to finally grasp the situation. After taking a deep breath, she gave a faint, pleased smile, tilting her head.\
-Huh, that's odd. Usually, the moment Yui pins me down, I can't think straight — so why does she seem so calm?
+Saying her name, my voice came out strained with nerves, embarrassingly weak.\
+Yui-san, finally seeming to grasp the situation, took one deep breath, then smiled, happy, and I tilted my head.\
+Huh, that's odd. Normally, the moment Yui-san pushes me down, I can't think about anything at all — so why does she look so composed?
 
-"...You're unusually proactive today. I'm pleased."
+"...You're unusually assertive today. I'm happy."
 
-Saying that, her left hand gently stroked up my thigh, where I was straddling her hips. Startled, I quickly grabbed the mischievous hand that had slipped under my skirt to stop it.\
-No, Yui-san, that's not it...
+Saying that, her left hand gently stroked up my thigh, straddling her waist. Startled, I caught that mischievous hand as it crept under my skirt and stopped it.
 
-"N-no. Yui-san, you mustn't touch me today."
+No, Yui-san, that's not it, that's not what I meant...
+
+"N-no. You're not allowed to touch me today, Yui-san."
 
 "Eh? What do you mean?"
 
-Looking utterly baffled, Yui-san stared up at me. Could she really not understand in this situation?\
-Perhaps... I need to say it clearly for her to get it. Thinking that, I fixed my gaze on her eyes, steeled myself, and spoke.
+Looking genuinely confused, Yui-san stared up at me. In a situation like this, could she really not understand?\
+Maybe... I need to actually say it, or it won't get across. Thinking that, I looked steadily into her eyes, steeled myself, and opened my mouth.
 
-"Yui-san, today... I'll do it."
+"Yui-san, today... let me be the one."
 
-"..................Huh?"
+"........................Huh?"
 
-After a full few seconds, Yui-san looked dumbfounded — and uttered just that one word.
+After a long pause, several seconds, Yui-san just blinked, blank — and said, only that.

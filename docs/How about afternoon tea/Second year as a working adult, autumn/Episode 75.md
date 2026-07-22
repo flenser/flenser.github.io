@@ -1,258 +1,261 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 40
+nav_order: 4
 parent: Second year as a working adult, autumn
 sequence: 79
-title: "Episode 75: I'm not trying to provoke you, I swear"
+title: "Episode Seventy-Five: I'm Not Trying to Provoke You, You Know"
 ---
-Episode 75: I'm not trying to provoke you, I swear
+## Episode Seventy-Five: I'm Not Trying to Provoke You, You Know
 
-Flopping down onto my single bed, I hugged Shachi-kun tightly as usual.
+\
+Sprawled out on my own single-size bed, I hugged my orca plushie tight, same as always.
 
-Even though I was in my own room, my heart kept pounding relentlessly, refusing to settle.\
-Deep within my chest, it felt restless, as if someone were tickling me.
+Even in my own room, my heart wouldn't stop pounding, refusing to settle.
+Something in my chest felt restless, ticklish, like someone was teasing me from the inside.
 
-Trying to calm myself, I switched off the ceiling light with the remote and turned on the bedside lamp.\
-　A soft, orange glow gently enveloped the room.
+Trying to calm myself, I clicked off the ceiling light with the remote and switched on the bedside room lamp instead.
+A soft, orange glow wrapped the room, gentle.
 
-The sound of a hairdryer drifted from the dressing room. It was proof that my lover, who shouldn't normally be in this house, was here.
+The sound of a hair dryer drifted from the changing area. Proof that my girlfriend, someone who's never normally here in this house, actually was here right now.
 
-It was me who couldn't bear to part, who wanted to be together longer, who invited her: "Why don't you stay the night?" I was the one who held Yui-san back and invited her into this room.
+Reluctant to part, wanting more time together — "would you like to stay over?" — that invitation had been mine. I'm the one who'd held onto Yui-san and invited her into this room.
 
-Only now did it start to feel embarrassing.\
-　It wasn't like I invited her with that in mind. That much I know for sure...
+And now, belatedly, it was making me embarrassed.\
+It's not like I'd invited her with any particular intent. That much, I'm sure of... but still.
 
-"Haa..."
+"Haah..."
 
-A sigh escaped me involuntarily.
+A sigh slipped out before I could stop it.
 
-Even though we'd bathed together, surprisingly, Yui-san kept her promise to "not do anything".\
-After getting out of the bath, she naturally dried my hair first and said, "You can go to your room," so I went back to my own room alone.
+We'd bathed together, and yet, surprisingly, Yui-san had kept her promise not to do anything.\
+Once out of the bath, she'd naturally dried my hair first, and said "you can head to your room," so I'd gone back to my own room alone first.
 
-　I'm nervous. Even hugging Shachi-kun in my futon doesn't calm me. Imagining what's about to happen makes my cheeks burn each time.
+I'm nervous. Even hugging my orca under the covers doesn't settle me. Every time I found myself imagining what might happen next, my cheeks went hot.
 
-I used to be bad at sex. Bad enough that it was the reason I broke up with the boyfriend I had before meeting Yui-san.
+I used to be bad at sex. Bad enough that it's part of why I split up with the boyfriend I dated before meeting Yui-san.
 
-And yet. Why do I find myself so eager for her touch?
+And yet. Why do I find myself looking forward to her touch this much?
 
-　We've been intimate several times now, but I still haven't got used to it. Every single time, I get so nervous I feel like my heart might burst.
+We've been intimate a handful of times now, and I still haven't gotten used to it, still get so nervous every time it feels like my heart might actually break.
 
-Back in our student days, Yui-san had relationships with numerous women. Beautiful and kind to everyone, she was frighteningly popular.\
-　I know full well she never committed to anyone, drifting aimlessly, swapping one girl for another.\
-I don't mean to criticise her for that now, but it still bothers me a little... makes me uneasy.
+Back in college, Yui-san had relationships with any number of unspecified women. Beautiful, kind to everyone, she was frighteningly popular.\
+I know she never dated any of them, just drifted from girl to girl, easy come, easy go.\
+I don't intend to hold that against her, not at this point — but it still catches on something in me, a little. It still makes me anxious.
 
-Because compared to the many women Yui-san played with, I'm... overwhelmingly inexperienced and awkward.
+Because compared to all those women Yui-san played with, I'm — overwhelmingly less experienced. Unpracticed.
 
-I squeezed my eyes shut and pressed my cheek against Shachi-kun's belly.
+I squeezed my eyes shut and pressed my cheek against my orca's belly.
 
-My ex must have found my passive nature utterly dull.\
-The fact that he cheated on me and then dumped me still haunts me to this day.
+My ex, I think, must have found someone this passive genuinely boring.\
+Getting cheated on, then dumped, as the end result — that still trails after me, even now.
 
 Of course, I know Yui-san isn't like that.
 
-But she, who must have spent countless nights with women until she grew bored, is she truly satisfied with someone like me?
+But someone who's surely had enough nights with women to grow bored of it entirely — is she actually satisfied, with someone like me?
 
-I love making love with Yui-san. It’s the first time I’ve ever thought this, and I’m genuinely surprised by myself.\
-Just being looked down upon by those eyes, so full of heat, makes my chest burn. I feel truly loved, and it fills me up completely. Occasionally, she can be terribly mean, but that… let’s leave that aside.
+Sex with Yui-san — I like it. First time I've ever thought that, and even I'm genuinely surprised by myself.\
+Just being looked down at by those heated eyes is enough to warm something deep in my chest. I can feel, wholeheartedly, that I'm loved, and it leaves me so satisfied. Sometimes she's genuinely mean about it, but... let's set that aside.
 
-I wonder what Yui-san thinks.
+I wonder what Yui-san actually thinks.
 
-As these thoughts swirled around in my head, my bedroom door clicked open, and my shoulders twitched involuntarily.
+Turning that over and over in my head, the door to my room suddenly clicked open, and my shoulders jumped, startled.
 
-"...Kanata, have you fallen asleep?"
+"...Kanata, did you fall asleep?"
 
-Yui-san, who'd apparently misunderstood because I'd turned off the main light and left only the bedside lamp on, called my name gently. I lifted my face just a little.\
-Then, Yui-san, who had walked over to the bedside, peered down at me and widened her eyes slightly.\
-Then, she grabbed the Shachi-kun I was holding to my chest with one hand.
+Called gently by name, apparently misled by the room being dim with just the lamp on, I lifted my face slightly.\
+Yui-san, who'd walked over to the bedside, peered down at me and her eyes widened, just slightly.\
+Then, with one hand, she snatched up the orca I'd been hugging to my chest.
 
-"Ah!"
+"Ah."
 
-My fingers, reaching out frantically to grab it back, sliced through empty air.\
-Making eye contact with Shachi-kun, forcibly snatched from my arms, Yui-san glared at his plastic eyes with obvious displeasure.
+My fingers, reaching to take him back, scrambled through empty air.\
+Meeting eyes with the orca she'd forcibly taken from my arms, Yui-san glared, displeased, at his plastic eyes.
 
-"Honestly, Yui-san, what are you doing?!"
+"Come on, Yui-san, what are you doing!"
 
-I protested involuntarily, lifting the duvet and sitting up to try and get him back. Just as I reached out, she deftly lifted Orca-kun further out of reach and gave me a sharp look.
+I raised my voice in protest and threw back the covers, sitting up, reaching to take him back. Yui-san lifted him just out of reach and looked at me, sidelong.
 
-"You weren't seriously planning to sleep hugging this, were you?"
+"Don't tell me you were planning to sleep hugging this."
 
-"Please don't call it 'this'. I always sleep with Orca-kun."
+"Don't call him 'this.' I always sleep with the orca."
 
-As I said this, Yui-san glanced briefly at the shelf above the headboard.\
-　There, lined up, were the whale shark I'd been bought in Okinawa this summer and the seal she'd given back to me.
+Saying that, Yui-san's eyes flicked toward the shelf on the headboard.\
+There, side by side, sat the whale shark she'd bought me this past summer in Okinawa, and the seal she'd given back to me.
 
-"Hmm? But Orca-kun says he wants to sleep with his friends tonight."
+"Hmm? But the orca said he wants to sleep with his friends tonight."
 
-With that, Yui tossed Orca-kun down beside the seal, almost as if discarding him.
+Saying that, Yui-san tossed the orca down next to the seal, carelessly.
 
-"Ah, for goodness' sake, Yui, you idiot! Don't be so rough!"
+"Ah, come on, Yui-san, you idiot. Don't be so rough with him!"
 
-This little one is my most precious, precious memory. That important stuffed toy Yui-san bought for me at the aquarium that summer during my first year of university.\
-Though it's getting rather worn out from me hugging it to sleep every night, I've even bought 'stuffed toy detergent' for this little one and treated it with the utmost care all this time.
+That little guy is a precious, precious memory of mine. A treasured plushie, bought for me by Yui-san at the aquarium that first summer of college.\
+Worn thin from being hugged every single night, but I'd even bought special plushie detergent for him, and taken care of him carefully, this whole time.
 
-　Just as I turned to give her a telling-off for being treated so carelessly, Yui-san made a face as if she'd noticed something, and reached for that very side of Shachi-kun.
+Turning to complain about her rough handling, I noticed Yui-san's face suddenly shift, like she'd caught sight of something, and her hand reached toward the space beside the orca.
 
-The moment I thought, 'Huh?', I remembered something terribly important. That's right, I'd completely forgotten.\
-I'd forgotten to hide that perfume – the one she absolutely mustn't see.
+Wait, I thought — and then, a beat late, I remembered something important. Right, I'd completely forgotten.\
+I'd forgotten to hide the perfume — that thing Yui-san absolutely must never see.
 
-　With that outstretched hand, Yui-san deftly grabbed the familiar pink bottle.\
-That ribbon-adorned design had been my sleep aid for lonely nights, ever since leaving Yui-san behind and returning to London.
+Her reaching hand picked up the pink bottle, one she surely recognized well.\
+That bottle, decorated with a ribbon, had been my sleep aid, my own private tool for getting through lonely nights alone, ever since I'd been separated from Yui-san and gone back to London, and even now.
 
-"...Why is this here?"
+"...Why's this here?"
 
-"Ah, well, that's..."
+"Ah, um, that's..."
 
-　Her dark eyes fixed intently on mine. Yui knew I didn't usually wear perfume. Yet, seeing her gaze at the partially used bottle with puzzlement, I had no idea what excuse to offer.
+Those black eyes stared straight into mine. Yui-san knows I don't normally wear perfume. And yet, watching her study that half-used bottle with such puzzlement, I couldn't think of a single excuse.
 
 "...Kanata."
 
-Urged for a reply, I resignedly lowered my head. Now that she'd found it, there was no way to cover it up.
+Pressed for an answer, resigned, I looked down. Caught now, there was no way to deflect anymore.
 
-"Well... on lonely nights, or when I couldn't sleep... that... smelling Yui-san's scent calms me down..."
+"Um... on lonely nights, or when I couldn't sleep... your scent, Yui-san, it... calms me down, so..."
 
-I heard the soft click as Yui-san placed the perfume back on the shelf. But I was too embarrassed to lift my face.
+I heard a small click as Yui-san set the perfume back on the shelf. But I was too embarrassed to lift my face.
 
-Back in school, Yui-san never liked troublesome kids. So maybe she wouldn't think much of this sort of thing.
+Back in college, Yui-san never liked high-maintenance girls. So maybe this kind of thing wouldn't sit well with her either.
 
-　As I fidgeted with my fingers, trying to think of an excuse to soothe my unease, a warm palm pressed firmly against my shoulder — and the world spun upside down.
+Fidgeting, lacing my fingers together to steady myself, still searching for an excuse, a warm palm suddenly pressed firm against my shoulder — and the world spun.
 
-　I realised I’d been pushed down only when long, silky black hair swayed before my eyes. My back slammed against the bed, the springs groaning loudly.\
-Looking up, Yui-san was smiling happily, hugging me tightly.
+I only realized I'd been pushed down once I saw her long black hair swaying, loose, right in front of me. My back hit the mattress, and the bedsprings creaked, loud.\
+Looking up, Yui-san smiled, happy, and pulled my body into a tight, tight embrace.
 
-"Um, Yui-san…?"
+"Um, Yui-san...?"
 
-Through the thin fabric, I felt her slightly warm body after her bath press tightly against mine.
+Through the thin fabric, her body, still faintly warm from the bath, pressed flush against mine.
 
-"...Oh, come on, why do you always say such cute things?"
+"...Ugh, why do you always say such cute things?"
 
 "Eh?"
 
-Her reaction made me realise she wasn't displeased, and I felt relieved.
+Relieved by that reaction, I understood — she wasn't upset at all.
 
-"...When you feel like that, just call me. I promised I'd hold you when you're lonely, didn't I? No matter where you are, I'll always come find you."
+"...Call me, next time. I promised, didn't I, that I'd hold you whenever you're lonely. I'll come to you, wherever you are."
 
-A gentle voice whispered in my ear, making my chest grow warm. Come to think of it, she had said something like that before. It was definitely spring of our first year at university. Right around the time we'd just started living together.
+Her gentle voice at my ear, and something in my chest warmed, slow. Right — she'd said something like that before, I remembered. Spring of freshman year, I think. Right after we'd started living together.
 
-"Saying that means you'll have to come every day, Yui-san, won't you? Because when we're apart, I always feel terribly lonely. So when we're together... let me be spoiled rotten."
+"Say something like that, and you'll end up coming every single day, you know? Because I'm always so lonely when we're apart. So, when we're together... let me be spoiled. As much as I want."
 
-I wrapped my arms tightly around her back. My palms traced the slightly protruding shoulder blades, clinging to her as I held her close.
+I wrapped my arms tight around her back. Tracing the faint outline of her shoulder blades with my palm, I clung, holding on.
 
-"...Yeah, it's fine. I'll spoil you rotten."
+"...Yeah, okay. I'll spoil you all you want."
 
-Her lips pressed against my earlobe, hot breath escaping. She nibbled gently, sending shivers down my spine. Yui-san's left hand slipped inside my nightclothes, softly tracing my side.
+A heated breath escaped against my earlobe. Nipped lightly, a shiver raced down my spine, and her left hand slipped into my loungewear, tracing gently along my side.
 
-"Hey, Yui-san..."
+"Hey, Yui, san."
 
-"Hmm? ...What is it, Kanata?"
+"Mm? ...What is it, Kanata?"
 
-　I gently stroked the cheek of Yui-san, who had raised her upper body slightly to peer at my face.\
-I like you. I like you so much. Your eyes, your voice, your fingertips. I like everything, everything about you. I like you so much I can't stand it.
+Propping herself up slightly to look at my face, I gently stroked her cheek with my palm.\
+I love you. I love you so much. Your eyes, your voice, your fingertips. I love every bit of you. I love you, I love you, unbearably.
 
-I gently combed through her glossy black hair with my fingers—calming the feelings threatening to make me anxious — and asked.
+Running my fingers gently through her glossy black hair — steadying the anxiety threatening to surface — I asked.
 
-"Yui-san... um, are you... satisfied with me...?"
+"Yui-san... are you, um, satisfied with me...?"
 
-Yui-san looked at me with wide, puzzled eyes and tilted her head. "What do you mean?"
+Yui-san blinked, wide-eyed, and tilted her head. "What do you mean?"
 
-"Well, it's just... I always feel like I'm the one receiving everything... so I wonder if you're really satisfied with me..."
+"I mean, it's just... I'm always the one being taken care of, so... I wondered if you're actually satisfied, Yui-san."
 
-I don't want you to think I'm boring. But I don't know what to do. I don't even know what the right answer is. The only thing that matters to me is what you teach me.\
-Staring intently into my eyes, trembling with anxiety, Yui-san suddenly gave a gentle smile.
+I don't want you to think I'm boring. But I have no idea what to do about it. I don't even know what the "right" answer looks like. Whatever you teach me is all I have to go on.\
+Watching my wavering, anxious eyes, Yui-san smiled, gentle.
 
-"...What about you, Kanata? Are you properly satisfied?"
+"...What about you, Kanata? Are you satisfied, properly?"
 
-"...It feels good, always."
+"...It feels good. Every time."
 
-It was a little embarrassing, but when I nodded and answered, Yui-san chuckled happily.
+A little embarrassing, but I nodded, small, and answered, and Yui-san laughed, happy.
 
-"That's good. Then I'm satisfied too. Right, Kanata? I can't wait any longer, but is it alright to continue?"
+"Good. Then I'm satisfied too. Hey, Kanata. I really can't wait any longer... can we keep going?"
 
-Is she truly satisfied? I hope she's not just being considerate. I really wanted to ask more to be sure, but my beloved lover, who apparently can't wait any longer, gazes down at me feverishly.\
-Just like a large dog wagging its tail vigorously. Well, dog... more like a wolf, really.
+Is she really satisfied? I hope it's not just her being considerate. I wanted to ask more, make sure — but my beloved girlfriend, apparently unable to "wait" any further, looked down at me, heated.\
+Like a big dog wagging its tail. Well — dog, or, at this point, more like a wolf.
 
-　So I resigned myself and stared back intently at Yui-san.
+So I gave in, and looked steadily back into her eyes.
 
-"Um... please don't be too mean, alright? When Yui-san is mean to me, it makes me feel... weird somehow."
+"Um... please don't be too mean, okay? When you're mean to me, Yui-san, it does something strange to me."
 
-Saying this bashfully, Yui-san's eyes widened for a moment.\
-Then, as if enduring something, she took a deep breath and let out a small 'huff'.
+Bashful, saying that, Yui-san's eyes went wide for a moment.\
+Then she drew a deep breath, like she was holding something back, and let it out, slow.
 
-"...Kanata. If you want me to be kind, please don't provoke me so much."
+"...Kanata. If you want me to be gentle, please, stop provoking me like that."
 
-"...I don't mean to provoke you."
+"...I'm not trying to provoke you, you know."
 
-I'd only said what I thought. Yui gave a wry smile, buried her face in the nape of my neck, and sighed.
+I'd just said what I was thinking. Yui-san laughed, wry, and buried her face against my neck, sighing.
 
-"Not realising you're doing it is really, really annoying..."
+"Not even realizing it — that's genuinely the worst kind..."
 
-　Hearing Yui-san say that, I pouted, my lips tightening.
+Hearing her say that, my lips pursed, displeased.
 
 "Is that an insult?"
 
-"Not at all. It means I find you utterly adorable."
+"No way. It means you're too cute for your own good."
 
-"Just be quiet," Yui-san murmured, sealing my lips with hers. As I received that heated kiss, I felt my thoughts melting into a sludgy mess—and I squeezed my eyes shut.
+*Just be quiet now*, Yui-san said, sealing my lips with her own. Accepting her heated kiss, I felt my thoughts dissolving, melting away — and I closed my eyes, tight.
 
 ＊＊＊
 
-The shrill ringing of the alarm clock jolted me awake. Half-unconsciously, I reached up and smacked it, only for a white arm to wrap around me from behind, pulling me close.
+I woke to the alarm's blaring shriek. Half-consciously reaching overhead to slap it silent, a pale arm reached out from behind and pulled my body into a tight embrace.
 
-"Mmm..."
+"Nnh..."
 
-A faint groan came from behind me, and consciousness slowly returned. Turning only my head, I saw Yui-san's shoulder as she held me. I shifted position within her arms and turned to face her.
+A faint groan sounded from behind, and consciousness slowly returned. Turning just my head, Yui-san's shoulder came into view, still holding me. Turning within her arms, I faced her properly.
 
-I smiled softly at my beloved lover, still fast asleep beneath her long lashes. Her face was as infuriatingly beautiful as ever. I could watch her forever and ever.\
-Naked, we pressed against each other on the narrow single bed. When I brought my lips close to the red, swollen bite mark on her shoulder, her arms tightened even more around my body.
+Long lashes still lowered, my beloved girlfriend still peacefully asleep, and I smiled, small. Still an infuriatingly beautiful face. I could watch it forever.\
+In the narrow single bed, we lay pressed close, still bare. Pressing my lips to the red, swollen bite mark on her shoulder, the arm around me tightened, even harder.
 
-I wish I could do something about this biting habit. I always try to be careful, but when I get cornered, I just lose control and do it.
+I wish I could do something about this biting habit. I always mean to be careful, but once I'm pushed to the edge, I lose all sense and end up doing it anyway.
 
-If Yui-san were to say something like, "I don't want to do it with Kanata, it hurts," I'd be so sad. So next time, I really must endure it properly.
+It would be sad, if Yui-san ever said, "sex with you hurts, I don't want it." So next time, for real, I need to actually hold back.
 
-As I was thinking such things, Yui-san's long eyelashes trembled, and then she blinked several times, pat-pat.
+Thinking that, Yui-san's long lashes fluttered, and she blinked, slow, a few times.
 
-"Hmm... Good morning, Kanata. Were you awake...?"
+"Mm... morning, Kanata. Were you awake...?"
 
-"Good morning. I've just woken up myself."
+"Morning. I just woke up too."
 
-"Is there still time before we have to leave...?"
+"Any time before you have to head out...?"
 
-"Yes. My appointment with Yuri isn't until this afternoon."
+"Yes. My plans with Yuuri aren't until the afternoon."
 
-At that, Yui-san smiled softly, looking pleased.
+Told that, Yui-san smiled, soft and happy.
 
-"Then let's sleep together a little longer."
+"Then let's sleep a little longer, together."
 
-Nodding, I closed my eyes and snuggled into her warm embrace. I could hear her steady, peaceful breathing.
+I nodded, small, and, wrapped in her warm arms, closed my eyes and nestled in close. I could hear her steady, even breathing.
 
-　In a little while, I'd slip out of bed first and make breakfast for Yui-san.\
-On Saturday and Sunday mornings, seeing your sleeping face always fills me with happiness.
+In a little while, I'll slip out of bed first and make breakfast for Yui-san.\
+Saturday and Sunday mornings, getting to see your sleeping face — it always fills me with happiness.
 
-With Yui-san's twenty-sixth birthday approaching next month, I wanted to celebrate it with all my heart, pouring in four years' worth of feelings.\
-This year, I could finally fulfil the promise we made back in university.\
-　Just as I was about to fall asleep again, clutching her body tightly, my phone buzzed by the pillow. The length of the vibration told me it was a call.
+*
 
-Yuri, perhaps? I reached out, groping for my phone, and lifted it.
+Next month, Yui-san's twenty-sixth birthday is coming. I want to celebrate it with everything I have, pouring in four years' worth of feeling.\
+The promise we made back in college — this year, at last, I can finally keep it.\
+Hugging her body tight, just as I felt myself drifting back toward sleep too, a phone buzzed against the pillow. Long enough that I realized — it was a call.
+
+Yuuri, maybe? I reached out, groping blind, and grabbed the phone, lifting it.
 
 "Ah..."
 
-It wasn't my phone that had been vibrating. The screen displayed the name I least wanted to see.
+The one buzzing wasn't my phone. On the screen, displayed, was the one name I least wanted to see.
 
-——Shinji Kitakami.
+—Kitagami Shinji.
 
-My heart clenched painfully. While I hesitated over whether to tell Yui-san, who seemed completely unaware, "It's your phone," the phone had gone quiet before I knew it.
+Something clenched, tight, painful, in my chest. Not noticing at all, apparently, Yui-san slept on, and while I hesitated over whether to say "it's ringing," the phone had already gone silent.
 
-I was pulled back to reality. That's right. Yui-san is still engaged to him... I might not even know if she can spend her birthday with me.
+Reality came crashing back. Right. Yui-san's still engaged to him. Whether she'd even be able to spend her birthday with me — I don't actually know.
 
-　I gently put my phone away and exhaled softly.
+Setting the phone gently down, I let out a small breath.
 
-Spring feels so far away.
+Spring is still so far off.
 
-Even if her father is fine with it, what does he think? Can you really just let go of someone you've been engaged to for eight years so easily?
+Her father might understand, but what does he actually think? Can you really let go, that easily, of someone you've been engaged to for eight years?
 
-Yui-san said, "Don't worry about Shinji," but... it was impossible not to worry.\
-Knowing Yui-san, she must have thought it through carefully.
+Yui-san had told me, "don't worry about Shinji" — but not worrying about it is, no matter what, genuinely hard.\
+Knowing Yui-san, there must be some plan behind all of this.
 
-—All I can do now is trust Yui-san.
+—All I can do, right now, is trust her.
 
-As if to convince myself, I murmured those words in my heart and held her body tightly, ever so tightly.
+Telling myself that, quiet, in my heart, I hugged her body close, tight, tight.

@@ -1,212 +1,219 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 70
+nav_order: 7
 parent: Second year as a working adult, autumn
 sequence: 82
-title: 'Episode 78: What if I tried pushing Yui down?'
+title: 'Episode Seventy-Eight: Why Not Try Pushing Yui Down Yourself?'
 ---
-Episode 78: What if I tried pushing Yui down?
+## Episode Seventy-Eight: Why Not Try Pushing Yui Down Yourself?
 
-Back when I was still in primary school.
+\
+Back when I was still in elementary school.
 
-Every year, we went camping as a family. Since my father was a huge outdoors enthusiast, it became a regular event for the Aosawa household.\
-We travelled to all sorts of campsites in my father's beloved Land Cruiser – a car he'd splashed out on before I was born.
+Every year, my family went camping. My father was a huge outdoors enthusiast, so it had become something of an annual tradition for the Aozawa family.
+Before I was even born, he'd apparently splurged and bought his beloved Land Cruiser, and we'd driven it to all kinds of campgrounds over the years.
 
-I remember how, whilst accompanying my brother on his bug hunts or enjoying barbecues, night would fall in the blink of an eye.
+Chasing bugs with my brother, enjoying barbecues together — I remember how fast night would fall, before we knew it.
 
-　Just recalling the atmosphere inside that cramped tent, lit by lanterns, still makes my heart race. Yet, no matter how many times I experienced it, I never got used to sleeping in a sleeping bag. My body, spoiled by beds, simply refused to drift off, no matter how exhausted I was.\
-Despite such inconveniences, I loved the scent of plants and water I felt amidst nature.\
-So, when I first learned of 'glamping', it felt incredibly appealing – perhaps because of those childhood memories.
+Just remembering the atmosphere of that cramped tent, lit by lantern, still fills me with a little thrill even now. But no matter how many times I did it, I never quite got used to sleeping in a sleeping bag — my bed-spoiled body just wouldn't settle into sleep easily, no matter how tired I was.\
+Even with those little inconveniences, I loved the smell of the plants and water you get out in nature.\
+So maybe it's thanks to those childhood memories that "glamping," the first time I ever heard the word, sounded so appealing to me.
 
-　Surrounded by the monochrome grey of city skyscrapers, rushing through each day, I longed for even the slightest splash of colour in my life. Even if it was just a small respite, that time felt incredibly precious.\
-Even as the everyday life I'll share with Yui-san becomes routine, I hope we can continue to treasure moments like that.
+Living the rushed, hurried days of city life, surrounded by nothing but grey office buildings — I think it's good to have even a little color woven into daily life like this. However small a rest it is, that time is precious.\
+Going forward, even once ordinary days spent together with Yui-san become the norm, I hope I can keep cherishing moments like this.
 
-　Sunday is Yui's birthday.\
-It felt like good fortune that this important day coincided with a holiday.\
-Today is Saturday. We rose early and drove towards Karuizawa, where the glamping facility is located.
+*
 
-It was enjoyable choosing the accommodation together, poring over magazines.\
-It was a bit of a drive, but it had hot springs, the cabins were detached for privacy, and both the food and atmosphere looked excellent. Apparently, we could even have drinks at the bar in the evening.
+Sunday is Yui-san's birthday.\
+Getting a day off that happens to line up with this important day felt like real luck.\
+Today, Saturday. Up early since morning, we drove out to Karuizawa, where the glamping facility was located.
 
-Though not peak autumn foliage season, by mid-October, the higher-altitude Karuizawa should be just starting to see the maple leaves change colour.
+*
 
-Perhaps thanks to our good deeds, today dawned with a refreshingly clear autumn sky – perfect weather for an outing.\
-Yui-san's beloved car, carrying us, glided smoothly along the motorway.
+Picking out the lodging, the two of us hunched over a magazine together, had been fun in its own right.\
+A bit of a drive, but it had a hot spring, and each unit was separate from the others so we could relax properly, and both the food and the atmosphere looked wonderful. Apparently you could even have drinks at a bar in the evening.
 
-　In the comfortable, smooth ride with minimal sway, I gazed out the window, humming to myself. The Boston bag packed with clothes for one night was in the boot. Inside it lay the present I'd bought for Yui-san the other day.\
-Handing it to her the moment the date changed was my greatest pleasure today.
+Not quite peak foliage season yet, but come mid-October, at Karuizawa's elevation, the maples would probably be just starting to turn color.
 
-"I'm sorry I made you drive on your birthday, Yui-san."
+Maybe thanks to good behavior, today turned out to be crisp, gorgeous autumn weather — the perfect day for an outing.\
+Yui-san's beloved car, carrying us both, glided smoothly along the highway.
 
-"Don't worry about it. This car has autonomous driving, so it's not tiring at all."
+Barely any shaking, riding comfortably, I hummed to myself, gazing out the window. Our overnight bags with a change of clothes were in the trunk. And inside mine, the present I'd bought for Yui-san the other day.\
+Giving it to her right as the date changed was today's biggest anticipated moment.
 
-"Eh, autonomous driving? That's amazing..."
+"Sorry, making you drive on your own birthday."
 
-When we reunited after entering the workforce, Yui-san's car had changed from a shiny black domestic model to a gleaming white foreign one. Naturally, this seemed to be a hand-me-down from Yukiyasu-san.\
-　The car itself spoke volumes about how well Yukiyasu-san's company was doing, without him needing to say a word.\
-For instance, the passenger seat had an ottoman, and the seats had built-in heating and cooling. The very existence of such features in a car was something I probably wouldn't have known about my whole life if I hadn't met Yui-san.
+"Don't worry about it. This car's got self-driving, so it's no strain at all."
 
-I glanced over at Yui-san beside me. Her profile, lit by the sunlight, looked incredibly happy, and I found myself smiling too.\
-　I opened the lid of the snacks bought at the convenience store earlier and plucked out a long, thin potato stick.
+"Eh, self-driving? That's amazing..."
 
-"Would you like a snack?"
+When we reconnected as working adults, Yui-san's car had changed from a black, gleaming domestic model to a white, gleaming foreign one. A hand-me-down from Yukiya-san, of course.\
+That Yukiya-san's business was doing well spoke for itself, right through this very car.\
+Things like an ottoman built into the passenger seat, or heated and cooled seats — honestly, if I'd never met Yui-san, I might never have known cars even came equipped with things like that at all.
+
+I looked over at Yui-san beside me. Her profile, lit by the sunlight, looked so genuinely happy that I found myself smiling too, drawn along.\
+Opening the snack we'd bought at the convenience store earlier, I pulled out one long, thin potato stick.
+
+"Want a snack?"
 
 "Mm, thanks."
 
-Since she couldn't take her hands off the wheel, I held the snack up to Yui-san's mouth. After confirming she'd eaten it properly, I popped one into my own mouth too.\
-　The refreshing music echoing through the car, the clear autumn blue sky and white clouds. And just having you beside me made me feel this happy.\
-I hoped Yui-san felt the same. As we pondered the unseen destinations ahead, the car carrying us steadily drew nearer to our destination.
+Since her hands were busy driving, I held the snack up to Yui-san's mouth. Once I'd confirmed she'd properly eaten it, I popped one into my own mouth too.\
+Bright music filling the car, the clear autumn blue sky and white clouds outside. And just having you beside me is enough to make me feel this happy.\
+I hope, wholeheartedly, that Yui-san feels the same way. Thinking ahead to a destination neither of us had seen yet, the car carrying us drew steadily closer to our goal.
 
 ＊＊＊
 
-The two-hour drive passed quicker than I'd imagined.\
-Cool autumn breezes rustled the crimson maple leaves. Taking a deep breath to inhale the scent of the trees felt like it melted away the fatigue accumulated from work.\
-At the glamping facility, there was absolutely no need to bring any equipment or ingredients.\
-　I'd chosen this place specifically for its dome tents, and its barbecues were reputed to be delicious.\
-Each unit had its own bath and shower, though apparently there was also a private hot spring facility a short distance away.\
-Yui-san had said she wanted to go to the hot springs together, so I'd booked it in advance at reception. I felt a little embarrassed about it, but then again, it was all because it was Yui-san's birthday.
+The two-hour drive passed faster than I'd expected.\
+In the cool autumn breeze, maple leaves, turned vivid red, swayed. Taking a deep breath, filling my lungs with the scent of the trees, I felt the fatigue built up from work slowly melting away.\
+At this glamping facility, you don't need to bring any equipment or food at all.\
+I'd specifically chosen this place because I wanted to stay in a dome tent, and it had a reputation for genuinely delicious barbecue too.\
+Each unit came with its own bathroom and shower, but apparently there was also a private, reservable hot spring facility a short distance away.\
+Since Yui-san said she wanted to bathe together, I'd already booked it in advance at check-in. A little embarrassing, but — it's Yui-san's birthday, so it couldn't be helped.
 
-For Yui-san, who always makes my wishes come true, today I want to do my utmost to make hers come true too.
+Yui-san always grants my wishes, so today, I wanted to grant as many of hers as I could in return.
 
-The villa we're staying in tonight has the large dome tent I requested, and the wooden deck features two hammocks and a barbecue set.\
-Given the considerable price, stepping inside the dome tent revealed a ceiling so high you had to look up to see it.
+The villa we'd be staying at tonight had the large dome tent I'd specifically wanted, and the wood deck had two hammocks and a barbecue set.\
+Given the price, once inside the dome tent, the ceiling soared high overhead.
 
-"Wow, it's incredible...!"
+"Wow, this is amazing...!"
 
-　Inside was one king-size bed. Sharing the same bed was Yui-san's wish.\
-Part of the tent was transparent, designed so you could enjoy the view of the surrounding nature. Perhaps the stars would look beautiful too.
+Inside sat a single king-size bed. Sleeping in the same bed had been Yui-san's request.\
+Part of the tent was transparent, designed so you could enjoy the nature outside visually. With this, maybe even the stars would look beautiful.
 
-I dashed towards the bed and flopped down with a thud. Behind me, I heard Yui-san laugh.
+I ran and dove straight onto the bed with a soft thud. From behind, I heard Yui-san laugh.
 
-"It's only afternoon yet. If you get this excited now, you won't have any energy left by nightfall, you know?"
+"It's still afternoon — if you get this worked up now, will your energy even last until tonight?"
 
-"...But I was really looking forward to it."
+"...Because I was really looking forward to this."
 
-"Hehe, I know. It's even more amazing than I imagined. I'm stunned. ...Kanata, are you really alright with the money?"
+"Fufu, I bet. It's even more amazing than I expected, honestly surprised. ...Kanata, are you really sure the money's okay?"
 
-Yui-san placed our luggage on the tent's built-in rack and looked at me with a hint of concern, making me laugh involuntarily. Because it didn't sound like something someone with a tendency to lavish money on others would say.
+Setting our bags on the tent's built-in baggage rack, Yui-san looked at me with a hint of genuine concern, and I couldn't help but laugh. Coming from someone with such an extreme spoiling habit, that was a hard line to take seriously.
 
-"Don't worry. I got a generous summer bonus. Thanks to you, Yui-san."
+"Don't worry. I got a huge summer bonus. Thanks to you, Yui-san."
 
-"It was Yamazato-san who evaluated you, wasn't it? Though I'll be handling the winter bonus assessment."
+"Wasn't it Yamasato-san who evaluated you? Winter bonus assessment's on me, though."
 
-Saying that, Yui-san also sat down on the bed. Peering at my face as I lay face-down, kicking my legs about, she grinned.
+Saying that, Yui-san sank onto the bed too. Peering down at my face as I lay on my stomach, legs kicking idly, she grinned, sly.
 
-"...Please go easy on me, alright?"
+"...Please go easy on me, okay?"
 
-Feeling a little uneasy, I said that, and Yui lowered the outer corners of her eyes and smiled.
+I said it, a little nervous, and Yui-san's brows drooped, laughing.
 
-"Of course. Kanata's working hard. You're always perfect."
+"Of course. You've been working hard, Kanata. Always a perfect score."
 
-"But being favoured just because we're lovers... well, that's a bit... unsettling, to be honest."
+"Getting favoritism just because I'm your girlfriend... that's kind of unsatisfying, though."
 
-Pouting my lips as I said that, Yui laughed. Yui lay down beside me and gently stroked my cheek. I turned to face her, staring intently into those dark eyes, and could feel my heart pounding steadily.\
-No matter how many years pass, I still can't get used to this person's beauty. When she looks at me, my breath catches instantly.\
-Ah, I love her. I thought it, savouring the feeling.
+Lips pursed, I said it, and Yui-san laughed. Lying down beside me, she gently stroked my cheek. Turning to face her too, staring straight into those black eyes, I could feel my heart racing, quick.\
+No matter how many years pass, I still haven't gotten used to this person's beauty. Looked at like that, my breath catches, instantly.\
+Ah, I love her. Savoring that thought, tasting it fully.
 
 "...Cute."
 
-Whispering softly, Yui tucked my hair behind my ear.\
-The sound of leaves rustling in the breeze reached my ears. The dappled sunlight filtering through the dome tent felt so utterly blissful, it was a happy afternoon where closing my eyes might have sent me straight to sleep.
+Murmuring it, Yui-san tucked my hair behind my ear.\
+The sound of leaves rustling in the wind reached me. The dappled sunlight filtering through the dome tent felt so pleasant that this happy afternoon almost made me want to close my eyes and fall asleep right then and there.
 
 "...I love you, Kanata."
 
-Love me. Just hearing those two words from you meant I could think of nothing else. Hesitantly, I lowered my gaze from her dark eyes to her lips.\
-As if reading my feelings from my eyes alone, Yui smiled softly and drew her face closer to mine.\
-She kissed me, a kiss that barely touched. It was a gentle, gentle kiss, as if sharing only affection.
+Love — just that single word from you, and I can't think about anything else at all. Hesitant, I let my gaze drop from those black eyes to her lips.\
+Reading my feelings from just that glance alone, Yui-san smiled, soft, and brought her face close to mine.\
+A kiss, just a touch. Gentle, so gentle, like something meant only to share affection, nothing more.
 
-"I... love you too."
+"I love you too..."
 
-When our lips parted, the words slipped out as if they'd naturally spilled from deep within my chest. Yui-san smiled happily and hugged me tightly.
+The moment our lips parted, it slipped out of me, almost like it had spilled naturally straight from my chest. Yui-san smiled, happy, and pulled my body into a tight, firm embrace.
 
-The familiar, lovely scent of her perfume. The scent of Yui-san, whom I adore. My chest felt all light and fluffy.
+That familiar, wonderful perfume. Yui-san's beloved scent. Something deep in my chest went soft, floating.
 
-"Shall we go for a walk once we've rested a bit?"
+"Once we've rested a bit, want to go for a walk?"
 
-Her soft voice echoed from where my ear pressed against her chest. I nodded, and Yui-san gently stroked my back.
+Her soft voice reached me through the ear pressed against her chest. I nodded, and Yui-san gently stroked my back.
 
-　Today, I have a purpose. To make Yui-san's birthday, four years in the making, the best it can be, I've meticulously gathered information.
+*
 
-After enjoying a stroll through nature, we'll have a barbecue and eat lots of delicious food. Once we've soaked in the private hot spring, we'll relax with drinks at the bar. Last time we went on a date, I made her drive, so she couldn't drink. But today, we can drink together.
+Today, I have a goal. To make Yui-san's four-years-overdue birthday the best one yet, I'd gathered information carefully, thoroughly.
 
-　By the time we return to the tent, it will surely be just after midnight. Then, I'll give Yui-san that necklace, and then—
+After enjoying a walk through nature, we'll barbecue and eat plenty of delicious food. After the private hot spring, we'll relax with drinks at the bar afterward. Last time we went on a date, I'd made her drive, so I couldn't drink then. But today, we can drink together.
 
-I swallowed hard. It'll be fine. The plan I've devised is perfect.
+By the time we get back to the tent, the date should just be about to change. Then I'll give Yui-san that necklace, and then—
 
-While Yui-san held me close, I recalled the day I'd consulted Ritsu-san about something.
+I swallowed, hard. It's fine. The plan I'd put together is flawless.
+
+Held in Yui-san's arms, I found myself remembering the day I'd brought this particular topic to Ritsu-san for advice.
 
 ＊＊＊
 
-"Sorry, Kanata-chan. I didn't quite catch that. Could you repeat it?"
+"Sorry, Kanata-chan. Didn't quite catch that, could you say it again?"
 
-A weekday after work. In a private room at an izakaya, beer in hand, Ritsu-san stared at me intently, a puzzled look on her face.
+A weekday, after work. In a private izakaya room, beer in hand, Ritsu-san studied my face with a puzzled expression.
 
-"Well... I mean, generally speaking, how often do couples, you know..."
+"Um... so, like, generally speaking, how often do couples usually... you know..."
 
-Mumbling away, I became aware my own voice was gradually trailing off. Then Ritsu leaned even closer, listened to my words, and after catching them, her eyes widened slightly as if she'd understood.
+I could feel my own voice trailing off, smaller and smaller. Ritsu-san leaned in closer, listened carefully, and then, "ahh," her eyes widened slightly, like she'd just caught on.
 
-"So, you want to know how often couples have sex? Surely not some lovey-dovey tale about being pestered every night and finding it a bother?"
+"So, basically, you want to know how often couples have sex? Don't tell me you're being asked for it every single night and it's become a problem — that kind of bragging?"
 
-"R-Ritsu-san! Please don't say that so loudly! And it's not every night!"
+"R-Ritsu-san! Don't say it that loud! And it's not every night!"
 
-Ritsu-san burst out laughing, making me feel like steam was about to puff out of my face like a locomotive.\
-　I thought Ritsu-san would be absolutely perfect for this kind of conversation, but perhaps I misjudged.\
-Sulking and fidgeting with the towel, Ritsu-san wiped the tears from the corners of her eyes and apologised, "Sorry, sorry."
+Ritsu-san burst out cackling, and I felt steam practically hissing off my face, like some kind of locomotive.\
+I'd thought Ritsu-san was absolutely the right person to ask about this kind of thing, but maybe I'd made the wrong call.\
+Sulking, fidgeting with the hand towel, I had nothing else to do with my hands, and Ritsu-san, wiping tears from the corners of her eyes, said "sorry, sorry."
 
-"No... but seriously, when you started dating Yui, you must've known this would happen, right?"
+"No, I mean, come on — the moment you started dating Yui, you had to know something like this was coming, right?"
 
-"I couldn't have known. I mean, I had no one to compare her to..."
+"I didn't know that. I mean, I don't have anything to compare it to..."
 
-When I pouted, Ritsu grinned, narrowing her eyes.
+Lips pursed, I said it, and Ritsu-san narrowed her eyes, sly.
 
-"What? Did Yui complain about something?"
+"What, did Yui complain about something?"
 
-"It's not that exactly..."
+"It's not that, exactly, but..."
 
-　I'm not sure if I'm satisfying Yui-san, being so inexperienced myself. She's so experienced that it makes me anxious.\
-She said she was satisfied the other day, but was she really?\
-Yui-san knows I'm not naturally good at sex. She's kind, so maybe she just can't bring herself to say she's dissatisfied.\
-In fact, just the other day, she told me, "Two weeks without is impossible." I'd been so preoccupied with Yui-san's birthday that I hadn't given it a moment's thought.\
-Yui-san is the type who expresses her affection abundantly. So I suppose spending the night together is just an extension of that.\
-But is it really okay for it to be so one-sided?\
-There aren't any female couples around me to ask, so I had no one to consult and no idea what the right answer was.
+Not being used to this kind of thing myself, I have no idea whether I'm actually satisfying Yui-san. Since she's so much more experienced, I can't help feeling anxious about it.\
+Last time I asked, she said she was satisfied — but was that actually true?\
+Yui-san knows I was never particularly good at this kind of thing to begin with. She's kind, so maybe she just can't bring herself to say it even if she's actually dissatisfied.\
+If anything, just the other day, she'd said, "I can't wait two whole weeks." I'd been so caught up thinking about Yui-san's birthday, I hadn't even considered that at all.\
+Yui-san's the type who expresses affection constantly, in all kinds of ways. So I figure spending nights together is probably just an extension of that same instinct.\
+But is it really okay for that to be entirely one-sided?\
+There's no other couple around me who are both women, so I have no one to ask, and no way to know what "correct" even looks like here.
 
-I broke up with my last boyfriend because he cheated on me over sex. Of course, I know Yui-san isn't the type to cheat, but I can't help wondering if I'm satisfying her... And, well, it's always me receiving, so I keep thinking, is that really alright...
+"My ex before Yui-san cheated on me, and sex was part of the reason we broke up. Of course, I know Yui-san's not someone who'd ever cheat, but I still can't help worrying — whether she's actually satisfied with me. And also, um, it's always her doing everything for me, so I wonder if that's really okay either..."
 
-　Yui-san's ex was apparently older, so she probably wasn't as inexperienced as me. What if she thinks I'm not enough? The happier I am, the more I find myself thinking these things.
+Yui-san's ex was apparently older than her, and probably not inexperienced the way I am. What if she thinks I'm not enough? The happier I get, the more I find myself thinking things like that.
 
-Munching on boiled edamame, Ritsu-san blinked, her eyes widening.
+Munching on salted edamame, Ritsu-san blinked, wide-eyed.
 
-"That's what you're worried about? That'll be fine, I reckon. I don't think Yui wants you to do anything for her, not even a millimetre..."
+"That's what you're worried about? That's obviously fine. There's no way Yui thinks she wants you to do more for her, not even a little bit..."
 
-"Is... is that how it is?"
+"I-is that how it works?"
 
-When I asked back, Ritsu took a big gulp of beer, then grinned as if she'd thought of something. I recognised that look in her eyes, and it gave me a bad feeling.
+I asked back, and Ritsu-san took a big gulp of beer, then grinned, sly, like she'd just thought of something. I recognized that look — a bad feeling crept in.
 
-"Come to think of it, you're staying over for Yui's birthday, right? Well then... why not just... push Yui down yourself, Kanata-chan?"
+"Come to think of it, you're staying over for Yui's birthday, right? In that case... why not try pushing Yui down yourself?"
 
 "Eh?"
 
-I hadn't expected her to say something like that and was startled. Push her down...? Me, pushing Yui-san...?
+Never expecting to hear something like that, I froze, startled. Push her down...? Me... pushing down Yui-san...?
 
-　The instant I imagined it, I felt my face flush fiercely. Could I really push down that Yui-san? Could I possibly do such a thing?
+The moment I pictured it, I could feel my face going hot, fast. Could I actually do something like that, to Yui-san of all people?
 
-The first time I had sex with Yui-san... I did make the first move. But back then, I didn't even know how little I could handle alcohol. I'd drunk way beyond my limit, got completely plastered, and I think I was feeling rather bold.
+The first time I ever slept with Yui-san... it's true, I was the one who pushed for it. But back then, I didn't even know yet how weak I was to alcohol, and I think being that thoroughly drunk had just made me bold.
 
-Sober? There's no way I could do it.
+Sober, there's no way I could possibly pull off something like that.
 
-"If you want to know how Yui feels, you just have to act, don't you? Try it and see how she reacts."
+"If you want to know how Yui really feels, actions speak louder than words, don't they? Just try it and see how she reacts."
 
-But... but... I almost blurted out excuses like that.
+*But*, or *I mean* — excuses like that kept threatening to spill out.
 
-Come to think of it, I made a promise to Yui-san. On her birthday, I promised to "do anything she asked".\
-There's no way that Yui-san would forget such a promise. She'll definitely make some kind of move on the day.\
-　So maybe it wouldn't be such a bad idea for me to make the first move. Whether I can actually do it or not, well, that's another matter.
+Come to think of it, I'd made a promise to Yui-san. That on her birthday, I'd "do whatever she asked."\
+There's no way Yui-san would forget a promise like that. She's bound to make some kind of move on the day itself.\
+If that's the case, maybe taking the initiative myself, going first, wouldn't be such a bad idea after all. Whether I could actually pull it off — that's a separate question, for now.
 
-"I'll... try my best, as far as I can."
+"I'll... try my best. As far as I can manage."
 
-When I said that, Ritsu-san chuckled, sounding rather amused.
+At that, Ritsu-san burst out laughing, delighted.
 
-"You think it's none of your business," I puffed out my cheeks. But — to be honest, I was a little bit like that too.\
-I found myself wanting to see how Yui-san would react.
+Easy for you to say, since it's not your problem, I thought, puffing my cheeks out. But — honestly, if I'm being truthful with myself, just a little.\
+I found myself wanting to see, too. Exactly how Yui-san would react.

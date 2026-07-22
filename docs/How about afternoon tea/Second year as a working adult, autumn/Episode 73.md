@@ -1,249 +1,252 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 20
+nav_order: 2
 parent: Second year as a working adult, autumn
 sequence: 77
-title: 'Episode 73: Cheating is Not Good'
+title: 'Episode Seventy-Three: Cheating Is Not Okay'
 ---
-Episode 73: Cheating is Not Good
+## Episode Seventy-Three: Cheating Is Not Okay
 
-On a Friday evening, the autumn breeze felt pleasantly cool. Staff from the head office had gathered at the company's own hotel in Tokyo, renowned for its beer garden.
+\
+A pleasant autumn breeze cooled the evening air. Friday night, and staff from headquarters had all gathered on the rooftop beer garden of our own company's proudly showcased hotel.
 
-"Right then, let's raise a toast to the tremendous success of our new branch!"
+"To the resounding success of the new store — cheers!!"
 
-The sound of glasses clinking echoed as the Sales Division Director led the toast.
+At the sales division head's toast, the sound of clinking mugs rang out all around.
 
-"Right then, Aosawa-chan, cheers!"
+"Here, Aozawa-chan, cheers!"
 
-She gently clinked her glass against the beer mug Mitsuya-san cheerfully offered. Watching Mitsuya-san gulp down her beer, she also clinked her lemon sour glass against the mug Seno-san had kindly offered with a "Cheers".
+Mitsuya-san held out her beer mug, delighted, and I clinked my glass against it, more modestly. Watching her gulp the beer down eagerly, I turned and clinked glasses too with Seno-san, who held out her own mug with a gentler "cheers," my lemon sour glass ringing against it.
 
-　Today was the day for the drinks party celebrating the new branch's great success. Participation was voluntary, and with the company covering all expenses, quite a number of people had turned up; the attendance rate seemed rather high.
+Today was a celebration for the new store's runaway success. Attendance was optional, and the whole thing was on the company's dime, so turnout looked impressively high.
 
-My department is currently attached to the president's office, but today I'd sneaked over to my old stomping ground, the Budget Management Section.
+Officially, my department now reads as "President's Office," but tonight I'd snuck over to my old home base — budget management.
 
-　Yui-san seemed intent on going round each table to thank the staff. "If you stay with me, you won't get any time to eat," she said, sending me off with, "Go and eat with the Budget Management Department ladies." Gratefully, I took her up on the offer.
+Yui-san apparently planned to make the rounds, table by table, thanking the staff, and had sent me off with, "You won't get to eat a thing if you stay with me, so go eat with the budget management crew" — so I'd gratefully taken her up on it.
 
-Mitsuya-san flipped thick slices of meat sizzling on the grill with tongs.
+Mitsuya-san flipped a thick slab of meat with her tongs, sizzling loudly on the grill.
 
-　It was a shame Manager Yamazato couldn't join us today as she had to pick up her child.
+Manager Yamasato had to pick up her kid today, so she couldn't make it — a shame.
 
-Placing sliced onions onto the grill with heavy metal chopsticks, I glanced at the two of them.
+Laying sliced onion rings onto the grill with heavy metal chopsticks, I glanced between the two of them.
 
-"Mitsuya-san, Seno-san. I've been meaning to apologise for ages. I'm terribly sorry that my departure meant you both had to work overtime. So, no successor has been decided yet?"
+"Mitsuya-san, Seno-san. I've been meaning to apologize this whole time — because I left, you two ended up covering overtime. I'm really sorry. Still no replacement decided, huh?"
 
-I'd noticed the increase in their overtime since I left, having checked the departmental accounting data.\
-It wasn't just once or twice I'd seen Seno-san, whose motto was surely 'leaving on time without fail', still at her desk past six.
+I'd noticed, checking the department-level accounting data, that overtime had crept up for both of them since I left.\
+Seno-san, who'd always sworn by leaving right on the dot, I'd seen at her desk well past six more than once or twice.
 
-　Even if Manager Yamazato is a superwoman at her job, she's on reduced hours, and there's a limit to how much she can handle.
+However capable a superwoman Manager Yamasato is, working shortened hours puts a hard cap on how much she can actually take on herself.
 
-I'd imagined the burden would fall on the two of them, but I hadn't anticipated at all that a replacement still wouldn't be decided.
+I'd expected some burden would fall on the two of them — but I never expected a replacement wouldn't be settled even this long after.
 
-As she took a sip from her beer mug, Seno-san's eyes widened in surprise.
+Beer mug at her lips, Seno-san blinked, wide-eyed.
 
-"Why are you apologising, Aosawa-san? It's not your fault I'm working overtime, is it?"
+"Why are you apologizing, Aozawa-san? The overtime's not your fault."
 
-I hadn't expected her to say that, and I couldn't help letting out a startled "Eh?"
+Not the reaction I'd braced for, and a small "eh" slipped out of me before I could stop it.
 
-Then Mitsuya-san, biting into a yakitori skewer, fixed her gaze on me.
+At that, Mitsuya-san, biting into a yakitori skewer, looked at me too.
 
-"It's not your fault, Aosawa-chan. We're working overtime because Seno-san is slow at her job, after all."
+"Not your fault, Aozawa-chan. The overtime's because Seno-san's slow at her work."
 
-　Her words were like arrows, piercingly sharp, and I found myself at a loss for words, offering only a wry smile. Seno-san then pouted her lips in displeasure.
+A sharp, arrow-straight jab, and I laughed, awkward, not knowing how to respond. Seno-san's lips pursed, displeased.
 
-"That's not the way to put it, is it? Unlike you, I'm thorough."
+"Not exactly a nice way to put it, is it~? Unlike you, I'm thorough."
 
-Hearing that, I recalled Seno-san's work habits. Indeed, her desk was always immaculately organised, her work meticulous, and I'd never once heard of a mistake in her paperwork.
+Told that, I thought back over Seno-san's actual work. It's true — her desk is always kept neat and organized, her work meticulous, and I've never once heard of a mistake on her paperwork.
 
-　I'd thought she and Mitsuya-san clashed, but perhaps it was simply a difference in their approach to work causing friction.
+I'd always thought Mitsuya-san and Seno-san simply didn't get along — but maybe it's just a difference in work style, clashing head-on.
 
-After teasing Mitsuya-san, Seno-san turned back to me.
+After sniping back at Mitsuya-san, Seno-san turned to face me instead.
 
-"Manager Yamazato seems to be carefully vetting the successor, so I don't think you need to worry. She's quite keen on training people, so I imagine she wants to choose a subordinate she can nurture."
+"About the replacement — Manager Yamasato's apparently just being careful about who she picks, so don't worry about it too much~. She's the type who takes training seriously, so I think she wants to be selective about who she brings on."
 
-It was true, Manager Yamazato was a skilled mentor, I recalled.\
-　Mitsuya-san, who transferred over with me, was already a capable worker back at the previous company.\
-Manager Yamazato saw that in an instant after working with her just a little, and after minimal training, assigned her tasks appropriately as an immediate asset.
+Right — Manager Yamasato really was skilled at guidance, I remembered, thinking back.\
+Mitsuya-san, who'd transferred over with me, had already been a capable worker even at our old company.\
+After working together only briefly, Manager Yamasato had picked up on that instantly, kept the training light, and assigned her real, immediately useful work right away.
 
-Someone who can adapt their training approach to suit their subordinates. That's the image I admired in Manager Yamazato.
+Someone who adjusts her whole training approach based on the person under her. That's the image of Manager Yamasato I admire.
 
-"But more importantly—"
+"More importantly, though—"
 
-After setting her mug down with a clunk, Seno-san suddenly leaned in close to me, making me flinch in surprise.
+Setting her mug down on the table with a small clink, Seno-san leaned in close toward me, and I flinched back, startled.
 
-She grinned, narrowing her eyes, then fixed her gaze intently on my chest.
+Narrowing her eyes into a sly grin, her gaze fixed, unblinking, on my chest.
 
-"Aosawa-san, have you finally got a boyfriend?"
+"Aozawa-san, did you finally get yourself a partner?"
 
 "Eh!?"
 
-Mitsuya-san, sitting next to us, let out a startled cry. Realising her gaze was fixed on the necklace at my neckline, I instinctively looked away.
+Mitsuya-san, seated beside me, let out a startled squawk. I realized her gaze had landed on the necklace at my chest and, unbidden, my eyes went wandering.
 
-"What what, Aosawa-chan, you finally got a boyfriend? Why didn't you tell us!?"
+"What, what, Aozawa-chan, you finally got a boyfriend? Why didn't you say anything!?"
 
-"Er, um, hold on a moment. I never said I had a boyfriend..."
+"Eh, um, wait a second. I never said anything about actually having a partner..."
 
-"I mean, who else but a boyfriend would give you such an expensive necklace as a present when it's not even your birthday?"
+"But there's no way anyone but a partner would buy you a necklace that expensive, and not even for your birthday, right?"
 
-Her full lips curved into a smile. Ugh, I was at a loss for words. Surely she hadn't realised this was Yui-san's necklace, but Seno-san really was sharp.
+Her full lips curved into an arc. My breath caught in my throat, *ugh.* Surely she hadn't figured out it was Yui-san's own necklace — but Seno-san really does have sharp eyes.
 
-Just like when she noticed the earrings, she seemed to instantly see through things – whether they were gifts and how expensive they were.
+Same as when she'd noticed my earrings — she has a real knack for instantly clocking that something's a gift, and an expensive one at that.
 
-"No, this... well..."
+"No, um, this is..."
 
-I could say it was a gift from my boyfriend, but the problem was whether I could cover it up without giving myself away.
+I could just say it was a gift from my partner — the real issue was whether I could actually pull off deflecting without slipping up somewhere.
 
-I didn't want to cause trouble for Yui-san, so this relationship absolutely couldn't be mentioned to anyone at work.
+I don't want to cause Yui-san any trouble, so I absolutely can't let this relationship out to anyone at the office.
 
-"Aosawa-chan, you really were born under a star that attracts wealthy people, weren't you?"
+"Aozawa-chan, you must've been born under some kind of lucky star for attracting rich people."
 
-　Saying that, Mitsuya-san cut a thick slice of cooked meat and placed it on my plate.
+Saying that, Mitsuya-san served me a generously grilled, thick slice of meat.
 
-What does it mean to be born under a star favoured by the wealthy? As I tilted my head in confusion, Seno-san asked Mitsuya-san, "Are there other wealthy people who fancy Aosawa-san?"
+Lucky star for rich people — what does that even mean? I tilted my head, and Seno-san asked Mitsuya-san, "Is there someone else rich who likes Aozawa-san too?"
 
-Honestly, apart from Yui-san, I don't know any wealthy people, and I can't think of anyone. Wondering who she could be referring to, Mitsuya-san narrowed her slanted eyes further and said,
+Honestly, aside from Yui-san, I don't know a single rich person, and nothing comes to mind. Wondering who they could possibly mean, I watched Mitsuya-san's narrow eyes go even sharper.
 
-"Ever since you were at your last company, Aosawa-chan, you were always being courted by Niiyama-san."
+"Since the old company, Aozawa-chan's been getting courted this whole time, by Niiyama-kun."
 
-Niiyama-san?
+Niiyama-san — ?
 
-I recalled the male employee, three years my senior, whose hair was slicked back with so much wax it reflected the lights. I disliked him and had no interest in him, so I hadn't known. So Niiyama-san was wealthy.
+I remembered him, hair slicked flat and shiny enough with wax to catch the light — a male coworker, three years my senior. I'd never liked him, never had any interest, so I hadn't known. Niiyama-san was rich, apparently.
 
-"Niiyama-san, from the production department? He was rich?"
+"Niiyama-san, from production? He was rich?"
 
-Seno-san said this with apparent interest, and Mitsuya-san gave a slight twitch, raising one perfectly groomed eyebrow.
+Seno-san asked, sounding genuinely intrigued, and Mitsuya-san's neat brow twitched up, faint.
 
-"Ah... I hear he's a landowner's son. What, are you interested? If so, why not approach him? Aosawa-chan doesn't seem inclined to entertain Niiyama-san's advances, and you'd make a rather suitable pair."
+"Ah... apparently he's the son of some big landowner. What, are you interested? Go ahead and hit on him, then. Aozawa-chan clearly has zero interest in him, so you two'd be a good match."
 
-"...What's with that tone? Making me sound like I have no principles."
+"...What's that supposed to mean? Making me sound like I've got no standards."
 
-"But you do like rich people, don't you?"
+"Well, you do like rich people, don't you."
 
-Mitsuya-san said this looking rather displeased, emptying her beer mug, which made me feel a little uneasy. I'd never heard Mitsuya-san talk about love before, and there was something odd about her attitude now.
+Mitsuya-san said it, faintly irritated, and drained her mug empty, and something about it made me faintly uneasy. I'd never once heard Mitsuya-san talk about her own love life before, and this reaction felt off, somehow.
 
-—Could it be... Mitsuya-san likes Niiyama-san...?
+—Could it be... does Mitsuya-san actually like Niiyama-san?
 
-Mitsuya-san's dismissive remark seemed to momentarily wound Seno-san. Sensing the atmosphere turning sour, I swallowed my meat as best I could and opened my mouth to mediate between them.
+At Mitsuya-san's careless jab, Seno-san's face flickered, just for an instant, with something like hurt. Sensing the mood about to sour badly, I forced down the meat in my mouth and opened my own, meaning to smooth things over between them.
 
-It was at that very moment.
+That was exactly the moment.
 
-"Well, speak of the devil."
+"Ah, speak of the devil."
 
-I followed the direction Mitsuya-san pointed with his chopsticks.
+I followed the direction Mitsuya-san's chopsticks pointed.
 
-"Aosawa-san, Mitsuya-san, and Seno-san, good evening."
+"Aozawa-san, Mitsuya-san, Seno-san, good work today."
 
-Standing there, beer mug in hand, was Niiyama-san, wearing his characteristic smile that seemed to lift one side of his cheek.
+Beer mug in one hand, that distinctive lopsided half-grin on his face, there stood Niiyama-san.
 
-"Ah, good evening..."
+"Ah, good work..."
 
 "Mind if I sit here?"
 
-Before I could say yes or no, Niiyama-san pulled out the chair next to me and sat down.\
-I couldn't help but give a wry smile at his timing.\
-After all, just now, Mitsuya-san and Seno-san had been on the verge of arguing over Niiyama-san.
+Before I could say yes or no, Niiyama-san pulled out the chair beside me and sat down.\
+Of all timing, I thought, forcing a wry laugh.\
+Because right now, Mitsuya-san and Seno-san had been on the verge of a real spat, of all things, over the subject of Niiyama-san himself.
 
-"Right then, cheers."
+"Cheers, then."
 
-I clinked my glass against the mug he offered and gave a slight bow.
+I clinked my glass against his raised mug and gave a small nod.
 
-"I've been rather busy lately, Aosawa-san, so it's been a shame we haven't had much chance to talk. You're always with the president, after all."
+"You've been busy lately, Aozawa-san, so we haven't gotten to talk much. Kind of a shame. You're always with the president these days."
 
-"Well, that's only natural for the president's secretary, isn't it?"
+"Well, of course, since she's her secretary."
 
-When Mitsuya-san said that, Niiyama-san laughed. I was sure Niiyama-san was a year senior to Mitsuya-san, but she wasn't using honorifics. Come to think of it, these two might have been close for a long time.\
-　But — Mitsuya, silently stuffing her face with meat, just didn't look like she fancied Niiyama-san at all...
+Mitsuya-san said it, and Niiyama-san laughed. I remembered Niiyama-san was one year above Mitsuya-san — and he wasn't using formal speech with her at all. Thinking back, maybe these two had always been friendly.\
+But — watching Mitsuya-san silently working through her meat, she still doesn't look like someone who actually likes Niiyama-san...
 
-"Aosawa-san's amazing, isn't she? I was really surprised. Heard there were loads of applicants for the president's secretary position."
+"Aozawa-san, you're really impressive, you know. I was shocked. Heard there were a ton of applicants for the secretary posting."
 
-It wasn't so much that she'd earned it through merit as that she'd bluffed her way into the seat, but I couldn't say that, so I just laughed it off.
+Less "earned it through merit" and more "half-blackmailed my way into the chair" — but I couldn't say that, so I laughed it off instead.
 
 "Thank you."
 
-Just as I was thinking to brush it off and change the subject, Mitsuya-san sighed and turned back to Niiyama-san.
+Just as I was thinking I should deflect and wrap up this conversation, Mitsuya-san let out a sigh and turned to face Niiyama-san.
 
-"Niiyama-kun, you really ought to stop pestering Aosawa-chan. It's making her uncomfortable."
+"Niiyama-kun, seriously, quit hitting on Aozawa-chan already. She's uncomfortable."
 
-After saying this, as if shielding me, Mitsuya-san shot a glare at Seno-san.
+Mitsuya-san said it, defending me — and then shot a sharp glance toward Seno-san.
 
-"...If you're going to flirt, why not try Seno-san? You'd make a good match."
+"...If you're going to hit on someone, go for Seno-san instead. You'd suit each other."
 
 "Eh?"
 
-The moment the criticism ricocheted, Seno-san, unusually, visibly furrowed his brow.
+Caught in the crossfire, Seno-san, rare for her, visibly frowned, brows drawn tight.
 
-"Hold on, Kaori—"
+"Hey, wait, Kaori—"
 
-"...I'm going for a smoke."
+"...Going for a smoke."
 
-Saying that, Mitsuya-san stood up. Wait a moment, please, Mitsuya-san. Don't leave me behind in this atmosphere—\
-Unnoticing my pleading gaze, she stuffed the cigarette packet she'd left on the table into her pocket and walked away.
+Saying that, Mitsuya-san stood. Wait, please, Mitsuya-san. Please don't leave me behind in a mood like this—\
+Not noticing my pleading look at all, she shoved her cigarette pack, which had been sitting on the table, into her pocket and walked off.
 
-"Hey, wait up!"
+"Hold on, wait!"
 
-With a clatter, Seno-san too went after Mitsuya-san's retreating back.\
-Wait, don't leave me behind too, Seno-san. If Yui-san were to see me alone with Niiyama-san...
+With a loud scrape of her chair, Seno-san shot up too, chasing after Mitsuya-san's back.\
+Wait, Seno-san too, don't leave me behind either. If Yui-san saw me alone with Niiyama-san right now—
 
-"What's she angry about?"
+"What's she so mad about?"
 
-Just as Niiyama-san tilted his head, a hand landed on my shoulder. Startled, I spun round.\
-　Looking up, Yui-san was standing right beside me.
+Right as Niiyama-san tilted his head, puzzled, a hand landed on my shoulder, and, startled, I turned.\
+Looking up, right beside me stood Yui-san.
 
-"Th-The President...!?"
+"P-President...!?"
 
-I thought my breath might stop. Yui-san peered at my face with a bright smile — but her eyes weren't smiling at all.
+I nearly forgot to breathe. Yui-san, smiling brightly, peered into my face — our eyes met, but that smile never once reached her eyes.
 
-"Good work today, Niiyama-san."
+"Niiyama-san, good work today."
 
-"Good work today, President."
+"Good work, President."
 
-"What an unusual pairing. Why are you sitting at this table, Niiyama-san?"
+"Unusual combination. Niiyama-san, why are you at this table?"
 
-Yui-san asked this with a smooth smile, and her words stung my ears. I don't think she's angry about us being at the same table... I think she's asking without any ill intent, but my awareness fixates on the warmth of that hand still resting on my shoulder.
+Yui-san asked, easy, smiling, and the question pricked, sharp, at my ears. I don't think she's actually upset about the two of us sitting together — I'm sure it's an innocent question — but I couldn't stop myself from fixating on the heat of that hand, still resting on my shoulder.
 
-"I just fancied catching up with Aosawa-san after so long. We were quite close back at the old company, chatting often. Right?"
+"Wanted to catch up with Aozawa-san, it's been a while. We were close back at our old company, talked a lot. Right?"
 
-Asked for agreement, I gave a wry smile. No, even if we did talk, it was just small talk. We weren't actually close.\
-What should I do? Please, don't say anything else that might fuel Yui-san's jealousy.
+Asked for agreement, I laughed, awkward. Well, "talked a lot" is a stretch — it was small talk at best, never actually close.\
+What do I do, please, don't say anything else that might stoke Yui-san's jealousy any further.
 
-　Because the other night — it was awful. Yui-san is usually so incredibly kind, but when that switch flips, she becomes like a different person, so mean.\
-If I kept being held like that, I felt like some strange door inside me I didn't even know existed would be forced open. It was terrifying. Just remembering it makes my face flush.
+Because — the other night had been *rough.* Yui-san's always so gentle normally, but once some switch flips, she turns into a completely different, teasing, relentless person.\
+If I get held like that again, I'm scared some strange door inside myself, one I don't even know about, might get forced open for good. Just remembering it makes my face heat up.
 
-　I know all that jealousy stems from love, but Yui in that mode is a bit... too intense for someone as inexperienced as me.
+I know the jealousy all comes from love. But that particular mode of Yui-san's is a little... too intense, for someone with as little experience as me.
 
-Yui slid her palm over my shoulder as I stood there, troubled and offering only a wry smile, and opened her mouth.
+Watching me just laugh, troubled, unable to answer, Yui-san's palm slid gently across my shoulder, and she spoke.
 
-"Hmm, I see. But didn't you say you had a girlfriend, Aosawa-san? Cheating isn't good, you know."
+"Hmm, is that so. But Aozawa-san, didn't you say you had a partner? Cheating is not okay."
 
 "Eh!?"
 
-I couldn't help but turn to look at Yui, thinking, Blimey, Yui, what are you saying?
+Wait, Yui-san, what are you even saying — I turned to her, unable to help it.
 
-"Really!? Aosawa-san had a girlfriend?"
+"Really!? Aozawa-san, you have a partner?"
 
-As Niiyama-san pressed me with his questions, I just... well, I thought, whatever happens, happens, and nodded with a wry smile.
+Niiyama-san pressed, leaning in, and I — deciding, whatever, at this point, come what may — nodded, laughing weakly.
 
-"A-actually... yes, I did get a girlfriend recently."
+"A-actually... yes. I recently started dating someone."
 
-At that, Niiyama-san slumped, his shoulders dropping dramatically. Seeing him like that, Yui-san beamed, looking thoroughly satisfied.
+At that, Niiyama-san's shoulders sagged, deflated. Watching him, Yui-san smiled, satisfied, delighted.
 
-　After Niiyama-san staggered away from the table, a little while later, Mitsuya-san and Seno-san returned. Neither of them made eye contact at all, making me wonder if they'd had a row. But then again, these two always make up quickly...\
-Probably best not to dwell on it. As they say, 'couples' quarrels are of no interest to anyone'.
+*
 
-　Yui-san had moved on to the next table, and just as it seemed the gathering was drawing to a close, my phone buzzed.
+After Niiyama-san drifted off, unsteady, Mitsuya-san and Seno-san came back after a while. Neither one would meet the other's eyes, and I found myself wondering, suspicious, whether they'd actually fought. Well, but these two always make up fast anyway...\
+Probably better not to worry about it too much. As they say — even a dog wouldn't touch a couple's spat.
 
-　It was a message from Yui-san, and I couldn't help but smile.
+Yui-san moved on to the next table too, and just as the gathering was winding down, my phone buzzed.
 
-——I'll give you a lift home, so let's meet at the station after we finish.
+A message from Yui-san, and my cheeks softened, unbidden.
 
-I usually stay at Yui-san's place on Friday nights, but I'd told her I was going back to my own flat tonight because I'd arranged to meet Yuri tomorrow.
+*I'll take you home, so let's meet at the station once this wraps up.*
 
-It's only a few stops to my place, but Yui-san really is kind.
+Normally I'd stay over at Yui-san's place starting Friday night, but I'd told her I was headed back to my own apartment tonight, since I'd promised to hang out with Yuuri tomorrow.
 
-——I'll wait at the station.
+Home's only a few stations away, and yet Yui-san's genuinely, endlessly kind.
 
-After replying, I downed the last of my lemon sour in one gulp and tucked my phone into my pocket.
+*Waiting at the station.*
 
-With the sales director's interminably long closing speech playing in the background, I watched my girlfriend from a distance, the most beautiful and radiant person in the room.
+Replying that, I drained the last of the lemon sour in my glass in one go and tucked my phone back into my pocket.
 
-I just wanted to be alone with her soon... Honestly, that's all I could think about.
+With the sales division head's endless closing remarks playing as background noise, I watched, from a distance, my girlfriend — more beautiful, more radiant than anyone else here.
+
+I want to be alone with her soon... that's all I could think about, the whole rest of the night.
