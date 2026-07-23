@@ -141,11 +141,11 @@ Ah — it finally hit me, properly, that right now, I have Yui-san all to myself
 
 Following where Yui-san had stopped, I looked up at the grand facade of a luxury jewelry shop and nearly forgot to breathe.
 
-"What's wrong, let's go in."
+"What's wrong? Let's go in."
 
 Our joined hands tugged, and I snapped back to myself. Startled, I pulled back and stopped her.
 
-"Stop, stop! Yui-san, your choice of shop is insane! This place is a whole different league!"
+"Stop, stop! Yui-san, your choice of shop is insane! This place is in a whole different league!"
 
 Buying a necklace here would be far more than a few tens of thousands of yen.
 

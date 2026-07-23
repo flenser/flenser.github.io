@@ -31,7 +31,7 @@ Even at the fireworks, she'd broken her promise not to do anything and kissed me
 
 I asked my own heart, pounding hard enough to be almost funny.
 
-Why is it racing like this. If I don't want to do this, I could just stop.
+Why is it racing like this? If I don't want to do this, I could just stop.
 
 Yui-san would never force me into anything. She always respects what I actually want.
 
@@ -43,7 +43,7 @@ I took a deep breath, reached back, and unhooked my bra. Slid it off my arms and
 
 In the basket beside mine, her clothes sat neatly folded, and the sight of it felt oddly, viscerally real.
 
-What do I do, my heart's really racing. This is starting to feel like I'm actually expecting something to happen.
+What do I do? My heart's really racing. This is starting to feel like I'm actually expecting something to happen.
 
 Just keep a composed face, that's all I need to do. It's exactly because I get flustered that Yui-san finds it fun to tease me.
 

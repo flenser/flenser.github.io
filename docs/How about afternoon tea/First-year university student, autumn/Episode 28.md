@@ -14,7 +14,7 @@ The whole trip was funded by Yukiya-san, and since this was ostensibly Yui-san's
 Same as always, really. I just let myself be led along, hand in hand.\
 By the time I registered it, we were already on the limited express bound for Hakone-Yumoto.
 
-Unlike an ordinary train, the wide, view-forward seating made for a wonderfully smooth ride, and I found myself genuinely impressed — this really was a "Romancecar," living up to the name.
+Unlike an ordinary train, the wide, front facing seating made for a wonderfully smooth ride, and I found myself genuinely impressed — this really was a "Romance carriage," living up to its name.
 
 As if it were only natural, she'd given me the window seat without a second thought. Kind as ever, today too.
 
@@ -34,7 +34,7 @@ Startled, I wondered — is Yui-san always like this?
 
 I took a sip through the straw. She'd told me once that she was the "devoted, goes-all-in type" — and honestly, at first, I'd taken that with a grain of salt.
 
-But now, I finally believe it.
+But now, I'm starting to believe it.
 
 It wasn't a lie. If she's already this endlessly kind without us even dating, I genuinely wonder what she'd be like if we actually were.
 
@@ -73,7 +73,7 @@ The sky through the window stretched endlessly blue. Once autumn ends, winter wi
 The train took an hour and a half to reach our destination. Unable to hold back my excitement, I tugged Yui-san's hand and pulled her through the ticket gate.
 
 From the house all the way to Shinjuku Station, I'd just let myself be led along by Yui-san's hand — but once we actually arrived, that was no longer an issue at all.\
-Honestly, I still can't remember train transfers to save my life. The London Underground was still simpler than Tokyo's, by comparison.
+Honestly, I still can't remember train transfers to save my life. The London Underground was still less confusing than the Tokyo Metro, by comparison.
 
 "C'mon, Yui-san, hurry up."
 
@@ -119,7 +119,7 @@ Maybe she already understands everything. Maybe she already knows all the things
 
 But real feelings are something you can only learn by actually asking the person.
 
-All I'd need to do is ask, plainly — *please tell me the real reason you don't do girlfriends* — and yet I never have the courage to actually confirm it, and just keep wavering instead, and I know full well that's entirely my own fault, being this much of a coward.
+All I'd need to do is ask, plainly — *please tell me the real reason you won't get a girlfriend* — and yet I never have the courage to actually confirm it, and just keep wavering instead, and I know full well that's entirely my own fault, being this much of a coward.
 
 *
 
@@ -145,7 +145,7 @@ Evening was starting to settle in. Stepping outside and sitting in the chairs on
 
 "Can you see it from the main bathhouse too, I wonder?"
 
-"Might be visible if you go in the morning. Dinner's from six-thirty, they said earlier, so there's no time to go right now."
+"It might be visible if you go in the morning. Dinner's from six-thirty, they said earlier, so there's no time to go right now."
 
 Yui-san said it, checking her watch. A morning bath sounds nice too. If the two of us could actually go in together, that would be wonderful, I found myself thinking.
 
@@ -171,7 +171,7 @@ Yui-san pulled me in close, hugging me tight.
 
 I pushed at her shoulder to hide my embarrassment. Her kind eyes were watching me.
 
-What kind of expression must I look like, from where Yui-san's standing?
+What kind of expression was my face wearing, from where Yui-san's standing?
 
 Maybe I'm doing this too — letting my own gaze overflow, unguarded, with something like fondness, the same way hers does.
 
@@ -205,7 +205,7 @@ Hearing that, I found myself remembering the first time Yui-san had kissed me, d
 
 The sashimi was delicious too, and watching Yui-san in such a good mood made me happy as well.
 
-Ah, traveling really is wonderful, I thought. Of course I already know — who you go with matters more than anything else.
+Ah, traveling really is wonderful, I thought. Of course I already knew — who you go with matters more than anything else.
 
 *
 

@@ -193,7 +193,7 @@ Something in me went cold. Of course not. You're not the same at all. Unable to 
 
 The heated kiss sent a sharp, numbing jolt through the back of my head.
 
-Her soft tongue traced along my lips, and, reflexively, I parted them just slightly, and it was effortlessly caught up, twined together, and the sensation sent a shiver racing down my spine.
+Her soft tongue traced along my lips, and, reflexively, I parted them just slightly, and my tongue was effortlessly caught up, tongues twined together, and the sensation sent a shiver racing down my spine.
 
 Whether I'd do this kind of thing with Ritsu-san too. As if. She knows that already.
 

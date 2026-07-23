@@ -117,7 +117,7 @@ Though it's kind of impressive, honestly, how she makes up for that flaw with an
 
 I pointed it out, and Ritsu-san scratched her cheek, awkward. There it is — she goes out drinking with Yui-san all the time, there's no way she wouldn't know.
 
-"Mm... but honestly, if you don't like it, I think you should just say so, clearly. Yui the way she is now would probably actually listen to you, don't you think?"
+"Mm... but honestly, if you don't like it, I think you should just say so, clearly. Yui, the way she is now, would probably actually listen to you, don't you think?"
 
 "I never said... I don't like it..."
 
@@ -205,13 +205,13 @@ I said it, and Hayakawa-kun laughed, self-deprecating.
 
 "...Because they have no intention of ever dating anyone."
 
-"Why would you fall for someone like that. I'd treasure you so much more..."
+"Why would you fall for someone like that? I'd treasure you so much more..."
 
 He turned to face me straight on, his voice edged with something almost accusatory.
 
 I don't know. Hayakawa-kun probably really would treasure me too, but I don't think that's something easily measured against Yui-san.
 
-"Why, huh. ...But I love her. Hopelessly. It's not something logic can explain."
+"Why, huh? ...But I love them. Hopelessly. It's not something logic can explain."
 
 I said it plainly, and Hayakawa-kun bit down on his lip, frustrated.
 
@@ -296,7 +296,7 @@ Once autumn ends and winter comes, I'm sure I'll get to meet a Yui-san I still d
 
 *
 
-Hey, Yui-san. You didn't know this, did you.
+Hey, Yui-san. You didn't know this, did you?
 
 If you'd have loved only me, I would have given you everything I had.
 
