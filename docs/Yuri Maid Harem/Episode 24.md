@@ -61,12 +61,12 @@ If we had staff besides the cast, it'd be different, but we don't have anyone li
 
 Miyuki-san was the first to react to Sora-san's idea — that could work!
 
-"What if we combine it with the earlier event idea and turn it into a whole 'idol event'? Dance videos are easy to post on social media, so there's probably demand for that too. And actually, why not post rehearsal footage on the official account too? Right now Sweet Stella's SNS is honestly a little dry."
+"What if we combine it with the earlier event idea and turn it into a whole 'idol event'? Dance videos are easy to post on social media, so there's probably demand for that too. And actually, why not post rehearsal footage on the official account too? Right now Sweet Stella's account is honestly a little dry."
 
 Currently, Sweet Stella's official account only posts opening/closing hours and the names of the cast working each shift.\
 Each of us has our own personal accounts, but they're not clearly linked to the official Sweet Stella account yet.
 
-"...SNS could work, but if we start posting all kinds of stuff on the shop's official account, the chances go way up that people around us find out we work here. If we're doing this, I want to actually go for real virality on social media too."
+"...Social media could work, but if we start posting all kinds of stuff on the shop's official account, the chances go way up that people around us find out we work here. If we're doing this, I want to actually go for real virality on social media too."
 
 Saying that, Möbius-san checked each of our faces in turn.
 
@@ -82,5 +82,5 @@ I don't have any other friends, and even if the shop's official account posts fa
 "I'm okay with it too! Let's work hard on social media and bring in a ton of new customers...!"\
 "Alright! Then it's decided."
 
-A one-day-only "idol" event, plus a stronger push on the official SNS account.\
+A one-day-only "idol" event, plus a stronger push on the official social media account.\
 That's what got decided at the Sweet Stella Strategy Meeting.
