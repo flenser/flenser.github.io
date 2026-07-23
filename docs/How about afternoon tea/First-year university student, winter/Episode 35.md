@@ -81,19 +81,19 @@ Watching her smile down at me, so pleased, I understood exactly what she was ask
 
 Embarrassed, I gripped the scarf tight and shot back a small jab instead. Well used to my less-than-cute attitude by now, she just tilted her head slightly, watching me steadily.
 
-"I did it for you, didn't I. Your turn."
+"I did it for you, didn't I? Your turn."
 
 "...Are you the type who wants someone to tie your tie for you, Yui-san?"
 
 "I never wear a tie."
 
-"...Your high school uniform had a tie, didn't it. I bet your ex tied it for you at some point."
+"...Your high school uniform had a tie, didn't it? I bet your ex tied it for you at some point."
 
 Even as I said it myself, imagining it made me irritated all over again. I can't even tie a tie myself. Never done it for my own father, either.
 
-"I don't remember something that old. C'mon, hurry, we'll be late heading out."
+"I don't remember something that long ago. C'mon, hurry, we'll be late heading out."
 
-*That old* — as if she could actually forget something from just a few years back. But getting worked up over something this small wouldn't get me anywhere, so I let myself lose, just this once, to her smiling face.
+*That long ago* — as if she could actually forget something from just a few years back. But getting worked up over something this small wouldn't get me anywhere, so I let myself lose, just this once, to her smiling face.
 
 "...Can't be helped. Bend down a little."
 
