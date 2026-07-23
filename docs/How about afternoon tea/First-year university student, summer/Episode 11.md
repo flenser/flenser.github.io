@@ -145,7 +145,7 @@ Even though I'd asked her, over and over, to stop the movie, and she hadn't list
 
 She spread her arms wide on the sofa, smiling, and I gave in and let myself get pulled right back into them.
 
-Her arm wound around my waist, and the moment our bodies pressed close, it felt good again, of course it did.
+Her arm wound around my waist, and the moment our bodies pressed close, it felt good again. Of course it did.
 
 Kindness is a kind of sweetness. And this sweetness is addictive. Once you've had a taste, you can't easily let it go. Truly, an unfair person.
 
