@@ -108,7 +108,7 @@ I could sort of imagine that, I thought. Lately Yui-san's started showing jealou
 
 "She never really complains, which honestly worries me all the time. I wish Yui could live a lot more freely."
 
-　*Freely.* What did that mean, exactly. Free from being bound to their father? Or something else.
+　*Freely.* What did that mean, exactly. Free from being bound to their father? Or something else?
 
 I stared steadily into his eyes. Those deep-colored eyes gave nothing away, no readable emotion at all — even in that, so identical to Yui-san.
 
