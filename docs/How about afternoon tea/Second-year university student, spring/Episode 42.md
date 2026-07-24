@@ -15,7 +15,7 @@ This past year felt like it flew by even faster than my whole year of high schoo
 
 The harsh cold of winter had finally cleared out entirely, and a pleasant breeze now blew through, spring settling in properly.
 
-I walked a step behind Yui-san as she pushed the shopping cart. The shelves were packed tight with liquor bottles, and, without a moment's hesitation, Yui-san dropped a familiar whiskey bottle into the basket.
+I walked a step behind Yui-san as she pushed the shopping cart. The shelves were packed tight with liquor bottles and, without a moment's hesitation, Yui-san dropped a familiar whiskey bottle into the basket.
 
 This was a liquor shop near the house. Apparently one of Yui-san's regular haunts, stocking all kinds of snacks and imported foods.
 
@@ -127,11 +127,11 @@ Her fingers, tracing gently over my earlobe, pulled away, and then, suddenly, he
 
 "H-hold on, Yui-san...! Geez, that's ticklish."
 
-"Earrings, huh. Happy, but also kind of complicated."
+"Earrings, huh. I’m not sure whether to be pleased or feel a bit conflicted."
 
 "Why? You wear them too, Yui-san."
 
-"Take them off once you're home, okay? Makes it harder to do this."
+"Take them off once you're home, okay? Makes it harder to kiss like this."
 
 Yui-san knows perfectly well my ears are sensitive, and doing this anyway is genuinely bad of her. Not that I actually hate it, but it really is ticklish.
 
