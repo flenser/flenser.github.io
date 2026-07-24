@@ -3,7 +3,7 @@ layout: episode-flat
 nav_order: 36
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
 sequence: 37
-title: 'Chapter Three: *"The Clod of Earth Dreams of Snow"* — Part One'
+title: 'Chapter Three: "The Clod of Earth Dreams of Snow" — Part One'
 ---
 ## Chapter Three: *"The Clod of Earth Dreams of Snow"* — Part One
 
