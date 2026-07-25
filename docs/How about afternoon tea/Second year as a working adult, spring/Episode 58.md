@@ -24,7 +24,7 @@ Seno-san doesn't get along with Mitsuya-san, but she's fairly casual and friendl
 
 Seno-san's popular with men, and yet no boyfriend — a little, or actually quite, surprising.
 
-But a mixer, huh — what do I do? Is there a graceful way to turn this down, I wondered, eyes wandering, when Mitsuya-san suddenly pulled me in close by the shoulder.
+But a mixer, huh — what do I do? *Is there a graceful way to turn this down?*, I wondered, eyes wandering, when Mitsuya-san suddenly pulled me in close by the shoulder.
 
 "Seno-san, Aozawa-chan's in the middle of a relationship right now. Don't drag her into bad habits."
 
