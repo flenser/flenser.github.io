@@ -23,7 +23,7 @@ I answered honestly, shoulders slumped. I'd be lying if I said I wasn't discoura
 
 Consoling me, Mitsuya-san patted my back, encouraging. Nostalgic, somehow. Back when I was a total newcomer, every time I made a mistake, Mitsuya-san would pat my back like this to cheer me up.
 
-"But if that's the plan, couldn't he just reject you at the document screening stage? Why go out of his way to call in just you specifically?"
+"But if that's the plan, couldn't she just reject you at the document screening stage? Why go out of her way to call in just you specifically?"
 
 "Strange, isn't it," Manager Yamasato said, tilting her head. Then Seno-san, who'd stayed quiet until now, spoke up with a thin smile.
 

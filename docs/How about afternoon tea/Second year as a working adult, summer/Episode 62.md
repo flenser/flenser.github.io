@@ -22,7 +22,7 @@ Let's do our best at work today, too. I held my employee badge up to the securit
 
 "Morning, Aozawa-san."
 
-At the budget management desk, only Manager Yamasato was in today. Right — Mitsuya-san and Seno-san had both mentioned an overnight training seminar, hadn't they.
+At the budget management desk, only Manager Yamasato was in today. Right — Mitsuya-san and Seno-san had both mentioned an overnight training seminar, hadn't they?
 
 Apparently, since they're in the same department, they'd ended up assigned to the same room, and Mitsuya-san's complaint — "I don't want to share a room with Seno-san" — had stuck firmly in my memory.\
 Tit for tat, Seno-san had made just as much of a fuss — "there's no way I can room with a smoker."
