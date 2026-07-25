@@ -33,9 +33,9 @@ If "predatory" means someone aggressive about romance, that's not me. If anythin
 
 Even with Yui-san, I've always, always been the one getting pushed. Not that I've never made a move myself — but that only ever happened because alcohol had scrambled my head. Not really my natural personality. Probably.
 
-"Just like you advised, Seno-san — I just kept showing up at the president's office, over and over, and told him how serious I was..."
+"Just like you advised, Seno-san — I just kept showing up at the president's office, over and over, and told her how serious I was..."
 
-Sorry, that's a lie. What actually happened was I half-threatened Yui-san into a forced "yes." But there's no way I could say that, so I deflected. At least the "told him how serious I was" part isn't wrong.
+Sorry, that's a lie. What actually happened was I half-threatened Yui-san into a forced "yes." But there's no way I could say that, so I deflected. At least the "told her how serious I was" part isn't wrong.
 
 Hearing my answer, Seno-san smiled, sly.
 
@@ -83,7 +83,7 @@ Curious, I leaned in and whispered to Manager Yamasato.
 
 I see. To Manager Yamasato, who's known Seno-san since before either of us joined this department, that's how the two of them look.\
 I'd assumed, from all the bickering, that they just didn't get along — but maybe, for these two, this really is how it works.\
-Thinking that, I started sipping slowly at my lemon sour. Even after I'm no longer part of the budget management team, I hope we can still come drinking together like this sometimes. Thinking that.
+Thinking that, I started sipping slowly at my lemon sour. Even after I'm no longer part of the budget management team, I hope we can still come drinking together like this sometimes. That's what I'm thinking as I sip my drink.
 
 *
 
