@@ -120,7 +120,7 @@ Sure enough, not a dream. There she was, in a suit, apparently waiting for me, r
 
 "Kanata, good work today."
 
-What do I do, I'm staring. We'd lived together a whole year, so I should have built up at least some resistance to this person's extraordinary beauty... but apparently whatever resistance I'd had disappeared somewhere over these past four years.
+What do I do? I'm staring. We'd lived together a whole year, so I should have built up at least some resistance to this person's extraordinary beauty... but apparently whatever resistance I'd had disappeared somewhere over these past four years.
 
 Yui-san really is beautiful. Genuinely, overwhelmingly. I don't know anyone as beautiful as Yui-san.
 

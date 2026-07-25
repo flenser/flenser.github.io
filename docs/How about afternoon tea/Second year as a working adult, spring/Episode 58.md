@@ -24,7 +24,7 @@ Seno-san doesn't get along with Mitsuya-san, but she's fairly casual and friendl
 
 Seno-san's popular with men, and yet no boyfriend — a little, or actually quite, surprising.
 
-But a mixer, huh — what do I do. Is there a graceful way to turn this down, I wondered, eyes wandering, when Mitsuya-san suddenly pulled me in close by the shoulder.
+But a mixer, huh — what do I do? Is there a graceful way to turn this down, I wondered, eyes wandering, when Mitsuya-san suddenly pulled me in close by the shoulder.
 
 "Seno-san, Aozawa-chan's in the middle of a relationship right now. Don't drag her into bad habits."
 
@@ -42,7 +42,7 @@ Mitsuya-san's narrow eyes sharpened further, and she forced out a strained smile
 
 Not rich, no point dating them, huh. It's true, past mid-twenties, women do tend to get more practical about this kind of thing — I've picked that up from listening to various older women talk.
 
-Love that could run purely on feeling back in college gets harder and harder to sustain, year by year.\
+Love that could run purely on feelings back in college gets harder and harder to sustain, year by year.\
 You start choosing partners by profession, by income, by status.
 
 Not just Seno-san, either — probably true for most women, one way or another.
