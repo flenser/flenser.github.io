@@ -1,195 +1,205 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 180
+nav_order: 18
 parent: Second year as a working adult, winter
 sequence: 107
-title: 'Winter Special 2: There was Dad, there was me, and there was Yui'
+title: "Winter Bonus Chapter Two: There Was Dad, There Was Me, and There Was Yui."
 ---
-Winter Special 2: There was Dad, there was me, and there was Yui
+## Winter Bonus Chapter Two: There Was Dad, There Was Me, and There Was Yui.
 
-Father was there, Mother was there, and I had a younger sister five years my junior.
+\
+There was Dad, there was Mom, and there was a little sister, five years younger than me.
 
-It was an ordinary, commonplace, happy family.\
-My taciturn father was always busy with work and seldom at home.\
-He left earlier than anyone each morning and always returned late. Back then, Father travelled frequently on business, criss-crossing the whole of Japan; he truly was a hard worker.
+An ordinary family, the kind you'd find anywhere, happy in an unremarkable way.\
+Dad, a man of few words, was always buried in work, rarely home.\
+Out earlier than anyone in the morning, always home late. Back then, he traveled constantly for business, crisscrossing the whole country — a genuinely hard worker.
 
-　He wasn't very good with words and wasn't the sort to express his affection directly.\
-But Mum always loved him completely, just as he was.
+He wasn't good with words, wasn't the type to express love plainly, straight out.\
+But Mom loved that man of hers, wholly, completely, without reservation, always.
 
-I never once saw Mum say a bad word about Dad. Quite the opposite, in fact. Mum would always happily tell me about 'Dad's good points' that I didn't know about.
+I never once saw Mom speak ill of Dad. If anything, she'd tell me, happily, about "good things about Dad" I didn't even know myself.
 
-　How he always ate his meals saying they were delicious.\
-How he'd bring home cakes or flowers on ordinary days.\
-How he made time for the family on his days off.
+How he always said the food was delicious, whatever she made.\
+How he'd come home with cake or flowers on some perfectly ordinary day, for no reason at all.\
+How he always carved out time for the family on his days off.
 
-Above all, she'd say with genuine pride, "Dad in his suit is really handsome, isn't he?"
+Above everything else, she'd say it with such genuine, unguarded pride — "your dad in a suit is so handsome, isn't he."
 
-Our home was always filled with a quiet, unquestionable happiness.
+This house we lived in was always, unquestioningly, filled with quiet, ordinary happiness.
 
-　I was twelve, and Yui was still only seven.
+I was twelve. Yui was still seven.
 
-From that day on, the happiness that should have been there as a matter of course collapsed in an instant, vanishing without a trace.
+On that one day, that happiness we'd always taken for granted collapsed, all at once, without a trace left behind.
 
-It was my petty selfishness that triggered the loss of the happiness Dad and Mum had painstakingly built up, the everyday life that should have continued from then on.
+The happiness Dad and Mom had built up, steadily, together — the ordinary days that should have gone on and on — what stripped it all away began with some small, careless selfishness of mine.
 
-　I was racked by a high fever, and every time I slept, I relived terrible nightmares.\
-My joints ached, I couldn't sleep properly, and I felt so alone that I begged Mum to sleep in the same room with me.\
-That was why. Because she'd been nursing me all night, I'd given her my cold.
+Running a high fever, delirious, I kept having terrible nightmares every time I slept.\
+Every joint in my body ached, and, unable to sleep, frightened, I'd begged Mom to sleep in the same room with me.\
+That's why. Because she'd nursed me through the whole night, I'd given her my cold.
 
-　To take me to hospital as my fever stubbornly refused to break, Mum phoned Dad while coughing terribly.
+To take me to the hospital when my fever wouldn't break, Mom, coughing badly herself, had called Dad.
 
-She wanted him to come back.
+Asked him to come home.
 
-But he couldn't. That day, Dad had an absolutely crucial meeting he couldn't miss.\
-Already the company president back then, he simply couldn't come home.
+But it hadn't worked. That day, Dad had an important meeting he absolutely couldn't miss.\
+Already president of the company by then, he simply couldn't make it home, no matter what.
 
-　Staggering into the back seat of the car, Yui sat beside me, looking at me with concern.\
-I distinctly remember Mum's gentle voice saying, "Yukiya, it's alright to sleep."
+Barely conscious, climbing into the back seat of the car, Yui, sitting beside me, watched me, worried.\
+I still remember, clearly, Mom's gentle voice, telling me — "Yukiya, it's fine, go ahead and sleep."
 
-So I closed my eyes, intending to sleep just a little until we reached the hospital.
+So I closed my eyes, meaning only to sleep for a little while, until we reached the hospital.
 
-　But when I next opened my eyes, I was lying in a hospital bed.\
-I didn't understand what had happened, but the stark white ceiling immediately filled my vision, and I realised I wasn't at home.
+*
 
-Sensing someone nearby, I turned my gaze to the bed beside mine.\
-A tiny, tiny hand peeked out from beneath the white quilt. Yui, her arms and body wrapped in painful-looking bandages, was sleeping next to me.
+But the next time I opened my eyes, I was on a hospital bed.\
+I had no idea what had happened, but a pure white ceiling was the first thing that filled my vision, and I realized — this wasn't my own house.
 
-　I tried to whisper her name, Yui, but my voice cracked and failed me.\
-And beside her, my father stood frozen, his eyes bloodshot.
+Sensing someone nearby, I turned toward the bed beside me.\
+Through the gap in the white blanket, a small, small hand was visible. Yui, her arms and body wrapped in painful-looking bandages, slept beside me.
 
-Father was there. I was there. Yui was there.\
-But in this hospital room, only Mother was missing.
+I meant to call her name, small — "Yui" — but my voice came out cracked, no sound at all.\
+And there, right beside her — Dad, eyes bloodshot red, stood, frozen.
 
-I can never forget the cool touch of Mother's hand, the last thing to stroke my forehead.
+*
 
-　Even now, I dream of that day over and over again.
+There was Dad, there was me, there was Yui.
 
-It was the first time I had ever seen Father cry.
+But in that hospital room, only Mom, wasn't there.
 
-He tried to remain strong, but when his voice broke and began to tremble, as if something had caught in his throat, tears streamed uncontrollably from his eyes. Finally, he collapsed to his knees, buried his face in the bed, and wept aloud.
+I've never been able to forget the cool feel of Mom's palm, the last time she stroked my forehead.
 
-It was a wail like the end of the world. And then I understood everything. Why Mum wasn't here.
+Even now, I dream of that day, over and over.
 
-Memories that had been fragmented and broken by the high fever began to connect, piece by piece.
+That was the first time I ever saw Dad cry.
 
-Father called out Mum's name and ours over and over, sobbing as he apologised.\
-For being apart. For not being able to come home. For putting work first.
+He'd tried, at first, to hold himself together — but by the time his voice broke, caught in his throat, tears had already started spilling from his eyes, unstoppable, and finally he collapsed to his knees, buried his face against the bed, and sobbed, loud.
 
-　Repeating his words of repentance over and over, Father kept apologising to us, relentlessly.
+It was a grief like the end of the world. And, hearing it, I understood everything. The reason Mom wasn't there.
 
-Time doesn't rewind. What's lost cannot be regained. Never again.
+The fragmented memories from my feverish delirium slowly connected, piece by piece.
 
-In that hospital room that day, only despair lay there.
+Dad kept calling out Mom's name, and both our names, over and over, choking on his own sobs, apologizing.\
+For being away. For not being able to come home. For putting work first.
+
+Repeating those words of confession, again and again, Dad kept apologizing to us, endlessly.
+
+Time doesn't rewind itself. What's lost can never be recovered. Never again.
+
+In that hospital room, that day, there was nothing but despair.
 
 ＊＊＊
 
-Neither Father nor Yui blamed me.
+Neither Dad nor Yui ever blamed me.
 
-The wake and the funeral passed in a flash, like a paper theatre performance.
+The wake, the funeral — it all passed in a blur, like flipping through a picture book far too fast.
 
-Company associates visited incessantly, keeping Father so busy he scarcely had time to grieve. So I simply stayed by Yui's side, trying to keep her from feeling anxious.
+Company associates came, endless, one after another, and Dad, kept so busy he barely had time to grieve, left me to just stay by Yui's side, keeping her from feeling scared.
 
-　She’d seem fine one moment, then suddenly burst into tears. Each time, all I could think about was how to calm her unsettled heart.
+She'd seem fine, and then suddenly burst into tears, out of nowhere, and every time, all I could think about was how to settle her unsteady heart.
 
-Relatives looked at me with pitying eyes, seeing I hadn’t shed a single tear.\
-Each time they offered their standard, formulaic condolences, I too repeated the same words like a broken toy.
+Relatives watched me, not shedding a single tear, with something like pity in their eyes.\
+Every time I received those uniform, scripted words of condolence, I gave back the same scripted words in return, over and over, like some broken toy.
 
-I was so glad Yui was there beside me.
+I was glad Yui stayed beside me.
 
-　Truthfully, my heart was creaking as if it might crush me, on the verge of shattering. Merely standing felt like an enormous effort.\
-Whenever my father's worried gaze met mine, I would hastily avert my eyes and look down.\
-I had taken Mum away from Dad, from Yui. That fact was something I could never escape.
+Truthfully, my heart felt like it might crack open under the weight, ready to break at any moment. Just standing upright took everything I had.\
+Every time I caught Dad's eyes, watching me, worried, I flinched and looked away, ducking my head.
 
-　Until the cremation was over, I didn't want to speak to anyone but Yui. We stepped outside the crematorium and wandered aimlessly together.
+I'm the one who took Mom away — from Dad, from Yui. There's no escaping that fact. Never.
 
-Tiny snowflakes drifted down from the sky, as if weeping.\
-I just kept staring at the sky, covered in thick snow clouds.\
-All the while, I clutched Yui's small hand, still bearing fresh wounds, tightly, tightly.
+*
 
-"—Yuki-kun, Yui-chan, here you are."
+Until the cremation finished, I didn't want to talk to anyone but Yui, so we stepped outside and wandered, aimless, together.
 
-I turned at the sudden voice. A man, dressed in mourning clothes, with gentle eyes—about the same age as Dad—stood there.
+Small snow flakes drifted down from the sky, as if crying themselves.\
+I just kept staring up at that sky, blanketed thick with heavy cloud.\
+Gripping Yui's small hand, still marked with wounds, tight, tight.
 
-This man had been talking to Dad earlier. I knew him; Dad had told me about him many times.\
-The man who had brought Dad and Mum together. This man was Dad's best friend.
+"—Yukiya-kun, Yui-chan, so you're here."
 
-　Bending down to meet my eyes, his gentle, light brown eyes narrowed. Somehow, his gaze felt different from the pitying looks the other adults gave us.
+Someone called out, and I turned. Dressed in mourning black, a man with kind eyes, roughly Dad's age, stood there.
 
-"Fuyuto was looking for you. It's nearly time to go inside."
+I recognized him — he'd been talking with Dad, just before. I knew him, from hearing Dad mention him so many times.\
+The one who'd brought Dad and Mom together. Dad's closest friend.
 
-"...I see. Thank you, I'm sorry. Yui, shall we go back now?"
+Crouching to meet my eyes, those pale brown, kind eyes narrowed, gentle. Something about them felt different from the pitying gazes of every other adult around us.
 
-Looking at Yui, I saw her little nose was slightly red.\
-　Yui said nothing, but perhaps she was cold. I felt bad for making her come along. Thinking this, I took Yui's hand, clad in her black dress.\
-Then, following that tall figure, I started walking.
+"Fuyuto's looking for you. It's almost time to go back inside."
 
-"Um... what are we doing now?"
+"...I see. Sorry, and thank you. Yui, let's head back."
 
-"...It's called bone gathering. We pick up the bones with chopsticks and place them into the urn."
+I looked at Yui. Her small nose had gone faintly red.\
+Yui said nothing, but maybe she'd been cold. Feeling bad for dragging her along outside, I took her hand, small in her black dress, and followed his broad back inside.
 
-"Her bones. Mum's?"
+"...Um, what happens now?"
 
-My legs went weak. I didn't want to see them. Why? I should have to see them. I should have to accept reality. Taking Yui along scared me. That's what I thought.\
-Noticing I'd stopped, the person paused, turned back, and let their gaze drift as if pondering.
+"...It's called 'kotsuage.' You pick up the bones with chopsticks, and place them into the urn."
 
-"…Yuki-nii, what’s wrong?"
+"Bones... Mom's?"
 
-A childish voice suddenly reached my ears, and I looked down. I gazed into eyes flickering with unease. —Yui, I’m sorry.\
-I should have offered words to reassure her, but my throat tightened, and no sound came out. I became aware my knees were trembling slightly.
+My feet froze in place, unbidden. I don't want to see it, I thought. Why? I was supposed to see it. Supposed to accept reality. And yet the thought of bringing Yui along terrified me.\
+Noticing me stop, he paused too, turned back, and let his eyes wander, thinking.
 
-"...Yuki-kun, shall we just hang about around here a bit longer with Uncle? Thirsty? Fancy getting some juice?"
+"...Yuki-nii, what's wrong?"
 
-A hand, different from Dad's but large and warm, stroked my head. That person, like a golden retriever, just looked at me with eyes full of affection.
+A small, young voice reached me, and I looked down. Her eyes, wavering, anxious. —Yui, I'm sorry.\
+I needed to say something reassuring, and yet my throat closed, tight, and no words came. I noticed my knees were trembling, faint.
 
-I shook my head vigorously from side to side.
+"...Yukiya-kun, why don't we hang around out here a little longer, just us. Thirsty? Let's go get some juice."
 
-"Thank you. But I have to go. But Yui... Yui has—"
+A hand, different from Dad's, but just as big, just as warm, stroked my head. This man, like a golden retriever, just watched me with nothing but pure tenderness in his eyes.
 
-I didn't want her to see. I hesitated, unsure if I should say it. How could I protect my sister's fragile heart, still reeling from suddenly losing our mother?
+I shook my head, hard, side to side.
 
-"...Well then, Yui-chan, shall we wait here with Uncle? For Yukiyasu-kun."
+"Thank you. But I have to go. But, Yui... Yui, needs—"
 
-"Eh? Are you leaving Yukiyasu-nii alone? Why?"
+I didn't want her to see it. I hesitated over whether I could even say that out loud. How could I protect my little sister's fragile, unsteady heart, after suddenly losing our mother?
 
-"...Sorry, Yui, wait here. Excuse me, would you mind looking after my sister?"
+"...Then, Yui-chan, why don't you wait here with me? For Yukiya-kun."
 
-"Of course. I have a daughter myself. Two years younger than Yui-chan, mind you. Yukiyasu-kun, go without worry."
+"Eh? Yuki-nii's going alone? Why?"
 
-When I let go of Yui's small hand, she nodded and dashed off. I felt I had to see her off. With my own eyes.
+"...Sorry, Yui, wait here. Excuse me, could I ask you to look after my sister?"
 
-　Tears blurred my vision, obscuring what lay ahead. My legs tangled, threatening to trip me, yet I ran back the way I’d come.
+"Of course. I have a daughter myself, you know. Two years younger than Yui-chan. Go on, Yukiya-kun, don't worry."
 
-I didn’t want Yui to see. I didn’t want her to face death yet. I wanted to protect her heart.\
-I don’t know if it was the right decision. Perhaps it was selfish of me to take away her last chance to say a proper goodbye.
+Letting go of Yui's small hand, I nodded, small, and broke into a run. I felt like I had to witness it myself. See it, properly, with my own eyes.
 
-　What does Yui think of my decision that day? Even now, as an adult, I still haven't been able to ask her.
+My vision blurred with tears, unable to see straight ahead. Legs tangling, nearly stumbling, I just ran, back the way I'd come.
 
-On Yui's twenty-first birthday, when I first met her, that dormant memory resurfaced.\
-Yui had told me beforehand that she'd be rooming with the daughter of a friend of her father's, so I'd thought, 'Could it be?', but when our eyes met, I knew for certain.\
-　I know these eyes. Those light brown eyes. I saw them long ago. Just once, back then.
+I didn't want Yui to see it. Didn't want her to look death straight in the face, not yet. I wanted to protect her heart.\
+I don't know if that was the right decision. Taking away her final chance to say a proper goodbye — maybe that had simply been my own selfishness.
 
-I met your father once.
+What Yui actually thought of that decision of mine, that day — even now, grown up, I still haven't been able to ask her.
 
-I'm sure he mentioned having a daughter. Said she was two years younger than Yui.\
-Realising it was you felt like checking an answer.
+*
 
-No wonder Yui fell for her. She must be a kind woman. After all, she's that person's daughter.
+That sleeping memory came flooding back the day I first met her, on her twenty-first birthday.\
+I'd already heard from Yui that she'd be sharing a place with the daughter of Dad's friend, so I'd wondered, maybe — and the moment our eyes met, I was certain.\
+I know these eyes. Pale brown eyes. I'd seen them once before, long ago. Just that one time.
 
-　I still remember that day, walking home, thinking such things, as a fond memory.
+I'd met your father.
 
-Since then, it seems there have been twists and turns between the two of them — but as a result, that girl is now beside Yui.
+He'd mentioned, I remembered, having a daughter. Two years younger than Yui, he'd said.\
+So you're that daughter, I thought, like some answer finally confirmed.
 
-From a young age, Yui was always so well-behaved. She never once acted selfishly.\
-I think she always put her own feelings second, quietly enduring things so that neither I nor her father would be hurt.
+No wonder Yui fell for you. You must be a genuinely kind person. Because you're his daughter.
 
-　So when that Yui approached me that day, her expression earnest, saying, "I want to break off my engagement with Shinji," a heat rose deep within my chest.
+Thinking that, on the drive home that day, is a memory I still carry, fondly, even now.
 
-　Yui never once blamed me for being such a pathetic mess.
+Since then, it seems, the two of them went through all kinds of twists and turns — but in the end, right now, that girl stands beside Yui.
 
-It must have been so hard for her. So painful.\
-The sister I should have protected as her brother — she was the one who protected me all along.
+Since childhood, Yui's always been the understanding one. Never once said something selfish.\
+Her own feelings always came second, I think — she just endured, quietly, so neither Dad nor I would ever get hurt.
 
-So I must look forward too.
+So when that day came, and Yui, with a genuinely serious face, came to me and said, "I want to break off the engagement with Shinji" — something deep in my chest burned, hot.
 
-If it's my precious sister's wish — no matter how dirty the means, I will make it come true.
+Yui never once blamed me, useless as I've been.
+
+It must have been hard, this whole time. Painful, this whole time.\
+The little sister I was supposed to protect, as her older brother — I'm the one who's been protected by her, all along.
+
+So I need to face forward too, at last.
+
+If it's my precious sister's wish — however dirty the means I have to use — I'll make it come true. Absolutely, without fail.

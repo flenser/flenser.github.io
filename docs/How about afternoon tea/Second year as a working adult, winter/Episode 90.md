@@ -1,212 +1,218 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 60
+nav_order: 6
 parent: Second year as a working adult, winter
 sequence: 95
-title: "Episode 90: I won't get angry. No matter what Kanata says"
+title: "Episode Ninety: I Won't Get Angry. Whatever You Say"
 ---
-Episode 90: I won't get angry. No matter what Kanata says
+## Episode Ninety: I Won't Get Angry. Whatever You Say
 
-Yui's bathtub is spacious.
+\
+Yui-san's bathtub, at her house, is spacious.
 
-Even with two people in it, there's still room to stretch out.\
-When I first came to this house, the thing that surprised me most was the size of the bath.\
-Back when I always bathed alone, I didn't really appreciate how wonderful this bathtub's size was, but when I bathed with Yui at my flat, I finally understood.
+Big enough that even with two people in it, there's still room to stretch your legs out.\
+The first time I ever visited this house, the size of the bathroom was what surprised me most of all.\
+Back when I always bathed alone, I never really appreciated how wonderful a tub this size actually was — but the first time I bathed together with Yui-san at my own apartment, I finally understood.
 
-A spacious bath is truly marvellous.
+A spacious bath really is something special.
 
-　After barging into Yui's place on impulse, sharing each other's warmth on the sofa in the heated living room before we even made it to the bed.
+After I'd half-charged straight into her house on impulse, on the heated living room sofa, unable to even make it as far as the bed, we'd shared our warmth with each other.
 
-　It felt like a lie that we'd been so cold just moments before. Before we knew it, we were both drenched in sweat. We hadn't eaten dinner yet, but we desperately needed to wash off the sweat first, so the bath took priority.\
-I reckon it's all Yui's fault for not turning down the heating when I said I was hot.
+Afterward, somehow, despite how cold it had been outside, we'd both ended up drenched in sweat before I even noticed, and even though we hadn't eaten dinner yet, I'd wanted to rinse off first, so we'd prioritized the bath.\
+This is entirely Yui-san's fault, for not lowering the heater setting even after I said it was too hot.
 
-My stomach was rumbling, but not unbearably so. I decided to let Yui deal with this hunger after we got out of the bath.
+I was hungry, but not so much that I couldn't wait — so I decided that hunger could be dealt with once we got out of the bath, by Yui-san herself.
 
-　The warmth radiating from her close-pressed back and the arms pulling me tightly against her felt wonderfully comforting.
+The warmth traveling from the back pressed against mine, and the arms holding me tight, felt good.
 
-Whether it's the bed, the sofa, or the bath, whenever we're at home, Yui always wants to hold me like this.
+Bed, sofa, bath — wherever we are at home, Yui-san always wants to hold me like this.
 
-She's always been the type to crave physical contact, and that hasn't changed since our student days. Somehow, it's just become the norm, and now I feel unsettled if she doesn't do it.
+She's always been the type who loves physical affection, and that hasn't changed since our college days — but somewhere along the way, it's become second nature to me too, and now I can't quite settle without it.
 
-　As I scooped up the fluffy, whipped-cream-like foam with both hands to play, her soft lips gently touched the vulnerable nape of my neck, exposed because my hair was tied up.\
-Startled, I jerked upright.\
-"Whoa! Yui, stop teasing me, won't you? That tickles."
+Scooping up handfuls of whipped-cream-like foam and playing with it, her soft lips gently touched the back of my neck, left defenseless by my hair being pulled up.\
+Startled, my spine snapped straight, reflexive.
 
-"Sorry, sorry. It's just... your nape is so beautiful. It kind of... gets to me."
+"Wa—! Yui-san, seriously, stop teasing. That's ticklish."
 
-Even after we'd sought each other out so passionately on the sofa just now, was she still unsatisfied?\
-Whether she was teasing or serious, Yui-san was still impossible to read.\
-If she fancied my body, which wasn't particularly alluring... well, that did make me feel rather pleased, I suppose.
+"Sorry, sorry. It's just, your nape's so pretty. It really gets to me, somehow."
 
-"...You're such a lecher, Yui-san."
+Just a while ago, we'd already wanted each other that badly on the sofa — isn't she satisfied yet?\
+Whether she's teasing or genuinely serious, I really can never tell with Yui-san.\
+If she genuinely likes a body as unremarkable as mine... well, that alone makes me happy, in its own way.
 
-To hide my embarrassment, I gently pinched her long fingers wrapped around my waist, scolding her just a little.\
-Not that I mind, but that sort of mischief is bad for the heart.
+"...Yui-san, pervert."
 
-"I didn't do it with any ulterior motives, you know?"
+Hiding my embarrassment, I pinched the long fingers wrapped around my stomach, lightly, scolding just a little.\
+Not that I hate it, exactly, but teasing like that is bad for my heart.
 
-"Really? You seem rather suspicious."
+"I wasn't doing it with any ulterior motive, you know?"
 
-"Honestly. But if Kanata begs me for one more time, I'd keep going as many times as she wants."
+"Really? Sounds suspicious."
 
-"...See? There is an ulterior motive after all."
+"Really. Though, if you asked for one more round, I'd happily give it my all, however many times."
 
-Even after working all day, Yui-san really has stamina, unlike me.\
-If I asked, she'd probably give me anything without limit, and while that is incredibly gratifying...\
-I won't be asking for 'one more time' today.\
-I've never once felt unsatisfied. I always feel more than enough love.
+"...See, there it is, the ulterior motive."
 
-　The mental weariness that meeting Kitakami-san had caused had completely vanished.
+Even after working a full day, Yui-san, unlike me, genuinely has stamina to spare.\
+If I wanted it, she'd probably grant it endlessly, without limit — and that is a genuinely happy thing, but.\
+I'm not asking for one more round today.\
+I've never once felt unsatisfied. I always feel more than enough love, always.
 
-It’s strange how just being held by the person I love makes my heart recharge so rapidly.\
-For this person, I feel like I could literally do anything.
+*
 
-Looking back, I saw those dark eyes gently narrowing, so I wrapped my arms around her neck from the front and clung to her, almost like a child seeking comfort.
+Whatever toll meeting Kitagami-san had taken on my nerves had already, fully, restored itself.
 
-　The warmth of her skin, warmed by the bath, pressed against mine. It felt so reassuring, as if we might simply melt together.\
-I came to Yui-san today driven solely by this desire to be close like this.
+Strange, how just being held by someone you love can recharge your heart this fast.\
+For this person, I feel like I could genuinely do anything at all.
 
-I have work tomorrow, but I can just get up a bit earlier, go back to my flat, and head to the office from there.\
-Tomorrow's troubles, tomorrow's me will deal with.\
-More than that, today, I desperately needed her to hold me.
+Turning back, meeting those black eyes, narrowed gentle, I looped my arms around her neck from the front, clinging, wanting to be spoiled.
 
-　Besides, there was something I had to tell Yui-san. About Kitakami-san.
+Bare skin, warmed by the bath, pressed close, and I felt such calm from it that I thought I might just dissolve, melting into her entirely.\
+Wanting to touch like this — that alone had been my whole reason for coming to Yui-san's tonight.
 
-I'd done everything I could. There was no need to stay silent any longer.\
-Tomorrow is Christmas Eve. Kitakami-san isn't the sort of topic for such a romantic day.\
-So I had to tell her today.
+Work tomorrow too, but I could just wake a little early, swing by my apartment, then head into the office.\
+I'll let tomorrow's me deal with tomorrow.\
+More than that, tonight, I'd wanted, unbearably, for her to hold me.
 
-Steeling myself, I opened my lips.
+And there's something I need to tell her too — about Kitagami-san.
 
-"...Yui-san, I need to tell you something."
+I've done everything I could do. No more reason to stay silent.\
+Tomorrow's Christmas Eve. Kitagami-san isn't something to bring up on a day meant to be romantic.\
+So I need to tell her today, while I still can.
 
-"Hmm?"
+Steeling myself, I opened my mouth.
 
-I felt the warmth of her palm gently stroking my back.
+"...Yui-san, so, um."
 
-"I have something I need to apologise to you for. From now on... whatever I say, will you listen without getting angry?"
+"Mm?"
 
-I thought I'd better get that out of the way first. When I said it, she tilted her head, looking puzzled.
+I could feel the heat of her palm, gently stroking my back.
 
-Somehow, I'd been thinking Yui probably wouldn't think too highly of me keeping quiet about it.\
-I never had any intention of hiding it forever, but I'd been unsure about the right moment to tell her.\
-And I reckon now is probably the best time.
+"There's something I need to apologize to you for. From now... whatever I say, could you listen without getting angry?"
 
-Yui blinked several times and looked at me.
+Trying to preempt it, I said that first, and she blinked, puzzled, tilting her head.
 
-"...Hmm, telling me beforehand means it's something I'd get angry about?"
+Somehow, I'd suspected — Yui-san probably wouldn't take well to me having stayed silent about this.\
+I never once meant to hide it forever, but I'd been unsure about the right timing to tell her.\
+And I think, probably, right now really is the best moment for it.
 
-　Quick to pick up on things, she didn't answer my question directly, asking that instead.
+Yui-san blinked at me a few times.
+
+"...Hmm, does saying that ahead of time mean it's something I'd actually get angry about?"
+
+Perceptive as ever, she didn't answer my question directly, asking that instead.
 
 "...Probably."
 
-She probably wouldn't get seriously angry, but I had a feeling I'd get told off.
+She probably wouldn't get genuinely angry, but I have a feeling I'm about to get scolded.
 
-"Did you do it knowing I might get angry?"
+"You knew I might get angry, and did it anyway?"
 
-I nodded quietly.
+I nodded, small.
 
-Honestly, I'd agonised over whether to tell her straight away. But I wanted to handle it myself. I hated always relying on her.\
-I wanted to believe that even if I couldn't do things at twenty, I could do them now at twenty-four.
+Honestly, I'd genuinely agonized over whether to tell her right away. But I'd wanted to handle it myself. I hated the idea of always just relying on her.\
+Something twenty-year-old me couldn't have managed — I wanted to believe that twenty-four-year-old me could manage it now.
 
-I adore Yui-san for spoiling me. But... I don't think it's enough to just be protected.
+I love Yui-san, who spoils me so much. But... I don't think I can just keep being protected, that alone isn't enough.
 
-When it really matters, I wanted to be someone who could fight for you. I don't want to stay a coward forever.\
-I want Yui-san to know that this is my way of loving her. Though I still don't know if I, being so tongue-tied, can express it properly.
+At least when it really matters, I wanted to be someone who could fight for you. I don't want to stay a coward forever.\
+I want Yui-san to know that this, too, is my own particular shape of love. Though I'm still not sure whether someone as bad with words as me can actually convey that well.
 
-Those dark eyes, watching me as if gauging my state, were very calm.
+*
 
-"...Is that for my sake?"
+Watching me, gauging, those black eyes stayed remarkably calm.
 
-Her tone was gentle, like she was gently admonishing a child. When I nodded again softly, I felt the strength in her arms tighten around me.
+"...Was that for my sake?"
 
-"I understand. In that case... I won't get angry. No matter what you say, Kanata."
+Her voice carried a tone like gently reasoning with a child. I nodded again, small, and felt the arms holding me tighten.
 
-　Yui-san smiled softly.
+"Understood. In that case... I won't get angry. Whatever you say."
 
-—I'm glad you said that. I pressed my cheek against her neck, almost clinging to her.
+Yui-san smiled, gentle, soft.
 
-"...Actually, since last week, I've been called out by Kitakami-san twice and met him. I'm sorry I kept it from you."
+—I'm glad she said that. I pressed my cheek against her neck, wanting to be spoiled.
+
+"...Actually, since last week, Kitagami-san's called me out twice, and I met with him. I'm sorry, for staying silent."
+
+"Eh."
+
+Yui-san froze, like something had clicked into place with a sound. Just as I'd expected, that reaction. I could feel her body, pressed close to mine, stiffen, faint.
+
+"...Why would Kitagami-san want to see you?"
+
+There were surely countless things she wanted to ask, but, true to her promise not to get angry, Yui-san stayed composed, though her voice came out a little sharper, lower than usual.\
+Sharp as she is, she must already be running through the worst possible scenarios.
+
+"Kitagami-san's figured out our relationship. He told me to leave you. ...Said he'd recommend me for a position in the Holdings secretarial office."
+
+Meeting my eyes, hers flickered, anxious, just for an instant. Realizing this person, who normally never shows weakness, was actually shaken, something deep in my chest tightened, painful.
+
+"And, Kanata... what did you say?"
+
+Of course, there's no way I'd give in to that kind of threat.\
+Yui-san, watching for my reaction, looked, somehow, a little afraid.
+
+Whatever he says, I'll never leave your side. Please, believe that—\
+Wanting that feeling to reach her, I took her left hand and gripped it tight.\
+Just like she always does, whenever she's about to tell me something important.
+
+"...I turned him down. He didn't seem convinced, but... there's no proof anywhere that we're dating, is there?"
+
+Saying that with a small laugh, Yui-san's tense expression eased, relieved.\
+Held tight in her arms, I hugged her back, accepting that feeling.
+
+"...Sorry, Kanata. This is my fault, making you go through something awful. I never imagined Shinji would go that far. ...I was careless. I'm really sorry."
+
+Pressed flush together, I couldn't see her face. But her voice sounded, just slightly, like it was trembling. I gently stroked her smooth back, her faintly protruding shoulder blades, hoping it might ease her, even a little.
+
+Then I shook my head, side to side. It's fine, I told her.
+
+"...I'm fine, so, please, keep going as before — don't say anything to Kitagami-san."
+
+"But if Shinji tries something with you again..."
+
+"Spring's coming soon. I can wait. You promised your father you'd deliver results within three years, didn't you? There's only three months left. Let's see it through, to the end. So you can tell your father, with your head held high, that you'll be fine without Kitagami-san — I'll help you with everything I've got, until then."
+
+Yui-san had pushed through these three years with real, serious resolve.\
+There must have been painful moments, hard moments, along the way. I didn't want that effort ruined over something like this.
+
+She looked hesitant for a moment, but sensing my resolve wouldn't waver, she nodded, once, small.
+
+"...Understood. But, if anything happens, tell me right away next time. Please."
+
+Told that, I nodded, firm — "yeah." Something that had been sitting heavy, murky, in my chest finally seemed to clear.
+
+"But, honestly... I was really surprised. Eight years engaged, and Kitagami-san doesn't know a single thing about you, does he."
 
 "Eh?"
 
-Yui-san stiffened as if something had clicked. Just as I'd imagined she'd react. I could feel her body pressed against me stiffen ever so slightly.
+"He said you were 'inexperienced.' I genuinely wondered who he was even talking about. You're such a pervert, Yui-san."
 
-"...Why? Why are you seeing Shinji?"
+Teasing her with that, Yui-san smiled, all the tension draining out of her at once.
 
-She must have a thousand questions, but having promised not to get angry, Yui-san spoke calmly, though her voice was lower and a touch sharper than usual.\
-Knowing how sharp she is, she must be picturing every possible worst-case scenario.
+"...Right now it's only you, so let me off the hook."
 
-"Kitakami-san, he's noticed the relationship between me and Yui-san. He told me to stay away from her... saying he'd recommend me for the secretarial office at the Holding company."
+Her hand, hidden under the foam, had started stroking up my thigh, and I smacked it away in a hurry, water splashing with a small sound. Glaring at her, Yui-san just laughed, like a kid caught mid-mischief.
 
-When I stared at her, her eyes wavered for a moment, looking uneasy. Realising that she, who never showed weakness, was unsettled, my chest tightened.
+Honestly, there's never a moment of letting my guard down, with this person.
 
-"So, Kanata... what did you say?"
+Having had that serious talk, I suddenly found myself hungry.
 
-Of course, I wouldn't bow to such threats.\
-Yui-san seemed to be gauging my reaction, looking slightly frightened.
+I'd worked hard today, and meeting Kitagami-san had genuinely worn me out. So, tonight, let's allow myself to be thoroughly spoiled.
 
-No matter what she said, I would never leave Yui-san. Please believe me—\
-Wanting her to feel that conviction, I took her left hand and squeezed it tightly.\
-Just as she always did when she wanted to tell me something.
+Saying "I'm hungry," in my usual wheedling tone, Yui-san smiled, happy.
 
-"...I declined. Kitakami-san didn't seem satisfied, though. But there's no proof Yui-san and I are dating, right?"
+Out of the bath, hair dried as always, something delicious made for us, drinks together, then a movie.
 
-Saying this with a laugh, Yui-san's stiff expression softened with relief.\
-Holding her tightly, I embraced her back, accepting that feeling.
+Falling asleep tonight, wrapped in each other's arms, and waking early tomorrow to eat breakfast together.
 
-"...I'm sorry, Kanata. I've made you feel bad because of me. I never imagined Shinji would act like that... I was naive. I'm truly sorry."
+Back in college, these were just ordinary, everyday things, and I never really understood, back then, how happy those days truly were. But now, I understand completely.
 
-Our bodies pressed tightly together meant I couldn't see her face. But I thought I detected a slight tremor in her voice. I gently stroked her smooth back, her slightly protruding shoulder blades, hoping it might bring her a little comfort.
+I'll get days like that back, without fail. I'll make them ordinary again, once more.
 
-　Then she shook her head. It's alright.
+Tomorrow's Christmas Eve.
 
-"...I'll be fine. Please don't say anything to Kitakami-san, just as before."
+Surely, it'll be a wonderful day.
 
-"But what if Shinji does something to you again because of that..."
-
-"Spring is almost here. I can wait. You promised your Father you'd get results within three years, didn't you? It's only three more months. Let's see it through to the end. I'll do everything I can to help, so that Yui-san can stand tall and tell her father she'll be fine even without Kitakami-san."
-
-Yui-san had overcome these past three years with considerable resolve.\
-There must have been painful and difficult times. I didn't want all that effort to be ruined here.
-
-Yui-san showed a hint of hesitation, but sensing my resolve hadn't wavered, she gave a single, firm nod.
-
-"...All right. But if anything happens, tell me straight away next time. Please."
-
-Hearing that, I nodded firmly. It felt as though the foggy unease that had settled in my chest was beginning to clear.
-
-"But I... I was really surprised. After being engaged for eight years, he doesn't know anything about Yui-san, does he?"
-
-"Eh?"
-
-"He said you were innocent. I couldn't help wondering who on earth he was talking about. Yui-san is such a little minx, you know."
-
-Teasingly, I said this, and Yui-san smiled as if all her strength had drained away.
-
-"...It's only you now, so forgive me."
-
-Hiding behind the foam, she slid her hand up my thigh, rubbing gently. I flapped my hand hurriedly to stop her, sending water splashing. I glared at her, and Yui laughed like a child caught misbehaving.
-
-Honestly, Yui, you're relentless.
-
-　After that serious talk, I suddenly felt terribly hungry.
-
-I'd worked hard today, and meeting Kitakami-san had left me utterly exhausted. So, I'd let myself be completely spoilt.
-
-When I said "I'm hungry" in my usual spoilt way, Yui-san smiled happily.
-
-After getting out of the bath and having my hair dried as usual, she'd make something delicious, then we'd drink together and watch a film.
-
-　Tonight, we'll sleep in each other's arms. Tomorrow morning, we'll wake up early and have breakfast together.
-
-Back in my student days, I didn't properly realise how happy those ordinary days were. But now I understand.
-
-I'll get those days back, absolutely. I'll make them ordinary again.
-
-　Tomorrow is Christmas Eve.
-
-It’s bound to be a wonderful day.
-
-I’ve been waiting and waiting, looking forward to the day I could be Santa Claus for Yui-san again.
+Because I've been looking forward to it, this whole time — the day I get to be Yui-san's Santa again.

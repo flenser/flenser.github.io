@@ -1,234 +1,238 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 20
+nav_order: 2
 parent: Second year as a working adult, winter
 sequence: 91
-title: "Episode 86: You Don't Have to Answer Right Away"
+title: "Episode Eighty-Six: You Don't Have to Answer Right Away"
 ---
-Episode 86: You Don't Have to Answer Right Away
+## Episode Eighty-Six: You Don't Have to Answer Right Away
 
-Finishing work, I swiped my employee card at the time clock and left the building. Outside, it had grown completely dark, and I felt a biting cold, pulling my coat collar up.
+\
+Finishing work, holding my employee badge to the time-clock terminal, I stepped out of the building. Outside had gone completely dark, and, feeling a sharp, biting cold, I pulled my coat collar close.
 
-Perhaps because I was going to see someone I didn't want to meet, my steps towards the designated hotel felt unusually heavy.
+Maybe because I was heading to see someone I didn't want to see, my steps toward the designated hotel felt heavier than usual.
 
-　I have no idea what Kitakami-san is thinking.\
-I felt it last time we met too, but I find him difficult. Just being stared at by those dark brown eyes makes me feel an indescribable suffocation, as if my lungs were being squeezed.
+I have no idea what Kitagami-san is thinking.\
+Same as last time we met — I don't do well with this person. Just being looked at by those dark, coffee-brown eyes is enough to make me feel some indescribable tightness, like my lungs are being wrung out.
 
-　He said he summoned me for 'business matters', but I simply couldn't interpret his message that way. It felt as precarious as walking through an impenetrable fog.
+He'd said the reason he called me here was "about work" — but there was no way to read the message that way at all, and I felt like I was walking through some fog with no visible end.
 
-Truth be told, I was filled with the urge to run away.
+If I'm honest, all I wanted was to run away.
 
-My tendency to overthink everything proved a hindrance. No matter how hard I tried not to, I couldn't stop conjuring the worst possible scenarios.
+My habit of overthinking everything got in the way. However hard I tried not to, I couldn't stop myself from picturing the worst possible scenario.
 
-　My mind kept spiralling towards the worst possible outcomes. Even though it might genuinely be about work.
+Worse and worse thoughts kept spiraling. Maybe it really was just about work, after all — and yet.
 
-But then, why keep it secret from Yui? Why not meet at our own hotel, but at one belonging to a different chain?
+But then why keep it secret from Yui-san? Why not use our own company's hotel, and instead pick one from a different group entirely?
 
-I knew pondering alone would yield no answers, yet I remained trapped in a vortex of dark thoughts, unable to escape. Before I knew it, I’d arrived at the designated spot.
+There was no way to reach an answer thinking it through alone, and, caught in a whirlpool of bad thoughts I couldn't escape, I arrived at the designated location before I even realized it.
 
-　Sighing, I looked up at the hotel. Its peak seemed almost to be sucked into the black sky, that's how high it was.\
-It was a place I’d never normally come to. The designated bar lounge was in a well-known luxury hotel run by a competitor.
+Letting out a sigh, I looked up at the hotel. The top seemed to disappear, swallowed into the black sky, it was so tall.\
+Somewhere I'd never normally set foot. The designated bar lounge sat inside a well-known luxury hotel run by a competitor.
 
-I gripped the handle of my bag tightly. Dwelling on it wouldn’t help. I’d come this far. There was no turning back now.
+I gripped the handle of my bag, tight. No use agonizing over it any further. I'd already come this far. There was no turning back now.
 
-　In the end, I didn't tell Yui-san that Kitakami-san had summoned me.
+*\
+In the end, I never told Yui-san that Kitagami-san had called me out.
 
-Partly because I didn't want to burden her any further, given how busy she already was. But also, if I told her without knowing Kitakami-san's true intentions, it could tip him off that my relationship with Yui-san had already crossed the line between 'President' and 'Secretary'.
+Partly, I didn't want to add more worry to someone already this busy. And partly — reporting it before understanding his real intentions might itself become the very trigger that revealed to him just how far my relationship with Yui-san has gone beyond "president" and "secretary."
 
-　So, I'd decide whether to consult her after hearing what Kitakami-san had to say.
+So I'd decided — I'd only consult her after actually hearing what Kitagami-san had to say.
 
-That's what I thought, yet here I was, frozen in my tracks at this late stage. How pathetic. I could only laugh, almost mockingly.
+That's what I'd told myself, and yet, even now, my legs had gone stiff with fear. How pathetic — all I could do was laugh at myself, bitter.
 
 ＊＊＊
 
-The appointed hour: seven o'clock.
+Seven PM, as agreed.
 
-In the dimly lit bar lounge, at the far end. He sat waiting at the counter.\
-A broad back clad in a deep navy suit. The appearance of a businessman with a neatly groomed hairstyle.\
-Though we'd only met a handful of times, I recognised him immediately.
+Deep inside the dim bar lounge. At a counter seat, he sat waiting.\
+A broad back wrapped in a dark navy suit. The clean, businessman's air of his neatly styled hair.\
+We'd only met a handful of times, and yet I recognized him instantly.
 
-　Without needing to call out, Kitakami-san seemed to hear my footsteps and slowly turned. The orange lighting glinted sharply in his distinctive burnt-brown eyes.
+Before I even had to speak, Kitagami-san, apparently noticing the sound of my footsteps, turned slowly to face me. Orange light glinted, sharp, in those distinctive tawny brown eyes.
 
-I'm not usually stared at so piercingly by anyone. That's why I understand. The hostility he harbours towards me within his chest.
+I've never once been looked at this piercingly by anyone else, ordinarily. So I understood, immediately — the hostility toward me he carries in that chest of his.
 
-　It felt like something was coiling up from my feet, a sickening sensation. His eyes fixed on me were always sharp, like a snake eyeing its prey.
+A sickening feeling, like something crawling up from my feet. His eyes, watching me, always sharp as a snake sizing up its prey.
 
-"...Good. I was a bit worried you might not come."
+"...Good, you actually came. I was a little worried you wouldn't."
 
-I hadn't been late, surely.\
-Though I didn't retort, Kitakami-san, whisky glass in hand, grinned knowingly, as if seeing right through my displeasure.
+I shouldn't have been late.\
+I didn't argue, but, as if seeing straight through my quiet displeasure, Kitagami-san smiled, sly, whiskey glass in hand.
 
-　If that's how you feel, you shouldn't have called me out in the first place. Unsure what to say, I settled for the safe option: "Sorry I'm late."\
-Trying not to let my voice tremble. Trying not to let him see my unease. I drew a deep, deep breath from my belly.
+If that's how you felt, you shouldn't have called me here in the first place. Unsure what to say, I settled for a bland "sorry for being late."\
+Careful not to let my voice shake. Careful not to let the agitation show. I drew one long, deep breath from the bottom of my stomach.
 
-"Next to me, please."
+"Sit, next to me."
 
-Prompted, I sat down on the chair beside him.
+Prompted, I lowered myself onto the chair beside him.
 
-"What'll you have?"
+"What'll you drink?"
 
 "...I'm not much of a drinker, so I'll pass."
 
-"Don't be so unsociable. It's a special occasion."
+"Don't be so cold. Since we're here."
 
-With that, he swiftly raised his hand towards the bartender behind the counter.
+Saying that, he raised a hand toward the bartender across the counter.
 
-"The same for her, please."
+"The same for her."
 
-Kitakami-san lifted his whisky glass slightly and smiled faintly.
+Kitagami-san lifted his whiskey glass slightly, smiling, thin.
 
-　Wait a moment. I did say I'm not much of a drinker...\
-Before I could protest, he fixed me with a piercing stare. His eyes came to rest precisely on my chest.
+Wait a second. I just said I'm not much of a drinker...\
+Before I could object, he glanced at me, sharp, and his eyes landed, fixed, on my chest.
 
-There, the necklace Yui-san had given me glinted. After confirming it, he gave a faint, defiant smile.
+There, glinting, the necklace I'd inherited from Yui-san. Confirming that, he smiled, bold, unbothered.
 
-　I reluctantly accepted the glass offered by the bartender, unable to refuse.\
-Swaying within the glass was, most likely, whisky. I'd never even tried it neat...\
-Noticing my frown, the bartender, sensing my discomfort, thoughtfully offered a chaser a moment later.
+Handed the glass by the bartender, I couldn't refuse it and accepted, reluctant.\
+Swaying inside the glass — whiskey, probably. I've never once drunk it straight before...\
+Maybe noticing my brows draw together, the attentive bartender set down a chaser a beat later too.
 
-I couldn't very well ignore the glass offered for a toast, so I reluctantly held out mine. It felt terribly off-kilter. I really don't get on with this man.
+Unable to ignore the glass he'd offered for a toast, I reluctantly raised my own too. Something about this felt off, disorienting. I really don't do well with this person.
 
-Kitakami-san possesses a forcefulness that instantly draws anyone into his own rhythm, no matter who they are. He's probably an excellent businessman, but being around him is suffocating. It's incredibly uncomfortable.
+Kitagami-san has this forcefulness about him, able to instantly pull anyone, whoever they are, into his own pace. Skilled as a businessman, I'm sure — but being around him is suffocating. Genuinely uncomfortable.
 
-"Never thought I'd be drinking with you before Yui. She's never once come along when I've invited her out before. Come on, Yui can't hold her drink, can she?"
+"Never imagined I'd end up drinking with you before I ever drank with Yui. She's never once come out drinking with me, however many times I've asked. You know how weak Yui is with alcohol, right?"
 
-Can't hold her drink? Who? Yui-san?
+Weak with alcohol? Who? Yui-san?
 
-Huh? I almost blurted out. What on earth is this man talking about?
+*What?* nearly slipped out of me. What is this person even talking about.
 
-Yui-san is incredibly strong when it comes to alcohol, surely... I started to say, but kept quiet. It was probably just a lie Yui-san made up to dodge him.
+Yui-san's supposed to hold her liquor incredibly well... I started to say, and swallowed it. That had to be a lie Yui-san told, to smoothly deflect him, over and over.
 
-I sighed quietly, trying not to be noticed, and gently touched my lips to the glass. The distinctive aroma and the bitterness on my tongue made me involuntarily frown.
+Careful not to let him notice, I let out a quiet sigh and brought the glass to my lips. That distinctive smell, the bitterness on my tongue — my brows drew together, unbidden.
 
-It wasn't like the highballs Yui-san always drank.
+Different from the highball Yui-san always drinks.
 
-Her tongue always tasted just a little bitter after drinking, but there was always a faint sweetness within that bitterness too.\
-　I’d always assumed that was simply the taste of whisky.
+Her tongue, always faintly bitter after a drink, still carries a hint of sweetness underneath.\
+I'd always assumed whiskey tasted like that.
 
-But it was fine. After all, drinking with him meant nothing tasted good anyway.
+But it doesn't matter, either way. Whatever I drink with this person was never going to taste good regardless.
 
-“To get straight to the point… may I ask what brings you here?”
+"To get right to it... may I ask what this is about?"
 
-“Now, don’t be so impatient. It’s not as if I’m about to tell you something terrible.”
+"No need to rush. It's not bad news for you, this."
 
-I couldn’t possibly believe it wasn’t terrible.
+There's no way this could be anything but bad news.
 
-　I dislike him, but he seems to dislike me too. His words carried hidden barbs; the tension was palpable, as if he'd mercilessly rip out my heart if I showed the slightest opening.
+I dislike him, but it seems he dislikes me too. Every word carried a hidden barb, a tension like, drop my guard even slightly, and he'd carve this heart right out of me without hesitation.
 
-"Actually... I'm thinking of recommending you to the secretarial office at the holding company."
+"Actually... I'm thinking of recommending you for the Holdings company's secretarial office."
 
 "Eh?"
 
-The suddenness made me utter a completely absurd sound. Unable to grasp the meaning immediately, I stared intently at his face – a face that, by society's standards, must be considered handsome.
+Such a sudden thing, a startled sound slipped out before I could stop it. Unable to process the meaning right away, I studied that face — objectively handsome, I suppose, by the world's standards — searching for his intent.
 
-"Put simply, it's an internal transfer to the parent company. If it goes well, you could transfer your company affiliation outright. Do you know our average annual salary? Both the environment and pay would be far better than what you have now."
+"Simply put, a reverse secondment to the parent company. If it goes well, you could even transfer your official employment there permanently. Know our average salary? Both the environment and the pay would be a huge step up from what you have now."
 
-"But... I've only just become a secretary... I don't recall achieving any accomplishments worthy of a recommendation."
+"No, but, I only just became secretary... I don't recall having accomplished anything that would warrant a recommendation."
 
-"That's not true. Serving as a secretary at your age is quite something. Ah, are you perhaps worried about your replacement? If so, we'll arrange one here, so there's no need to fret."
+"That's not true at all. Managing a secretarial role at your age is genuinely impressive. Ah, are you worried about your replacement? We'll handle that on our end, don't worry."
 
-I gave a wry smile at him, who had delivered that in one breath without pause.\
-Until just now, I'd thought overthinking was a bad habit... but I reconsidered.\
-　It was good I'd imagined the worst-case scenario. He really has noticed the relationship between me and Yui-san. He's noticed, and he's trying to pull me away from her.
+Not giving me a second's pause, he said it all in one breath, and I gave a wry, strained laugh.\
+Just a moment ago, I'd thought overthinking was a bad habit of mine... but I reconsidered.\
+Good that I'd braced for the worst-case scenario. He really has figured out my relationship with Yui-san after all. Figured it out, and now he's trying to pull me away from her.
 
-"There's no reason to turn down such a favourable offer, is there? Or is there some reason you absolutely must insist on being Yui's secretary?"
+"There's no reason to turn down an offer this good, is there? Or is there some reason you have to insist on staying Yui's secretary specifically?"
 
-He knew I couldn't say the reason. I sensed it. He really is... a spiteful man.
+He asked that knowing full well I couldn't give him the reason. I felt it, instinctively. What a genuinely, deliberately cruel person.
 
-What should I do? I ponder. I can't give an immediate answer. I can't risk saying something clumsy and having him seize upon my words.\
-This man is clever. Yui-san might easily hold her own against him, but honestly, unprepared as I am now, he's a bit beyond me.
+What should I do — I thought it through. I couldn't answer immediately. Say something careless, and he'd catch me on it.\
+This person is sharp. Yui-san might be able to match him easily, but honestly, right now, with zero preparation, this is a little more than I can handle.
 
-"...You did say this was to be kept confidential from Yui-san, correct? However, I'm afraid I must ask you to go through the company. I cannot decide this on my own authority."
+"...You said this was to stay secret from Yui-san, didn't you? But I'm sorry — could you go through proper channels instead? This isn't something I can decide on my own."
 
-I had no choice but to give an evasive answer. I wanted to avoid reacting purely on emotion without understanding his true intentions.
+I had no choice but to keep my answer vague. I wanted to avoid reacting purely on emotion, without knowing what he was actually holding.
 
-Then, Kitakami-san gave me a faint smile.
+At that, Kitagami-san laughed, faint.
 
-"Your decision alone is fine. Yui wouldn't refuse, would she? Considering your future, it's an absolutely brilliant opportunity – why would she object? Work isn't play. Yui understands that perfectly well."
+"Your will alone is enough. There's no way Yui would refuse, is there? For your own future, too, this is an outstanding opportunity — what possible reason would you have to dislike it? Work isn't playtime. Yui understands that too."
 
-His voice was quiet, utterly devoid of emotion, flat and even.
+A calm, level tone, betraying no emotion whatsoever.
 
-　That very quality made it terrifying. It felt like a blade had been pressed against my throat the entire time.\
-So much so that I was convinced the slightest wrong move would cause it to pierce my skin and slit my throat in an instant.
+Which, somehow, made it more frightening. Like a blade held constantly against my throat.\
+Even the smallest careless move, and I felt like it might slice straight through the skin, cutting my throat open.
 
-Sweat broke out despite the lack of heat. I swallowed hard several times, moistening my mouth with whisky to hide my agitation.
+Not even hot, and yet sweat broke out, unbidden. Swallowing, again and again, I wet my lips with the whiskey, careful not to let the agitation show.
 
-　A foul taste. This aroma, this clinging, gritty bitterness on my tongue, this person too – I detest them all.
+An unpleasant taste. That aroma, that gritty bitterness clinging to my tongue — I hate every bit of it, and this person too.
 
-If he intends to push this through so forcefully – then I shall refuse him outright, here and now. Lifting my gaze from the amber liquid swaying in the whisky glass, I look at him.\
-It’s alright. He hasn’t pointed it out directly. If he hasn’t grasped any evidence, then there’s still room to play dumb.
+If he's going to push this hard — then, right here, right now, I'll refuse plainly. Lifting my gaze from the amber liquid swaying in the glass, I looked at him.\
+It's fine. He hasn't pointed it out directly. If he doesn't actually have proof, there's still room to plead ignorance.
 
-"I'm truly grateful for your kind words. But Kitakami-san, I'm afraid I must..."
+"I appreciate the generous offer. But, Kitagami-san, I'm sorry, I..."
 
-"Having an employee stay overnight at your home? That seems to cross the line between staff and management. While it's good you get on well, it would be problematic if other employees found out. Even if it suits you, it casts doubt on Yui's suitability. You wouldn't want people thinking company management is just a frivolous pastime for a spoilt girl, would you?"
+"Having an employee stay overnight at your house — that goes well beyond the bounds of employer and employee, don't you think? Getting along is one thing, but if other employees found out, it wouldn't look good. Even if you're fine with it, it puts Yui's judgment in question. Letting personal feelings interfere with company management — you wouldn't want people thinking it's nothing but a rich girl's playtime, would you?"
 
-　The sharpened blade of his words gouged at her chest. She hadn't wanted him to call it frivolous. What on earth had he seen in her all this time?
+That sharpened blade of a word cut straight into my chest. Playtime — I didn't want to hear that word. What, exactly, has this man actually seen of her, all this time?
 
-She understood why it would be problematic if other employees found out. But she simply couldn't believe that such a thing would shake the three years Yui-san had built up in this company.
+I understand it wouldn't look good if other employees found out. But there's no way, I told myself, firmly, that something like that could shake the three years Yui-san's spent building this company.
 
-　This man knows absolutely nothing about Yui-san.
+This person doesn't know anything about Yui-san, really.
 
-Yui-san is like the calm sea at night.
+Yui-san is like a calm, still nighttime sea.
 
-He doesn't know her true nature. He merely gazes endlessly at the distant, boundless horizon, thinking he knows her, yet he has surely never even tried to understand that beyond it lies a deep, deep sea, and that is where the real her resides.
+He doesn't know her true nature. He's only ever traced that distant, endless horizon with his eyes, thinking that alone means he knows her — and never once tried to learn that beyond it lies a deep, deep sea, and that the real her is there.
 
-"Thank you very much for your advice. But there's no need for concern. I shall be more careful henceforth. Therefore, regarding the counter-assignment..."
+"Thank you for the warning. But there's no need to worry. I'll be more careful going forward. So, about the reverse secondment—"
 
-"You needn't reply immediately. Let's say a week from now."
+"You don't have to answer right away. Let's say... give me your answer in a week."
 
-Kitakami-san, anticipating my words, cut me off decisively, silencing me. He smiled, his thin lips curving slightly.\
-Yet the eyes that met mine held no trace of laughter. They were dark and cold enough to send a chill down my spine.
+Reading ahead of my words, Kitagami-san cut me off, flat, and I fell silent. His thin lips curved into a smile.\
+But those eyes, watching me, weren't smiling at all. Dark, cold eyes, enough to send a chill down my spine.
 
-"You see, I dislike trouble. I'd prefer to settle matters peacefully if possible. I can handle supporting Yui on my own. Neither Yukiyasu nor you are needed. Think it over a little more carefully. Including how you intend to proceed from here."
+"I don't like conflict, myself. I'd rather settle things quietly, if possible. One person is plenty to support Yui — me. Yukiya's not needed. You're not needed either. Think it over a little more carefully. Including what comes next, for you."
 
-With a loud thud, Kitakami-san stood up. Just as I opened my mouth to retort, his large, knobbly hand landed on my shoulder. The sensation of that firm grip on my shoulder sent a chill down his spine.
+With a scrape, Kitagami-san stood. Just as I opened my mouth to argue back, a large, knuckled hand landed on my shoulder. The feel of that hand, gripping firm, sent a chill straight down my spine.
 
-"Ah yes... I hear your father is a friend of President Ichinose's. He's stationed in England now, isn't he? Working for a company as large as ours, that's impressive. Rumour has it the whole office is abuzz that he'll undoubtedly become a director once he returns to Japan. So perhaps you've inherited that talent too?"
+"Oh, right... your father's a friend of President Ichinose's, isn't he. Currently stationed in England, I believe? Working at a company just as impressive as our own Group, from what I hear. Quite something. There's talk around the office that once he's back in Japan, a board seat is practically guaranteed. Maybe that blood runs in you too — explains your competence."
 
-Startled, I looked up at his face. Why would he say such a thing? Had he actually looked into it? Into my affairs.
+Startled, I looked up at his face. Why bring that up. Had he — investigated me?
 
-I mustn't let him see my unease. This man was undoubtedly the type to prey on weaknesses. Anything, just say something. I had to retort quickly — yet for a moment, my father's smiling face flashed through my mind.
+I mustn't let the agitation show. This man is exactly the type to exploit any weakness he finds. Anything, I needed to say something back — but just then, my father's smiling face flashed, unbidden, across my mind.
 
-My throat tightened painfully, constricting my voice.
+My throat tightened, closing, and no words would come.
 
-"Right then. See you here in a week."
+"Well then. See you again, in a week, right here."
 
-After Kitakami-san left, I was left utterly dazed. Only then did I realise I'd been clenching my fist so tightly the nails dug deep into my palm, causing pain.
+Kitagami-san left, and, left behind, I just sat there, stunned. Only belatedly did I notice — my fist had been clenched, this whole time, tight enough that my nails had dug painfully into my own palm.
 
-I gently opened my hand, as if to ease the trembling fingertips. My palm was red, bearing the distinct imprint of my nails.
+Gently unclenching my trembling fingers, I found my palm marked, red, in the sharp shape of my own nails.
 
 ＊＊＊
 
-　Leaning against the train door, I stared blankly at the city lights through the swaying window.
+Leaning against the train door, I stared, blank, out the swaying window, at the city lights.
 
-—I couldn't retort. I had a mountain of things I wanted to say. ...Pathetic.
+—I couldn't say anything back. There was so much I wanted to say. ...How pathetic.
 
-I banged my head against the window.
+I knocked my forehead lightly against the window.
 
-Honestly, I hadn't expected him to bring up my father. Was that really him threatening me?
+Honestly, I never expected him to bring up my father. Was that meant as a threat too?
 
-　Even though I intended to tell my family when I went home for the New Year, I hadn't thought I could tell them yet about it being Yui-san, or that our relationship wasn't something that could be accepted right now.
+*
 
-His daughter's infidelity, and between women, no less.
+I'd been planning to tell my family, at year's end, once I went home — but I hadn't planned on telling them that the person was Yui-san, or that our relationship isn't something the world would currently forgive.
 
-If that were to be leaked to my father's company... it might cause trouble for my father too.
+A daughter's infidelity, and same-sex, no less.
 
-Kitakami-san is serious. He genuinely feels threatened by me and is trying to eliminate me completely.
+If that ever got exposed to my father's company somehow... it might end up causing him trouble too.
 
-　He’s remarkably sharp. Perhaps I’d underestimated him.
+Kitagami-san is serious. Genuinely feels threatened by me, and is determined to eliminate that threat completely.
 
-I alighted at the station nearest my flat and walked home alone. What should I do? What on earth should I do?
+He's remarkably sharp. I think I'd underestimated him, badly.
 
-I pulled my phone from my coat pocket and, with numb fingertips, reached for the top entry in my call log — then stopped.
+Getting off at the station nearest my apartment, I walked the rest of the way home alone. What do I do. What should I do.
 
-Instead, I tapped the one below. The familiar name of a friend.\
-　After a few rings, a reassuring "Hello?" came through, and the tension that had been holding my body rigid finally seemed to slip away.
+Pulling my phone from my coat pocket, with cold fingertips I went to tap the very top of my call history — and stopped.
 
-"Sorry for the sudden call. Yuri, are you busy? It's just... I need someone to listen to me vent a little."
+Instead, I tapped the name just below it. A familiar, well-worn friend's name.\
+After a few rings, a reassuring "hello?" reached me, and, finally, the tension that had been coiled tight in my body drained, all at once.
 
-The bitter-sweet taste of whisky lingered on my tongue, refusing to fade.
+"Sorry for calling out of nowhere. Yuuri, are you busy right now? Um... I just wanted someone to listen to me vent, a little."
+
+The faintly bitter taste of whiskey, still lingering on my tongue, refused to fade no matter what.
 
 I looked up at the distant night sky.
 
-It felt as though one might simply fall into the sky, for an endless, profound darkness stretched out before them.
+An endless, deep darkness spread out there, so vast it felt like I might just fall straight up into it.

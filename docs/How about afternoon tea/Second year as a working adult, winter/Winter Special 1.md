@@ -1,317 +1,319 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 170
+nav_order: 17
 parent: Second year as a working adult, winter
 sequence: 106
-title: 'Winter Special 1: Claws'
+title: "Winter Bonus Chapter One: Nails"
 ---
-Winter Special 1: Claws
+## Winter Bonus Chapter One: Nails
 
-Keeping my nails short was a habit that lasted until university.
+\
+Keeping my nails trimmed short was a habit that lasted until my college days.
 
-I'd file them down, rounding the edges to make them short, smooth, and even. I kept the nails on my left middle and ring fingers particularly short, almost to the quick. I'd always carefully run my fingertips over them to make sure there were no snags before applying polish myself.
+Removing the sharp edges with a file, making them short, round, and smooth. I kept the middle and ring fingers on my left hand particularly short, almost to the quick. After carefully running my fingertips over them to make sure there was nothing to catch on, I would always paint them myself.
 
-I think that habit, once ingrained, wasn't really for anyone in particular. In the end, it was just for myself.
+Looking back, that ingrained habit wasn't for anyone specific, it was ultimately just for my own sake.
 
-　Because if I ever ended up pinning 'someone' down on the bed, it would be a problem if my nails were long. That was all there was to it.
+Because if my nails were long when I pushed "someone" down onto the bed, it would be a problem. It was simply a matter of that.
 
-After parting ways with Kanata, I stopped keeping my nails short. There wasn't any particular reason. I think it was simply because I couldn't find meaning in spending the night with anyone other than Kanata.
+After I separated from Kanata, I stopped keeping my nails short. There was no particular reason. I think I simply couldn't find any meaning in spending the night with anyone other than Kanata anymore.
 
-When we first met, I never imagined the day would come when she would reciprocate my feelings.\
-　So I must have been subconsciously searching for someone who resembled her.\
-At first, that satisfied me. But soon, even that felt insufficient.
+When we first met, I never imagined a day would come when she would return my feelings.\
+So subconsciously, I must have been searching for someone who resembled her.\
+At first, I was satisfied with that. But soon, even that felt insufficient.
 
-It was fine while I was still finding similarities between other girls and Kanata, superimposing her onto them.\
-As time passed, however, the differences became unbearably noticeable. Ultimately, it only served to starkly remind me that no one could ever truly replace her, leaving me with nothing but mounting emptiness.
+It was fine while I was still finding traits in other girls that overlapped with Kanata's.\
+But as time passed, I couldn't help but notice all the ways they were different. In the end, I was confronted with the stark reality that no one could ever replace her, and the emptiness within me only grew.
 
-　Before a year had passed since we met, I realised I could no longer embrace other girls.\
-So ever since parting ways with Kanata, the habit of keeping my nails short had vanished.
+Less than a year after meeting her, before I even realized it, I had become unable to hold another girl.\
+That was why, ever since parting with Kanata, my habit of keeping my nails short had completely disappeared.
 
-Whistling softly, I filed the nails on my left hand when Kanata leaned over from behind the sofa backrest to peek at my work.\
-Sensing her presence, I turned to find her gaze fixed on my nails.
+As I filed the nails on my left hand while humming, Kanata leaned over the back of the sofa and peeked at what I was doing.\
+Sensing her presence, I turned around to find her gaze fixed on my nails.
 
 "Hmm? What is it?"
 
-"Yui-san, you seemed in such a good mood, I wondered what you were doing..."
+"Yui-san, you seemed in such a good mood that I wondered what you were doing, but..."
 
 "I was just tidying my nails."
 
-I held up my bare nails, freshly stripped of polish, for her to see.\
-Kanata awkwardly looked away, her cheeks flushing a faint pink. "I see," she murmured softly.
+I raised my bare nails, freshly stripped of any polish, to show her.\
+Kanata awkwardly looked away, her cheeks flushing a delicate pale red, and muttered in a small voice, "I see."
 
-　Her bashful reaction clicked into place. Wanting to see that adorable expression better, I leaned in to peek at her face. Noticing this, Kanata abruptly tried to pull away from the sofa.\
-I reached out, gripping her arm firmly to stop her from escaping. Kanata looked flustered, her eyes darting around.
+Her shy reaction immediately clicked with me. Wanting a better look at her adorable expression, I leaned in, but realizing this, Kanata abruptly tried to pull away from the sofa.\
+I reached out and grabbed her arm tightly so she couldn't escape.\
+Kanata looked flustered, her eyes darting around.
 
-"Kanata, where are you going? Come here."
+"Kanata, where are you going? Come over here."
 
-　Even the nail care that used to be solely for myself now feels more passionate and puts me in a better mood, knowing it's for Kanata too.
+Caring for my nails used to be solely for my own sake in the past, but now, knowing it was for Kanata's sake made me eager, putting me in a great mood.
 
-Weekend nights spent together, those sweet evenings, I always look forward to them so much I can hardly stand it.
+A sweet weekend night spent just the two of us, I always look forward to it so much I can hardly stand it.
 
-The winter chill and the week's fatigue vanish in an instant. The time spent with my beloved lover is irreplaceable, precious moments to me.
+The winter cold and the fatigue of the week blow away in an instant. Touching my beloved girlfriend is an irreplaceable, precious time for me.
 
-　Kanata had been watching me, but once she realised I meant no harm, she padded over to my side and sat down beside me.\
-Then she stared intently at my bare nails.
+Kanata had been watching my reaction cautiously, but once she realized I had no hidden motives, she padded over with soft footsteps, rounded the couch, and sat down next to me.\
+She then stared intently at my unpolished nails.
 
-"...Yui-san always wears nail polish, so somehow, seeing your nails without any polish feels strange. You're so dexterous, and you're really good at painting them, aren't you? Any colour suits you, I'm envious."
+"...Since you always wear nail polish, Yui-san, bare nails feel kind of unusual. You're so dexterous and good at painting them, too. I'm jealous that every color suits you."
 
-"Do you think so? Our company has no dress code, so you can wear whatever you like, Kanata."
+"You think so? Our company has a flexible dress code, so you can do whatever you like, too, Kanata."
 
-Saying that, I took Kanata's hand and stroked her small nails, a pale pink like cherry blossoms.\
-Short nails. Unlike me, Kanata didn't need to keep them short, but since she seemed concerned about having scratched my back before, she'd started keeping them trimmed short ever since.
+Saying that, I took Kanata's hand and gently stroked her small, light-pink nails that looked like cherry blossom petals.\
+Short nails. Unlike me, Kanata didn't really need to keep hers short, but she seemed worried about having scratched my back before. Ever since then, she started keeping them trimmed short.
 
-If it's a wound you can inflict on me, I wouldn't mind at all even if it left a scar.
+If it's a scratch left by Kanata, even if it leaves a mark, I really don't mind at all.
 
-In fact, the thought that you find it so pleasurable you don't even notice such things gets me incredibly excited — though I'd never say that to you, because I think you'd just get embarrassed and sulky.
+In fact, thinking that she feels so good that she forgets about such things actually turns me on immensely, though if I said that out loud, she'd probably get embarrassed and pout, so I'll definitely never tell her.
 
-"Yui-san... you grew your nails after starting work, didn't you? Did you do them yourself back then too?"
+"Yui-san... after you started working, you let your nails grow long, right? Did you do them yourself back then too?"
 
-"No. I had them done at a nail salon. But now I think it's better to do them myself. I always want to keep them short."
+"No, I had them done at a nail salon. But now I think it's better to do them myself. Since I always want to keep them short."
 
-Having said that much, Kanata slipped her hand away and looked down.
+Saying that much, Kanata smoothly pulled her hand back and looked down.
 
-Ah, she's embarrassed. Utterly adorable.
+Ah, she's blushing. So cute.
 
-　When she acts like this, so obviously aware of herself, it makes those rather unsavoury feelings bubble up inside me.\
-Knowing that if I teased her a little, she'd show me an even cuter expression, resisting that urge was truly a monumental task for me.
+When she acts so cute and clearly conscious of what it means, naughty thoughts start welling up inside me.\
+Knowing that teasing her just a little would yield an even cuter expression made it genuinely hard to hold back my desires.
 
 "Hey, Kanata."
 
 "...What is it?"
 
-"Do you remember, back when we were students, that one time you did my nails?"
+"Do you remember when you did my nails just once back when we were students?"
 
 "Eh...?"
 
-Kanata's eyes flickered with unease, her cheeks flushing a pale pink.
+Kanata's eyes flickered with flustered emotion, and her cheeks turned a soft rose pink.
 
-I won't let her say she's forgotten that incident.
+I won't let her say she forgot that incident.
 
-That day, Kanata suddenly asked me, "Can I do your nails?"
+That day, Kanata had suddenly asked me, "Please let me groom your nails."
 
-　Without waiting for a response, she took my hand and began filing my nails. Then, as casually as anything, she asked which fingers I used when embracing a woman.\
-I remember being utterly shocked, my breath nearly catching in my throat.
+Telling me to hold out my hand without room for argument, she started filing my nails, only to nonchalantly ask me which fingers I used when holding a woman.\
+I remember being shocked to my core, almost taking my breath away.
 
-To be honest, I was genuinely flustered then. I instinctively offered my right hand, but Kanata insisted on doing my left too, leaving me feeling utterly flummoxed.\
-　After all, asking Kanata to do something I'd only do for other girls...
+To be honest, I was genuinely troubled back then. Even though I instinctively held out my right hand, Kanata wanted to do my left hand too, which made me want to hold my head in frustration.\
+After all, having Kanata prepare the fingers I used to hold other girls...
 
-Just recalling it brings back those complex feelings from that time.
+Just remembering it brings back the complex emotions I felt at the time.
 
-Back then, I wasn't sure if Kanata truly understood what I meant by 'tidying my nails'. But the thought of making earnest Kanata do such a thing made me feel terribly guilty, unbearably so.
+Back then, I didn't know if Kanata truly understood the meaning behind me keeping my nails trimmed, but thinking about making earnest Kanata do such a thing made me feel guilty, as if I were committing a sin.
 
-"I don't remember, it was so long ago..."
+"I don't remember, that was so long ago..."
 
-Seeing Kanata blush and pout her lips, it was immediately clear she couldn't possibly have forgotten that incident.\
-Fighting hard not to laugh, I peered into Kanata's eyes.
+Looking at Kanata with her flushed cheeks and pouting lips, it was instantly obvious she couldn't have forgotten.\
+Desperately holding back a laugh, I peered into Kanata's eyes.
 
-Before, it was indeed something I did to hold other girls. But now it's different.
+Back then, it was indeed something done to hold other girls. But now, it's different.
 
-　So, it should be alright to ask again, right?
+In that case, it should be fine to ask her now, right?
 
-It might be a bit mean, but I wanted to see Kanata blushing and looking embarrassed more. I know it's a bad habit.
+It might be a little mean, but I want to see Kanata get even more embarrassed and shy. I know it's a bad habit of mine.
 
-But when she made that face, it was no wonder I couldn't hold back either.
+But when she makes a face like that, I can't help losing my brakes either.
 
-"Oh, you don't remember... That's a shame. Hey, Kanata. Since we're here, do it again. My nails."
+"I see, you don't remember... What a shame. Hey, Kanata. Since we're here, do them again for me. My nails."
 
-"Eh?"
+"Huh?"
 
-This time, I offered my left hand without hesitation. Kanata froze for a moment, then stared intently into my eyes, trying to gauge my true intentions.
+This time, I offered my left hand without hesitation. Freezing for a moment, Kanata stared into my eyes trying to discern my true intentions.
 
-How adorable. I want to hug her. I want to kiss her. Hiding those feelings, I covered it up with a smile and gently placed the nail file in her right hand.
+So cute. I want to hug her. I want to kiss her. Hiding those feelings behind a smile so she wouldn't notice, I gently placed the file in her right hand.
 
-"Here you go, please."
+"Here, please."
 
-"Yui-san, are you serious? I'm clumsy, and I'd never be able to paint them neatly, like with nail polish."
+"Yui-san, are you serious? I'm clumsy, and I definitely can't apply nail polish neatly."
 
-"Then just trim them to the right length. Just the middle and ring fingers will do."
+"Then just shaping the length is fine. Just the middle and ring fingers will do."
 
-When I whispered that teasingly, Kanata's face, still holding the file and looking down, flushed even brighter red.\
-Seeing her react so adorably like this makes me want to ask her to do it every single time.
+Whispering mischievous words like that, Kanata held the file and looked down, her face turning bright red at last.\
+Giving such an adorable reaction makes me want to ask her every single time.
 
 "But..."
 
-"Please. Doing my dominant hand is actually quite tricky."
+"Please. Doing it on my dominant hand side is pretty difficult."
 
-That's a lie, of course. I've done it so many times I'm really quite used to it now. But I just want to see you blushing like that, Kanata. It's just too cute to resist.
+That was a lie, of course. Having done it countless times, I'm actually completely used to it. But I want to see cute, embarrassed Kanata, so it can't be helped.
 
-Kanata seemed to accept my lie. Reluctantly, she took my left middle finger and gently pressed the nail file against my nail.
+Seemingly convinced by my lie, Kanata reluctantly took the middle finger of my left hand and gently pressed the file against the nail.
 
-　My nails were short to begin with, so it was just a matter of smoothing the edges and rounding them off. With only the middle and ring fingers, it was finished in no time. I just stared intently at Kanata, blushing but earnestly filing my nails.
+My nails were already short to begin with; just taking off the slightly grown corners and rounding them out took no time at all for just the middle and ring fingers. As Kanata seriously groomed my nails while blushing, I just watched her intently.
 
-Knowing the significance of filing these nails, yet doing it properly despite her embarrassment, was so endearing it was unbearable.
+Knowing full well what grooming the nails on these specific fingers meant, doing it properly despite her shyness was so endearing I could hardly bear it.
 
-　This is impossible. Though I thought I couldn't wait until nightfall, I forced myself to endure until she finished, since she was taking the trouble to do my nails.
+This is impossible. I can't wait until tonight anymore, I thought, but since Kanata was taking the trouble to fix my nails, I exercised self-control to endure until she finished.
 
-"...Yui-san, um, is this alright?"
+"...Yui-san, um, is it okay like this?"
 
-I ran my fingers over the tips of my middle and ring fingers, now neatly filed. The smooth, perfectly trimmed nails, free of any snags, were back to their familiar length.\
-　Rolling the nail file in my hand, I smiled slightly at Kanata, who seemed restless. Then, using the very fingertips she’d just trimmed, I touched Kanata’s soft shoulder.
+I stroked the tips of my newly groomed middle and ring finger nails. Smooth and shaped without anything to catch on, the fingertips were back to a length I was thoroughly familiar with.\
+Rolling the file in my hand, I chuckled a little at Kanata's restless demeanor. Then, with the very fingertips she had just groomed, I touched Kanata's soft shoulder.
 
-"Thanks. Since you’ve gone to the trouble, shall we test whether it’s alright?"
+"Thanks. Since we're here, want to test and see if it's really okay?"
 
-"Eh…?"
+"Eh...?"
 
-I leaned my weight heavily onto her. Her body fell naturally, lying down on the sofa. Her long chestnut hair spread out smoothly.
+I applied my weight gently. Her body naturally gave way and reclined onto the sofa. Her long chestnut hair spread out smoothly.
 
-　Leaning over her, I looked down. Her moist eyes, filled with a mixture of expectation and anxiety, gazed up at me.
+Leaning over and looking down, moist eyes filled with a mix of anticipation and anxiety looked up at me.
 
-Lately, Kanata often wore this expression. Did she realise it was like begging me to hurry up and eat?
+Kanata often makes this expression lately. Does she realize it's practically the same as asking me to eat her up right away?
 
 "Um, Yui-san..."
 
 "Hmm?"
 
-"Are we... doing it?"
+"Are we... going to do it?"
 
-"Yes."
+"Yeah."
 
-I traced the soft outline of her lips with my thumb. After confirming she didn't object, I gently pressed my lips to hers.
+I touched my thumb along the contour of her soft lips. Confirming that she didn't mind, I gently brought my lips to hers.
 
-Back in my student days, I simply enjoyed having sex with girls.
+Back when I was a student, I simply enjoyed having sex with girls.
 
-I didn't have any particular preferences; as long as she was cute, anyone would do.
+I didn't have any particular preferences; as long as she was cute, anyone was fine.
 
-Just holding a soft body made me feel, for that moment at least, as if I were forgiven – forgiven for not being able to love men, and for the impure feelings I, a woman, directed towards other women.
+Just embracing a soft body made me feel as though, for that moment alone, my inability to love men, and the wicked feelings I, a woman, harbored toward other women, were somehow forgiven.
 
-　But that kind of sex was merely a painkiller, a mere consolation far removed from solving the fundamental problem.
+But sex like that was nothing more than a painkiller, far from a fundamental solution, just a temporary solace.
 
-I think it was meeting Kanata that made me realise it ultimately meant nothing if the feelings weren't mutual.
+I think it was meeting Kanata that taught me it ultimately means nothing if your feelings aren't connected.
 
 Because I cherish her, I want to touch her.
 
-But what I feel for Kanata isn't just such a pure emotion. Merely touching her skin makes my reason feel like it could shatter in an instant.
+But what I feel for Kanata isn't limited to such pure emotions. Just touching her skin makes my reason feel like it's about to burst into pieces in an instant.
 
-　Adoration and desire become tangled together, igniting a fierce fire deep within my chest.
+Affection and desire intertwine, burning intensely deep within my chest.
 
-Unlike men, there's nothing to quell it, so the craving just swells and swells, ultimately finding no end.
+Unlike a man, there is nothing to be satisfied or put away, so desire simply swells and swells without end.
 
-Truthfully, I want to love her endlessly, until morning comes.\
-I want her to be so utterly consumed by me that she can think of nothing else.\
-Because I adore that expression on her face, that look of pure, unyielding desire for me.
+Truthfully, I want to love her on and on until morning comes.\
+I want her to be so captivated by me that she can't think of anything else.\
+Because I irresistibly love that expression of hers when she craves me endlessly.
 
-　Please accept all of my wicked desires, Kanata. You and no one else.\
+I want Kanata, and no one else, to accept all of my wicked desires completely.\
 But even that isn't enough.\
-I find myself wishing Kanata would think of me with equal fervour.
+I end up wishing that Kanata would feel for me with the exact same passion.
 
-What a luxury to have such worries, I think. Just knowing our feelings are mutual should be happiness enough.\
-Perhaps when one soaks too long in happy times, they can become greedy beyond measure.
+It's a luxurious worry, I think. When having our feelings connected alone brings such happiness.\
+Perhaps when people bask in happy times for too long, their greed knows no bounds.
 
-I stripped off her fluffy, adorable loungewear along with her underwear and tossed it carelessly onto the edge of the sofa.\
-Covering her white, round breasts, rising and falling with shallow breaths, as if gently cupping them in my palms, I could feel her heart beating strongly.\
-　Trace the faint outline of her ribs with your fingertips, and she’ll clamp her knees together, trying to close her legs. Grasp the back of her knees and forcefully slide your body between them.
+I strip off her fluffy, cute loungewear along with her underwear, tossing them aside onto the edge of the sofa.\
+Gently cupping her round white breasts that rise and fall with shallow breaths, I feel the thumping of her heartbeat transmitted to my palm.\
+Tracing the faint contour of her ribs with my fingertips, she tries to press her round knees together to close her legs, so I grab the backs of her knees and forcefully slide my body between them.
 
-Press your lips repeatedly against her eyelids, cheeks, and the nape of her neck, as if clinging.\
-I want you to understand. How deeply I love you.
+On her eyelids, her cheeks, her neck, I press my lips repeatedly as if clinging to her.\
+I want her to understand. Just how deeply I love Kanata.
 
-　I couldn't bear to waste even a moment undressing myself, so desperate was I to touch Kanata, to touch her.
+So desperate to touch Kanata that even taking the time to shed my own clothes feels like a waste, I can barely contain myself.
 
-I pressed the middle and ring fingers of my left hand, which she had trimmed for me, against Kanata's lips.
+I press the newly groomed middle and ring fingers of my left hand against Kanata's lips.
 
-"Kanata. ...Open your mouth."
+"Kanata... Open your mouth."
 
-The warmth inside her mouth, welcomed through the hesitant parting of her lips, was warm. Gently caressing her small tongue with my fingertips, its softness tickled me ever so slightly.
+Welcomed through the gap of her hesitantly opened lips, the inside of her mouth is warm. Gently stroking her small tongue with my fingertips, the soft sensation feels a bit ticklish.
 
-During sex, Kanata is truly compliant. She’s shy, but she listens to me no matter what.\
-But if I go too far, the backlash afterwards is intense. If she sulks properly, it might ruin our date plans for the next day. I’ve only just learnt recently that overdoing anything is never good.
+During sex, Kanata is truly obedient. Even while shy, she ultimately listens to whatever I say.\
+However, if I push things too far, the backlash afterward is huge. If she genuinely gets sulky, our date plans for the next day might be ruined, so I've finally learned recently that moderation is key.
 
-　Slowly withdrawing my finger, I drew her lips to mine for a kiss. While entwining our tongues to distract Kanata, I gently slid my saliva-moistened finger down towards her lower body.
+Slowly pulling my fingers out, I lean in to kiss her. While enticing her by intertwining our tongues, I softly extend my saliva-wetted fingers down to her lower body.
 
-Touching gently, first the middle finger. Then, a little later, the ring finger.
+Touching her gently, first the middle finger. Then shortly after, the ring finger.
 
-The moment it touched her, I thought, 'See, I didn't need her to lick my finger after all,' but I kept that thought to myself and didn't point it out.
+The moment I touch her, I think to myself that having her lick my fingers hadn't really been necessary after all, but I keep that thought to myself without mentioning it.
 
-　Feeling the sweet sigh and Kanata's melting warmth on my fingertips made me dizzy.\
-Unable to resist the sight of her arching white throat, I lightly bit her neck.
+Feeling Kanata's melting warmth as she lets out sweet sighs against my fingertips makes me dizzy.\
+Unable to resist her white throat arching back, I lightly sink my teeth into her neck.
 
-My tongue traced from her sweat-dampened nape to her protruding collarbone.
+From her sweat-beaded neck down to her prominent collarbone, I trace my tongue.
 
-With tear-filled eyes, Kanata looked at me and called my name repeatedly in a sweet voice unimaginable from her usual self.
+Looking at me with tear-filled eyes, Kanata calls my name over and over in a sweet voice impossible to imagine from her usual self.
 
-"Does it hurt? Are you alright?"
+"Does it hurt? Are you okay?"
 
-"U-uh..."
+"Y-yeah..."
 
-"Hmm, good. ...Is it pleasurable?"
+"Nn, good... Does it feel nice?"
 
-Her expression, the tone of her voice, the tight grip on my fingers – I knew the answer without needing to ask.
+From her expression, tone of voice, and the sensation of her tightening around my fingers alone, I don't actually need to ask to know.
 
-But I wanted to hear it. Truly, I just wanted her to say it. I just wanted her to want me.\
-　When I gently asked, pretending not to know, she shyly whispered back, "It feels good."
+But I want to hear it. Truthfully, I just want her to say it. I just want her to desire me.\
+Pretending not to know as I gently ask, Kanata shyly confesses in a quiet voice, "It feels good."
 
-With my right palm, I stroked her trembling, slender abdominal muscles.\
-Having held her many times before, I knew. That her limit was right there.
+I stroke her trembling, slender abdominal muscles with my right palm.\
+Having held her so many times, I know, that her limit is right around the corner.
 
-If tears overflowed from those eyes and wouldn't stop — all I could do then was brace myself for being bitten.
+When tears overflow from her eyes and won't stop, all that's left for me to do is prepare to be bitten.
 
-　I don't feel direct physical pleasure myself, but simply touching Kanata makes me feel incredibly good. That's why I can't stop.
+Even though I don't directly feel physical pleasure myself, just touching Kanata feels so good to me. That's why I can't stop.
 
-Getting bitten hurts, but more than that, I'm happy that Kanata feels good, so such minor pain isn't a hardship.
+Getting bitten hurts, but I'm far happier that Kanata feels good, so such minor pain isn't even a bother.
 
-"Yui-sa-n, I, can't, anymore—"
+"Yui-sa...n, I... can't..."
 
-Her tear-filled eyes pleaded with me. It’s utterly adorable and endearing how she always tells me when she’s reached her limit.\
-If I say ‘not yet’, she’ll try so hard to hold back, and if I say ‘it’s alright’, she’ll look at me with those utterly melted eyes, relieved. I love that.
+Her tearful eyes plead with me. The way she always lets me know her limit is so cute and endearing I can't get enough of it.\
+If I say "not yet," she admirably tries her best to hold back, and if I say "it's okay," I love how she looks at me with relieved, completely melted eyes.
 
-I want to keep watching that look, the one only I get to see, forever and ever. So I want to say ‘not yet’, but since we have a date tomorrow, I’ll try not to be too cruel tonight.
+I want to gaze forever and ever at the sight of her that only I get to see. That's why I want to tell her "not yet," but since we have a date tomorrow, I'll refrain from being too mean today.
 
-“Already at your limit?”
+"Already at your limit?"
 
-As I listened, Kanata nodded repeatedly, her head bobbing up and down.
+When asked, Kanata nods repeatedly.
 
-"...Right, I understand. It's alright now."
+"...Mm, alright. You can let go now."
 
-I pulled her sweaty body tightly against mine. She bit my shoulder, and I almost groaned at the pain — but in moments like this, that ache always vanished, replaced by a deep, overwhelming tenderness filling my chest.
+I pull her sweaty body close, hugging her tightly. She sinks her teeth into my shoulder, making me almost groan from the pain, but every time, at this moment, any pain vanishes as my heart overflows with love.
 
-＊＊＊
+* * *
 
-"Maybe next time I'll have Kanata do my nails."
+"Maybe I should have you do my nails from now on, Kanata."
 
-Hugging Kanata from behind in the bath, I made the suggestion. Our eyes locked perfectly as she turned back, looking resentful.
+When I suggested this while hugging Kanata from behind in the bathtub, my eyes met hers as she looked back at me reproachfully.
 
-"No way. I'm not doing it again."
+"No way. I'm never doing it again."
 
-"Eh? Why? It's fine. I'll do your nails for you."
+"Ehh, why not? It's fine, right? I'll do your nails for you in return."
 
-"No way. Because you're always doing naughty things, Yui-san. Even today, you definitely had that in mind from the start, didn't you?"
+"No. Because all you do are naughty things, Yui-san. Even today, you definitely intended this from the very start, didn't you?"
 
-Seeing Kanata protest with her cheeks puffed out, I couldn't help but laugh. That's odd. I don't think I was particularly mean today, but judging by her reaction, getting my nails done must have been quite embarrassing for her.
+Pouting her cheeks in protest, Kanata makes me burst out laughing. That's strange. I thought I didn't tease her much today, but judging by her reaction, taking care of my nails must have been quite embarrassing for her.
 
-"So, does that mean you knew I was planning it and did it anyway? Were you actually hoping for it?"
+"Does that mean you took care of them knowing I had that in mind? Were you actually hoping for it?"
 
-When I teased her like that, she clamped down hard on my left middle and ring fingers, squeezing them almost painfully.
+Teasingly asking her that, she squeezes my left middle and ring fingers together so hard it almost hurts.
 
-"Ouch, ouch! Kanata, if you grip that hard, you'll break them!"
+"Ow, ow! Kanata, if you squeeze them that hard, they're going to break."
 
-"Stop saying things like that and show some remorse."
+"Stop saying things like that and reflect on yourself a little!"
 
-"What if it really did break? I might not be able to do it properly with my right hand."
+"What if they really break? I might not be able to do it well with my right hand."
 
-"Is that really what you're worried about?! Ugh, you really are only thinking about dirty things, aren't you?! You lecher, Yui-san!"
+"Is that what you're worried about!? Geez, you really are only thinking about perverted things! Yui-san, you pervert!"
 
-I knew full well she was just embarrassed and sulking. And that Kanata, well, I found her utterly, utterly adorable.
+I know full well she's just shy and pouting. And I can't help finding Kanata so terribly, hopelessly cute like this.
 
-"Sorry, sorry. I'll apologise, so cheer up. I'll do my own nails properly. For you, Kanata."
+"Sorry, sorry. I apologize, so cheer up, okay? I'll properly do my nails myself from now on. For your sake."
 
-Saying that, I kissed her cheek, and finally her fingers released mine.\
-I curled and uncurled my fingers several times, letting the blood flow back into them after being gripped so tightly it felt like they might go numb.
+Kissing her cheek as I said that, my fingers were finally released.\
+I opened and closed my hand a few times to get the blood flowing back into the fingers she had squeezed almost to numbness.
 
-I looked at my bare, unpolished nails, examining them. The middle and ring fingers Kanata had carefully shaped felt strangely precious.
+I stared at my bare, unpainted nails as if inspecting them. The middle and ring fingers that Kanata had carefully groomed felt oddly dear to me.
 
-　Honestly, I don't think this is so bad, you know.\
-Even today, despite everything, I reckon we had a good time.
+Still, I don't think this sort of thing is bad at all.\
+Even today, despite everything, I'm pretty sure things got plenty exciting.
 
-"...What's wrong? Did it really break?"
+"...What's wrong? Did they actually break?"
 
-I smiled at Kanata, who tilted her head worriedly.
+I smiled at Kanata, who tilted her head worryingly.
 
-"...Hey, Kanata. Next time, could I really try using my right hand? You know, just in case I hurt my left hand or something. I think it's important to practise everything, just in case."
+"...Hey, Kanata. Can I really try using my right hand next time? You know, just in case I injure my left hand or something. It's important to practice these things, right?"
 
-　As if she'd seen right through my ulterior motive – imagining how cute and flustered she'd look with my right hand – Kanata splashed water right in my face and turned bright red with anger.
+Seeing right through my ulterior motive, imagining how cute and flustered Kanata might get if I used my right hand, Kanata splashed water right into my face, her face flushing bright red with fury.
 
-Strange. I really did mean it quite seriously.
+That's weird. I felt like I was being quite serious, though.
 
-But someday, I'll definitely try it.
+But someday, I'm definitely going to try it.
 
-I'm sure Kanata would be happy about it too.
+I'm pretty sure Kanata would enjoy it too, though.
