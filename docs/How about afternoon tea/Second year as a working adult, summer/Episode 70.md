@@ -68,7 +68,7 @@ Laughing, I looked into her eyes. That town — I could walk it blind.
 Next year — if it's possible, as her girlfriend, I want to walk it hand in hand with you, without hesitation.\
 Right now, I could genuinely, wholeheartedly believe a day like that would come.
 
-Never once rushing me, watching me stare seriously at each tank, those calm eyes, still as a nighttime sea, kept gently watching me the whole time.
+Never once rushing me, watching me stare seriously at each tank, those calm eyes, still as the nighttime sea, kept gently watching me the whole time.
 
 *
 
