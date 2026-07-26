@@ -89,9 +89,9 @@ I could tell exactly what those two, seated across the table, were thinking, and
 Covering my embarrassment, I topped mine generously with sauce and mayo, finished with bonito flakes, and bit into the piping-hot takoyaki.\
 Ritsu-san's secret recipe, apparently taught to her by a coworker during her Osaka posting. The faint scent of dashi spreading through my mouth pulled an unstoppable, appreciative groan out of me. Tasted just like something from a proper shop.
 
-"Kanata, good?"
+"Kanata, is it good?"
 
-I nodded, quick, and Yui-san watched me, delighted, and smiled — "good."
+I nodded, quick, and Yui-san watched me with a delighted smile and said, "I’m glad."
 
 "Hey, Yui. I'm the one who cooked that. Why are you looking so proud of yourself? That's my achievement, you know. Praise me first."
 
