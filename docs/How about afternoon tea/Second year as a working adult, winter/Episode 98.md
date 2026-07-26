@@ -1,236 +1,246 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 140
+nav_order: 14
 parent: Second year as a working adult, winter
-sequence: 103
-title: 'Episode 98: I Might Never Be Able to Beat Kanata, Even If It Takes Me a Lifetime'
+sequence: 102
+title: "Episode Ninety-Eight: I Might Never Beat You, Even If It Takes My Whole Life"
 ---
-Episode 98: I Might Never Be Able to Beat Kanata, Even If It Takes Me a Lifetime
+## Episode Ninety-Eight: I Might Never Beat You, Even If It Takes My Whole Life
 
-Tomorrow marks the end of the year-end and New Year holidays. The night before work resumes.
+\
+Tomorrow, the long year-end and New Year's holiday finally comes to an end. Tonight, the night before work starts again.
 
-I lifted the lid from the pot bubbling away on the dining table. As pure white steam rose towards the ceiling, the aroma of chicken broth spread through the air.
+On the dining table, I lifted the lid off the pot, bubbling away. Pure white steam rose toward the ceiling, and, at the same moment, the smell of chicken broth spread through the room.
 
-The Kiritanpo hotpot set with Hinai chicken, a gift from Ritsu-san, came with most ingredients included.\
-　Thinking I might just manage to cook this myself, I confidently declared, "Yui-san, you can just sit down," but once I started preparing it, I wasn't entirely sure if I was doing it right.
+The kiritanpo hot pot set with Hinai chicken, Ritsu-san's souvenir gift, had come with almost every ingredient already prepared.\
+Thinking I might actually manage this one myself, I'd confidently told Yui-san, "you can just sit there", but now that I was actually making it, I wasn't entirely sure I was doing it right.
 
-Yui-san watched me struggling, staring intently at the enclosed instructions, looking concerned. She offered several times, "Shall I help?" but I stubbornly refused.
+Locked in a staring match with the included instructions, struggling my way through it, Yui-san had watched me, worried, offering "want help?" more than once, but I'd stubbornly refused to give in, every time.
 
-　I'm not particularly adept at household chores in general, but if I'm going to live with Yui-san from now on, I feel I must overcome my weaknesses one by one.
+I'm not especially good at housework in general, but if I'm going to live with Yui-san going forward, I think I need to overcome these weak points, one at a time.
 
-"Hey, Yui-san... is this actually turning out alright...?"
+"Hey, Yui-san, is this actually turning out right...?"
 
-Unable to shake my unease, I asked. Yui-san promptly peered into the pot.
+Unable to shake my anxiety, I asked, and Yui-san peeked into the pot.
 
-"Mm, it's spot on. It reminds me of when I was treated to this at Ritsu's family home years ago."
+"Yeah, looks perfect. This is basically how it looked when I got treated to it at Ritsu's family home, back then."
 
-　I breathed a sigh of relief. Yui-san, sitting opposite me at the table, was smiling happily.
+Something in me eased, relieved. Sitting across the table, Yui-san smiled, happy.
 
-"It looks delicious. Thank you for making it."
+"Looks delicious. Thanks for making it."
 
-"If you want to thank anyone, thank Ritsu-san. This comes with the soup and everything."
+"If you want to thank someone, thank Ritsu-san. The whole soup base came pre-made in the set."
 
-"It doesn't change the fact that Kanata made it. I'm really happy."
+"You're still the one who made it, though. I'm really happy."
 
-Hearing that made me feel I had to try even harder.\
-　Scratching my cheek to hide my embarrassment, Yui-san smiled at me again.
+Told that, something in me swells up, wanting to try even harder.\
+Scratching my cheek, hiding my embarrassment, Yui-san laughed at me all over again.
 
-January marked the start of the fourth quarter. This was the final phase of the 'promised three years'. The mere thought of it made me feel a sense of urgency.
+*
 
-The strategic groundwork Yui-san had laid in management had borne significant fruit this year, the third year.\
-　Judging by the results accumulated up to the third quarter, this period is progressing smoothly, still on track to safely achieve the promised target figures.
+Starting in January, the fourth quarter finally begins. This marks the final stretch of that "promised three years."\
+Just thinking that was enough to make me feel the weight of it, seriously.
 
-Then, surely, no one would complain. No one would doubt Yui-san's management skills. After all, financial statements don't lie.
+Every strategic move Yui-san's made in managing this company has, this year — the third year — finally borne substantial fruit.\
+Based on the results accumulated through the third quarter, this fiscal year looks set to hit the promised targets without issue, right on track.
 
-To gain recognition for her abilities as a manager. She needed to prove through results that she didn't need to rely on Kitakami-san.\
-　That was the only way Yui-san could choose to live freely.
+Once that happens, surely, no one will have anything left to say. No one doubts Yui-san's management ability anymore. Because financial statements never lie.
 
-I truly respect that effort.
+To have her ability as an executive properly recognized. To prove, through solid results, that she doesn't need Kitagami-san at all.\
+That had been the one and only path Yui-san chose, to be able to live freely.
 
-Yui-san was far, far more remarkable than I had imagined.\
-Though in private, she's like a wolf, ready to pounce on me at the slightest opportunity...
+I respect that effort, from the very bottom of my heart.
 
-I stuff my cheeks with the chewy kiritanpo. Mmm, delicious. My thoughts drift to Akita, a place I've never visited. I picture the pure white snow piled high enough to reach the rooftops.
+Yui-san turned out to be a far, far more remarkable person than I'd ever realized.\
+In private, though, she's still a wolf, jumping at any opening to push me down...
 
-I recall how last autumn, we talked about taking a holiday and travelling somewhere once we got through this term.
+I bit into the soft, chewy kiritanpo. Delicious. I found myself imagining Akita, a place I've never been. Picturing snow, piled thick, reaching all the way up to the rooftops.
 
-I want to visit all sorts of places. Just the two of us.\
-I believe we can make anything happen. Because from now on, we have all the time in the world together.
+I remembered — last autumn, we'd talked about taking a trip together, once this fiscal year was behind us.
+
+There are so many places I want to go. Together with Yui-san.\
+I think we can make any of it happen. Because from here on, we'll have all the time in the world, together.
 
 ＊＊＊
 
-And then the next day. My first day back at work this year.
+The next day. My first day back at the office this year.
 
-　Leaving home much earlier than usual that morning, I carried paper gift bags in both hands as I walked from the flat to the office.
+Leaving much earlier than usual, I carried the souvenir paper bags in both hands, walking from my apartment toward the office.
 
-I'd bought tea and biscuits as gifts to give to the Budget Management Section members.
+I'd brought tea and cookies as souvenirs for the budget management team.
 
-According to what Yui-san told me yesterday over hotpot, the happy news is that Manager Yamazato is expecting her second baby. I heard she's due to start maternity leave before summer this year.
+Yesterday, over the hot pot, Yui-san had told me some happy news — apparently, Manager Yamasato-san is expecting her second child. She's set to go on maternity leave sometime before this coming summer.
 
-It's still confidential, but apparently there's been some friction. It's about who will serve as the 'sub-manager' to fill in for Manager Yamazato during her absence.
+Still meant to stay confidential for now, but apparently there'd been some friction, quietly — over who would step in as "sub-manager" while she's away.
 
-Surprisingly, both Mitsuya-san and Seno-san have declined, and persuading them is proving difficult. No matter how many meetings they've had, neither seems willing to budge.
+Surprisingly, both Mitsuya-san and Seno-san had turned it down, and apparently persuasion efforts had stalled entirely. However many times they'd been asked, neither would budge.
 
-　I can imagine why Seno-san declined, but Mitsuya-san was a bit of a surprise. Having worked with both, I feel either would be acceptable, even if their approaches to work differ.
+I could guess Seno-san's reasoning — but Mitsuya-san's refusal genuinely surprised me a little.
 
-While pondering this, I realised I'd already arrived at the office.
+Having worked with her myself, even with their different approaches to work, I'd have thought either of them would make sense in the role.
 
-This morning, the president will deliver a "New Year's Address" to all employees first thing. For that, we must prepare the broadcasting equipment in the main conference room.
+Lost in that thought, before I knew it, I'd already reached the office.
 
-　Head office staff would gather in this room, while others would join online or via announcement.\
-After clocking in, I promptly carried the broadcast cameras into the conference room and began setting up.\
-As I erected the tripod and prepared the camera, I noticed Yui-san entering the room.
+First thing this morning, the president would deliver a "New Year's greeting" to the whole company. For that, we needed to finish setting up the broadcast equipment in the large conference room.
 
-Her light grey suit made my heart skip a beat. The necklace I'd given her glinted at her neckline. With her long legs, Yui looked particularly good in this kind of trouser suit.
+Headquarters staff would gather in this room in person; everyone else would join online or receive a written notice.
 
-"Ah, Yui, you're just in time. Could you step up to the podium for a moment? I need to check the camera angle."
+Clocking in, I carried the streaming equipment straight to the conference room and started setting up.\
+Setting up the tripod, preparing the camera, I noticed Yui-san step into the room.
 
-As I said this, peering at the monitor, she suddenly wrapped her arms tightly around me from behind. Her arms encircling my body gently moved to rest on my stomach.
+A light grey suit — my heart gave a small flutter. At her chest, the necklace I'd given her caught the light, glinting. With those long legs, pantsuits like this always suit Yui-san beautifully.
+
+"Ah, Yui-san, perfect timing. Could you stand up there for a second? I want to check the camera angle."
+
+Checking the monitor as I said it, I was suddenly, from behind, wrapped in a tight embrace. The arms holding me gently circled my stomach.
 
 "Um... Yui-san?"
 
-"Hmm?"
+"Mm?"
 
-"Honestly... What if someone comes in? This isn't right. Please let go."
+"Come on... what if someone comes in? You need to let go."
 
-"It's this time of day. No one's coming. A little won't hurt, will it? I just thought we hadn't had our morning hug yet."
+"Nobody's coming, not at this hour. Just a little, isn't it fine? I realized we hadn't had our morning hug yet."
 
-She nuzzled against my neck, breathing deeply.\
-I don't wear perfume, and I use unscented fabric softener, so I shouldn't smell as lovely as she does. Yet Yui-san always says my scent is "calming".
+Nuzzling insistently against my neck, Yui-san breathed deep.\
+I'm not wearing perfume, and even my fabric softener is unscented, so there's no way I actually smell as good as Yui-san does — and yet she always says my scent is "calming."
 
-Yui-san, who'll happily seek physical contact even in places where anyone could turn up at any moment, is bold and fearless. She's got nerves of steel, or something.
+Wanting to touch me even in a place where anyone could walk in at any moment — bold, unshakeable nerve, or something like that, I suppose.
 
-"Yui, really. At this rate, I won't get anything done."
+"Come on, Yui-san. At this rate the setup's never going to get done."
 
 "Just three more minutes. Please."
 
-Yui is incredibly indulgent towards me, and I'm quite aware that I'm equally indulgent towards her.\
-Precisely because I'm aware, I think I need to rein myself in occasionally. The president's office is one thing, but in a meeting room, you never know when someone might see us.
+Yui-san's endlessly soft on me, but I'm well aware I'm just as soft on her.\
+Exactly because I'm aware of it, I think I need to rein myself in, sometimes. The president's office is one thing, but a conference room — there's no telling who might walk in, at any moment.
 
-I spun around in her arms, and Yui's eyes widened. I stretched up slightly and pressed my lips against hers for just an instant.\
-Startled by the suddenness, her arms relaxed, and I slipped free.
+Turning within her arms, I looked back, and Yui-san's eyes went wide.\
+Rising slightly on my toes, I pressed my lips against her soft ones, just for an instant.\
+Caught off guard, her arms loosened, and I slipped smoothly free.
 
-"Three minutes? I can't wait that long. You'll just have to make do with that. Now, Yui-san, take the stage. I'll do the camera check."
+"Three minutes is too long to wait. Make do with that for now. Come on, Yui-san, up on the stage. I need to check the camera."
 
-Pointing towards the podium with a smug look, I saw Yui-san, who'd been staring blankly, suddenly break into a smile.
+Pointing toward the stage with a satisfied look, Yui-san, still blinking, blank, let her expression crumble into a smile.
 
-"...I might never beat you, Kanata, even if I spent my whole life trying."
+"...I might never beat you, even if it takes my whole life."
 
-What nerve! It's always me getting led around by Yui-san.\
-But this time, it seems I've won. Hands on my hips, I gave her a broad smile.
+That's rich, coming from you. I'm the one who's always the one getting swept along by you, every single time.\
+But this round, at least, felt like a win for me. Hands on my hips, I gave her a bright, satisfied smile.
 
 ＊＊＊
 
-After exchanging New Year greetings, I returned to the president's office.\
-Yui-san was scheduled to visit the parent company in the afternoon to make the rounds, then head straight home afterwards.\
-Oh dear. Because Kitakami-san should be there too. Naturally, Yui-san would end up seeing him.
+Once the New Year's greeting wrapped up, I headed back to the president's office.\
+Yui-san's afternoon schedule had her visiting the parent company for greetings, then heading straight home from there.\
+I really don't like it. Because Kitagami-san will surely be there. Of course, Yui-san will end up crossing paths with him.
 
-Ever since I mentioned being summoned by Kitakami-san, Yui-san has been utterly meticulous about not even hinting at his existence, presumably thinking I worry about him.
+Ever since I told her about being called out by him, Yui-san's made absolutely sure never to let even a hint of his existence surface, apparently worried it would bother me.
 
-　Even those pale blue paper bags piled up in Yui-san's closet had vanished without a trace by the time I noticed.\
-Instead, when I saw the accessories Ritsu-san was wearing after so long had suddenly become so extravagant, I nearly burst out laughing.
+That stack of pale blue paper bags that used to pile up in her closet — before I even noticed, they'd all disappeared completely.\
+Instead, I nearly burst out laughing when I saw Ritsu-san, whom I hadn't seen in a while, suddenly sporting noticeably fancier accessories.
 
-　When Ritsu noticed my reaction, she cheerfully declared, "My grandmother back home always said, 'You can never go wrong taking what you can get'," looking rather pleased with herself.
+Noticing my reaction, Ritsu-san had said, breezy, proud of herself, "my grandma back home always said there's no harm in accepting whatever's offered."
 
-The items themselves aren't to blame, and that brand's accessories are rather lovely, aren't they?\
-They suited Ritsu perfectly, so I reckon it's far better they ended up in the hands of someone who'd make good use of them than remain tucked away in a wardrobe.
+Objects aren't at fault, and that brand's accessories really are lovely.\
+They suited Ritsu-san beautifully, so I think it's much better for them to end up with someone who'll actually make good use of them, rather than sitting shut away in a closet forever.
 
-　That sort of thing — how our surroundings gradually change bit by bit. But since then, Kitakami-san has been eerily still, not making a single move.
+Things around us keep shifting, gradually, like that — but ever since that day, Kitagami-san's stayed eerily, unsettlingly still.
 
-He hasn’t shown his face at the office, nor have any emails arrived addressed to me. It felt somehow like the calm before the storm, and I couldn’t help but find it unsettling.
+He hasn't shown his face at the company, and no emails have come to me either. Somehow, that calm felt like the eye of a storm, and I found myself, vaguely, unsettled by it.
 
-After seeing Yui-san off in the afternoon, I headed to the Budget Management Department desk with the souvenir tea and biscuits in hand.
+*
 
-　Though everyone had been present this morning, only a new girl who’d transferred over in autumn remained at the desks.
+In the afternoon, after seeing Yui-san off, I carried the souvenir tea and cookies toward the budget management desks.
 
-Noticing me approaching with the gift bag in hand, she turned towards me.\
-Through the lenses of her black-rimmed glasses, her almond-shaped eyes, framed by long lashes, fixed on me as if sizing me up. Her bob cut, trimmed just above her shoulders, was jet black. Her features were slightly youthful, and she gave off no hint of flamboyance.
+Everyone had been gathered that morning, but now only the new hire, transferred in this past autumn, sat at her desk.
 
-"Ah, nice to meet you. I'm the secretary..."
+Noticing me approach with the paper bags of souvenirs, she turned toward me.\
+Through black-framed glasses, almond-shaped eyes, ringed in long lashes, studied me carefully, sizing me up. Her bob cut, trimmed straight at the shoulders, was jet black, and her features carried something young, faintly childish, nothing flashy about her at all.
 
-"I know. You're Aosawa-san, right? My predecessor."
+"Ah, nice to meet you. I'm the secretary—"
 
-Her voice rang out, crisp and cold as ice, low and composed.
+"I know. Aozawa-san, right. My predecessor."
 
-"I'm Arimura. Pleased to meet you. I transferred over from the accounting department in the autumn. I've heard about you, Aosawa-san. You're the returnee, brilliant, promoted to the president's secretary within just a few months of joining, right? Thanks to your chair becoming vacant, I got assigned to the department I wanted. That's a relief. But don't get too big for your boots just because you're clever and cute. I may be younger, but we joined the company the same year. We're practically peers."
+A cold, ice-sharp voice, low and composed, cut me off.
 
-She rattled it off in one breath, and I thought, Blimey, this girl's going to be a pain to deal with... and felt myself pull back a little.\
-Did she have an issue with me? I almost gave a wry smile, but managed to pull myself together and cleared my throat.
+"Arimura. Nice to meet you. Transferred here from accounting, this past autumn. I've heard about you, Aozawa-san. Returnee from abroad, excellent worker, got scouted straight into the president's secretary role just a few months after joining. Thanks to your seat opening up, I got assigned to the department I actually wanted, so, lucky me. But just because you're smart and cute, don't get too full of yourself, okay? I might be younger than you, but I technically joined the same year as you did. Basically colleagues."
 
-"Er... where is everyone else?"
+Rattled off in one breath, I found myself thinking, whoa, this girl's genuinely hard to deal with... and instinctively took half a step back.\
+Am I disliked, by any chance? I nearly gave a strained laugh, but managed to catch myself, cleared my throat once, small.
 
-"Manager Yamazato is in a meeting with the HR Director. Mitsuya-san and Seno-san are probably on the roof."
+"Um... where's everyone else?"
 
-It didn't seem like the kind of atmosphere where I could casually ask, "Fancy a biscuit?"\
-"Thanks for letting me know," I said, then made my escape. What on earth was that just now? That was a shock...
+"Manager Yamasato-san's in a meeting with the HR director. Mitsuya-san and Seno-san are probably on the roof."
 
-　Heading for the rooftop as instructed, she spotted the familiar figures beneath the winter sky. The dry air carried wisps of cigarette smoke that dissolved into the air.\
-Beside Mitsuya-san, Seno-san stood rubbing her arms, looking cold.
+Not really the atmosphere for offering "want a cookie?"\
+Saying "thanks for letting me know," I fled the scene. What was that just now. Genuinely startled...
 
-"Mitsuya-san, Seno-san, thank you for your hard work today."
+Heading up to the roof as told, I found the two familiar faces there, under the winter sky. Cigarette smoke curled, thick, dissolving into the dry air.\
+Beside Mitsuya-san, Seno-san stood, rubbing her arms against the cold.
 
-"Oh, it's you, Aosawa-chan. What's up?"
+"Mitsuya-san, Seno-san, good work."
 
-Mitsuya-san turned towards me, cigarette dangling from her mouth. From behind her, Seno-san peered out.
+"Oh, Aozawa-chan. What's up?"
 
-"I went home for the New Year, so I thought I'd bring back some souvenirs. I stopped by your desks earlier, but..."
+Cigarette between her lips, Mitsuya-san turned to face me. From behind her, Seno-san peeked out too.
 
-I couldn't bring myself to say it was because Arimura-san had been so prickly that I couldn't hand them over, so I stammered instead. Seno-san chuckled.
+"I went home for New Year's, so I wanted to bring souvenirs, stopped by the desk earlier, but... um."
 
-"Thanks for the souvenirs. I'll pass them round to everyone."
+I couldn't quite bring myself to say "Arimura-san was so sharp-edged I couldn't hand it over," and trailed off, vague, and Seno-san laughed.
 
-Saying that, Seno-san thoughtfully took the paper bag containing my souvenirs.
+"Thanks for the souvenirs. I'll pass them around to everyone."
 
-"It's freezing, so I'll head back first. You two, take your time~"
+Saying that, considerate, Seno-san took the paper bag from me.
 
-I gave a slight bow to Seno-san, who waved flutteringly. Glancing briefly at Mitsuya-san, I saw her leaning his back against the rooftop safety railing, exhaling a puff of white breath.
+"It's cold, so I'll head back first. You two, take your time~"
 
-"...That new girl, Arimura-chan, she's got quite the attitude, didn't she?"
+Bowing my head to Seno-san as she waved, breezy, I glanced at Mitsuya-san, who leaned her back against the roof's safety railing and let out a long, white breath.
 
-With a cigarette in her mouth, Mitsuya-san grinned, so I shrugged.
+"...The new girl, Arimura-chan, pretty strong personality, huh?"
 
-"I get the feeling she really dislikes me... Did I do something?"
+Cigarette still between her lips, Mitsuya-san grinned, and I shrugged.
 
-"She's just on edge, trying not to be compared to Aosawa-chan. Seems she's quite conscious of it."
+"I think she genuinely dislikes me... did I do something?"
 
-"Oh... Is that so?"
+"She's just on edge, trying not to get compared to you. Seems pretty conscious of it."
 
-No real harm done, so it's fine, I suppose.\
-　More importantly, I had something I wanted to ask. Switching gears, I blurted out, "Speaking of which..."
+"Huh... is that right."
 
-"I heard about Manager Yamazato's maternity leave from the president. Honestly, I was surprised you turned down the assistant manager role, Mitsuya-san."
+No real harm done, I suppose it's fine.\
+More important than that, there's something I actually want to ask. Shifting gears, I brought it up — "come to think of it."
 
-"Well, I thought Seno-san was better suited for it. But Seno-san, despite appearances, is quite stubborn. She just wouldn't say yes. We need to decide quickly; Manager Yamazato must be worried."
+"I heard from the president about Manager Yamasato-san's maternity leave. Honestly, I was surprised, Mitsuya-san, that you turned down the sub-manager role."
 
-　I was dumbfounded. I never expected Mitsuya-san to say something like "Seno-san is the better fit".\
-These two were supposed to be like cats and dogs.
+"I mean, I figured Seno-san was better suited for it. But Seno-san's surprisingly stubborn, you know. Won't budge no matter what. Need to decide soon, or Manager Yamasato-san's going to start worrying too."
 
-"I see. Knowing Manager Yamazato, I'm sure she'll understand..."
+I blinked, caught off guard. Never expected the words "Seno-san's better suited" to come out of Mitsuya-san's mouth of all people.\
+I'd always thought these two were bitter rivals.
 
-"Was the president worried too, perhaps?"
+"I see... Knowing Manager Yamasato-san, I'm sure she'd understand, but..."
 
-"...Well, yes. Budget Management is a crucial department, after all."
+"Was the president worried too, by any chance?"
 
-"Oh dear, what shall I do?"
+"...I think so. Budget management's an important department, after all."
 
-Mitsuya-san stared blankly as smoke curled up into the cold sky and vanished.
+"Ahh, what should I do..."
 
-"There's still time, you know. You can take your time thinking about it, can't you?"
+Mitsuya-san watched the smoke drift, vacant, up into the cold sky, dissolving.
 
-A bitterly cold wind whistled across the rooftop. As I muttered this, rubbing my hands together, Mitsuya-san smiled.
+"There's still time, isn't there? I think it's fine to think it over slowly."
 
-"You'll catch a cold, Aosawa-chan. You should head back now. I'll have one more smoke before I go. Thanks for the souvenir."
+The wind on the roof cut, sharp and cold. Rubbing my hands together as I murmured that, Mitsuya-san laughed.
 
-"Yes. Please don't catch a cold either, Mitsuya-san."
+"You'll catch a cold, Aozawa-chan, better head back too. I'll finish one more cigarette first. Thanks for the souvenirs."
 
-Mitsuya-san's slanted eyes showed no hesitation; to me, she seemed calm.\
-Somehow, it felt like Mitsuya-san and Seno-san had grown much closer while I was away. Perhaps I needn't have worried so much.
+"Okay. Mitsuya-san, please don't catch a cold either."
 
-　This is how relationships constantly reshape themselves as you get to know each other, isn't it?
+Mitsuya-san's narrow eyes carried no hesitation at all — they looked, to me, genuinely composed.\
+Mitsuya-san and Seno-san, too, it seemed, had deepened their bond considerably while I was gone. Maybe there hadn't been so much to worry about after all.
 
-Just like it was with me and Yui-san.
+Coming to know someone, bit by bit, is exactly how a relationship keeps changing shape, gradually.
 
-Chewing over these thoughts, I left the rooftop behind.
+Just like it had been, for me and Yui-san.
 
-——Incidentally, this is just an aside... but I only found out much, much later that their relationship wasn't what I'd imagined it to be.
+Turning that thought over, savoring it, I left the rooftop.
+
+—As a small aside: it would be a long, long time before I ever learned that the relationship between those two wasn't quite what I'd imagined it to be.

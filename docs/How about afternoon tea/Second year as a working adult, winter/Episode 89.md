@@ -1,305 +1,308 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 50
+nav_order: 5
 parent: Second year as a working adult, winter
-sequence: 94
-title: "Episode 89: Doesn't a life like that... feel rather hollow?"
+sequence: 93
+title: "Episode Eighty-Nine: Doesn't a Life Like That... Feel Hollow to You?"
 ---
-Episode 89: Doesn't a life like that... feel rather hollow?
+## Episode Eighty-Nine: Doesn't a Life Like That... Feel Hollow to You?
 
-The promised Monday.
+\
+Monday, as agreed.
 
-In the dim recesses of the bar. At the same counter as before, he was waiting for me.\
-His jet-black fringe swayed as he noticed me and turned. Without a word, I gazed back into the distinctive dark brown eyes beyond it.
+Deep inside the dim bar. At the same counter as before, he sat waiting for me.\
+Noticing me, he turned, his jet-black hair falling forward, and I looked back, silent, into that distinctive tawny brown gaze beneath it.
 
-Even the single silver cufflink peeking from the cuff of his deep navy suit clearly set him apart from the typical salaryman's attire.\
-　Truly the attire of an elite salaryman.\
-As he turned his whole body, the Ichinose Group company emblem on his chest flashed brightly, reflecting the light.
+Even something as small as the silver cufflinks peeking from his dark navy suit sleeves marked him as clearly different from an ordinary salaryman.\
+Every inch the elite businessman.\
+Turning his whole body to face me, the Ichinose Group's company pin, pinned to his chest, caught the light and glinted, sharp.
 
-"Good evening. Thank you for coming."
+"Good work today. Thanks for coming."
 
-Behind the false smile, sharp fangs flickered in and out of view.\
-　Just a week ago, I had feared him so intensely, yet strangely, I felt no unease now.\
-I was slightly surprised at myself – could one become this composed once one's resolve was set?
+Behind that false smile, sharp, poisonous fangs flickered, visible, then hidden again.\
+Just a week ago, I'd found him genuinely terrifying — and yet, strangely, I felt no agitation at all this time.\
+Once your resolve is truly set, I found myself thinking, a little surprised at my own composure.
 
-I silently lowered myself into the pulled-out chair.
+Silent, I lowered myself into the chair he'd pulled out.
 
-He smiled, his thin lips curling, and raised a hand to the bartender. Then, he lifted his whisky glass.
+His thin lips curved into a smile, and he raised a hand toward the bartender. Then lifted his whiskey glass.
 
-"The same for her, please."
+"The same for her."
 
-The bartender behind the counter glanced my way. I recognised him immediately. The same man as before. He must have remembered my grimace from last week.
+At that, the bartender across the counter glanced my way, checking. I recognized him immediately. The same person as last time. Kitagami-san had apparently remembered my sour reaction from last week.
 
-"I'm not keen on it neat... Could I have it as a highball?"
+"I'm not much for it straight... could I get a highball instead?"
 
-Ignoring Kitakami-san's suggestion, I said this. The bartender smiled with relief, replying, "Certainly."
+Ignoring his suggestion, I said it plainly, and the bartender answered, "of course," visibly relieved.
 
-　Out of the corner of my eye, I saw Kitakami-san narrow his eyes slightly.
+Glancing sideways, I saw Kitagami-san's eyes narrow, thin.
 
-"...You haven't said anything to Yui, have you?"
+"...You haven't told Yui anything, I assume?"
 
-"No, I haven't said anything yet."
+"That's right. Not yet."
 
-She emphasised the word 'yet'. She hadn't said anything now, but she intended to tell her soon.
+I emphasized the word "yet." Not yet — but I do intend to tell her.
 
-The glass was placed before me with a soft clink. I thanked him, took it, and sipped.\
-It was my first time drinking it, yet I knew this taste. Because it was the drink Yui-san favoured.\
-Perhaps that was why. Though slightly bitter, I found it delicious.
+A small clink as the glass was set down in front of me. Thanking him, I accepted it and brought it to my lips.\
+First time I'd ever had this drink, and yet I already knew this taste. Because it's the one Yui-san herself always drinks.\
+Maybe that's why. A little bitter, and yet I found it genuinely good.
 
-"...Well then, shall we hear your answer straight away?"
+"...Well then, let's get right to it. I'll hear your answer."
 
-When I turned my gaze to him, he was looking at me with a smile devoid of warmth, as if he didn't entertain the slightest thought that I might refuse.
+Meeting his gaze, he watched me with a smile utterly devoid of warmth, as if refusal hadn't even crossed his mind as a possibility.
 
-"I am deeply grateful for this offer, which is far beyond my station. However, I must still decline."
+"I'm grateful for such an overly generous offer. But, I'm afraid I'll have to decline after all."
 
-When I stated it flatly, his temple twitched. I couldn't tell what expression lay beneath that smiling mask.\
-But I wasn't afraid anymore.
+Saying it plainly, his temple twitched, faint. I had no way of knowing what expression lay beneath that smiling mask.\
+But I wasn't scared anymore.
 
-He sighed deeply, as if in disappointment. I understood what he wanted to say, but I had no intention of giving any further reasons.
+He let out a long, disappointed sigh. I understood what he wanted to say, but I had no intention of offering any further reason.
 
-"...Yui and I have been engaged for eight years now. I've known her since childhood and always cherished her."
+"...Yui and I have been engaged eight years now, this year. I've watched over her since we were children, and I've tried to treasure her, properly."
 
-What is the point of those flimsy eight years? I looked at him with a jaded feeling.
+What does a shallow eight years like that even mean. I looked back at him, cold.
 
-"Cherished, you say?"
+"Treasured her, you say."
 
-"As you probably know, Yui's innocent. Once, when I tried to kiss her, she pushed me away. She told me not to do anything like that until we were married, and since then, I've never laid a finger on her. That's how much I've cherished her."
+"I think you already know this, but Yui's inexperienced, isn't she. Once, long ago, I tried to kiss her, and she shoved me away. She said she didn't want anything like that until after we were married, so I never made a move again after that. That's how much I've treasured her."
 
-――Eh? Innocent? Who on earth are you talking about?
+—Eh? Inexperienced? Who exactly are you talking about?
 
-The words nearly slipped out from the back of my throat.
+The words nearly slipped straight from my throat.
 
-I realised Yui must have skilfully fended him off all this time, and at the same moment, I realised this man truly knew nothing about her.
+I understood — Yui-san really had skillfully deflected him, this whole time. And at the same time, I understood something else too — this man genuinely knows nothing about her at all.
 
-After all, Yui-san absolutely loves kissing, and even when I say it hurts, she won't stop at all while we're doing it.
+Because Yui-san loves kissing. Even in the middle of things, even when I tell her it's too much, she never once stops.
 
-　He's completely off the mark.\
-She's actually incredibly lecherous, that one.
+He's completely, entirely mistaken.\
+If anything, she's a lustful wolf.
 
-With such a beautiful face, she's always thinking about dirty things. I wanted to say it, but held back. That's something only I need to know.
+I nearly wanted to say — with that beautiful face, all she's ever thinking about is indecent things.\
+But I held back. That's something only I need to know.
 
-I downed the glass.
+I tipped my glass back.
 
-　I'm an idiot. Back in my student days, I was the sort who could kiss such cute girl, yet I ran away without even listening properly to someone who held me so fiercely, just because she was engaged.
+I'm an idiot. Back in college, someone who could kiss any cute girl she liked, easily — the moment I learned she was engaged, I ran off without even properly hearing her out.
 
-It's too late for regrets now, but I want to punch my past self.
+Regret doesn't help now, but I wanted to go back and hit my past self.
 
-"...Did you like Yui-san since you were a child? So, Kitakami-san, you've never been with a woman before?"
+"...You've loved Yui-san since childhood, then. So, Kitagami-san, does that mean you've never had any experience with women?"
 
-　When I spat it out like that, his face twisted for the first time, as if he hadn't expected me to retort.
+I said it, almost spitting the words, and, apparently never expecting me to talk back, his expression cracked, visibly, for the first time.
 
-See? I knew it. There's no way. Kitakami-san doesn't strike me as the type who could hold such deep affection for a single woman for so many years.
+There it is. Just as I thought. There's no way that's true. Kitagami-san doesn't look, in the slightest, like someone capable of loving a single woman devotedly for years on end.
 
-It felt good, like that mask had finally slipped just a little.
+Finally seeing a crack in that mask felt genuinely satisfying.
 
-"...If Yui-san were to say no, are you prepared to live your entire life without ever laying a finger on her? Do you truly love her that much?"
+"...If Yui-san said she didn't want you, are you prepared to spend the rest of your life without ever touching her, right up until you die? Do you love her that seriously, truly, that much?"
 
-His real motives? I couldn't care less.\
-I refuse to call such twisted obsession 'love'.
+His actual goal — I don't care about that at all.\
+I won't let that kind of twisted obsession be called love.
 
-Kitakami-san simply snorted in derision at my perfectly serious question.
+Asked that, in complete earnest, Kitagami-san simply scoffed.
 
-"Isn't that taking things to an extreme? Once we're married, we'll have children too... It's a challenge we can overcome."
+"Isn't that a bit of an extreme argument? Once we're married, we'll have children too... it's a hurdle we'll get past."
 
-I almost sighed.
+I nearly sighed.
 
-Ultimately, what he needs is a "conveniently compliant puppet"; he clearly has no intention of respecting Yui-san's will or anything else.
+In the end, what he actually needs is a "puppet who moves conveniently" — nothing about Yui-san's own will seems to matter to him at all.
 
-Enduring pain isn't love, Yui-san told me plainly. How much solace those words gave me at nineteen.
+Enduring pain isn't love, Yui-san had told me, plainly. How much did that save nineteen-year-old me, back then?
 
-　The thought of her being with someone like him made my skin crawl. —I didn't even want to imagine it.
+The thought of her held by someone like this made me shudder. I don't even want to imagine it.
 
-"Let me be clear about this. I don't believe being with you is beneficial for Yui. Besides, you ran away once, didn't you? Give it up. Even if Yui did like you, it has nothing to do with our marriage. If you step aside, everything will be settled."
+"Let me just say it plainly, then. I don't think being with you does Yui any good at all. Besides, you already ran off once before, didn't you. Give up. Even if Yui likes you, that has nothing to do with our marriage. If you step aside, everything settles neatly."
 
-"...Who said she liked me? At least I don't know anything about that."
+"...Who said she likes me? At the very least, I don't know anything about that."
 
-"What nonsense. Playing dumb now?"
+"A little late for that, isn't it. Planning to feign ignorance?"
 
-Yukiya-san is right. There can be no proof. He's just baiting me, trying to intimidate me. I mustn't be shaken.
+Just as Yukiya-san said — he shouldn't have any actual evidence. He's just fishing, trying to shake me. I mustn't let it work.
 
-"Before that... I think Kitakami-san and Yui-san have fundamentally different values. They absolutely wouldn't be compatible."
+"Before we even get to that... I think you and Yui-san's values are simply incompatible. Completely, absolutely."
 
-I can say that with certainty.
+I could say that with certainty.
 
-Good. That he didn't say it would be fine if that's what she wanted. Now I can take her from you without a second thought.
+Good. He hasn't said "if that's what she wants, fine." That means I can take her from you without a single ounce of hesitation.
 
-　She couldn't possibly be happy marrying someone who doesn't understand her.
+There's no way she could be happy, married to someone with no understanding of her at all.
 
-"...I can imagine what Yui's thinking. Three years ago, when she chose Yukiyasu over me for the board position, I knew something was off. Why bring that guy back into the group after he left? The reason's simple. She's trying to break off our engagement, isn't she? As long as Yukiyasu's there, I'm unnecessary."
+"...I can guess what's going through Yui's head. Three years ago, when she chose Yukiya for the board instead of me, I already thought something was off. Why would she pull that estranged brother back into the Group? Simple. She's trying to break off our engagement. As long as Yukiya's there, she doesn't need me anymore."
 
-　I’d heard Yukiyasu-san was his childhood friend — yet the anger in Kitakami-san’s voice when he spoke his name made me suspect he regarded him as an enemy.
+I'd heard they were childhood friends — but the way Kitagami-san said Yukiya-san's name carried enough open hostility that I couldn't help suspecting he genuinely resents him.
 
-“Because of you, Yui changed. She developed her own will. But don’t think I’ll back down so easily. I’ve staked my life on this company too.”
+"You're the reason Yui changed. She started having her own will. But don't think I'll back down that easily. I've staked my whole life on this company too."
 
-His eyes, fixed on me as if glaring, burned with a fierce, glittering ambition.
+Glaring at me, his eyes burned with raw, unmistakable ambition.
 
-"...Wouldn't it be best to convey such matters directly to the person concerned? As I am merely a secretary, I cannot respond to matters of a private nature. I shall report this matter to the president."
+"...Wouldn't it be better to say all this directly to her yourself? I'm only her secretary. I can't speak to anything personal. I'll be reporting this matter to the president."
 
-I declared it sharply, then downed the drink in one gulp.
+I said it, flat and final, and drained the rest of my drink.
 
-"...Kitakami-san."
+"...Kitagami-san."
 
-When I called his name, eyes red and bloodshot with anger locked onto mine.\
-Somehow... he seemed pitiful.
+Calling his name, those eyes, bloodshot with anger, fixed on me.\
+Somehow — he seemed, to me, a genuinely pitiful person.
 
-"Choosing a life without loving or being loved — are you truly happy with that? Doesn't such a life... feel hollow?"
+"Choosing a life without ever loving or being loved by anyone — are you really happy with that? Doesn't a life like that... feel hollow to you?"
 
-The words came from my heart. But after speaking them, I realised how harsh they must have sounded to him.
+It came straight from the heart. But the moment I'd said it, I realized how cruel those words must have landed on him.
 
-　Kitakami-san went completely expressionless. So that was your true face. I felt as though I’d finally glimpsed the real face behind that mask.
+Kitagami-san's expression went suddenly, completely blank. So this is your real face. I felt, finally, like I'd glimpsed what actually lay beneath that mask.
 
-My resolve wouldn’t waver now. I’d decided to live my life with her.\
-I wouldn’t give up on our future. As long as Yui-san was by my side, absolutely not.
+My heart won't waver anymore. I've decided — I'll live my life together with her.\
+I won't give up on our future. Not as long as Yui-san stays by my side. Absolutely not.
 
-To the world at large — perhaps I was the bad person. But I didn’t care about that.\
-　If it meant protecting Yui-san's heart, I didn't care who threw stones at me.
+By the world's standards, maybe I'm the worse person in all this. But I didn't care about that anymore.\
+If it means protecting Yui-san's heart, I don't care who throws stones at me.
 
-I took my wallet from my bag and slammed the notes down on the counter.
+Pulling my wallet from my bag, I slapped bills down on the counter.
 
-"This covers the drinks from the other day too. Goodbye."
+"This should cover last week's drink too. Excuse me."
 
-I could see his clenched fist trembling on the counter.\
-Ignoring it all, I turned on my heel.
+I could see his fist, clenched tight on the counter, trembling, faint.\
+Ignoring all of it, I turned on my heel.
 
-　It was a lovely bar with a thoughtful bartender, but I wouldn't be coming here again. Nor would I ever meet him alone again.
+A lovely bar, with an attentive bartender — but I'll never come here again. And I'll never meet him alone again either.
 
-Leaving the hotel, I looked up at the thick sky. Snow was fluttering down. My breath was white. It was a bone-chilling cold.
+Stepping out of the hotel, I looked up at the thick, heavy sky. Snow drifted down, scattered. My breath came out white. A bone-deep cold.
 
-It's Christmas Eve tomorrow, yet it seems Father Christmas has brought not just presents, but a low-pressure system too. Couldn't he wait to make it snow?
+Christmas Eve's tomorrow, and yet, apparently, Santa's bringing not just presents but a low-pressure system too. Couldn't wait even one more day to let the snow fall, I guess.
 
-　Pulling my collar up, I set off towards the station.
+Pulling my collar close, I started walking toward the station.
 
-This world, this society, is full of injustices.
+This world, this society, is full of things that make no sense.
 
-Even if you fail, time can never be rewound, and sometimes crying and screaming won't change a thing.
+Time never rewinds itself, however badly you've failed, and no amount of crying, screaming, ever fixes some things.\
+Even so, I found myself wanting to believe.\
+That love has the power to overcome any wall, however difficult.
 
-Still, I want to believe.\
-That love has the power to overcome any obstacle, no matter how formidable.
+Just before passing through the ticket gate, my pocket buzzed. Pulling out my phone, I found a message from Yui-san.\
+Tapping it open, an image was attached.\
+A photo of a small Christmas tree, perched neatly on the kitchen counter.
 
-Before passing through the ticket gate, my pocket vibrated. I pulled out my smartphone and checked the display – a message had arrived from Yui-san.\
-Tapping it revealed an attached image.\
-A photograph of a small Christmas tree perched daintily on the kitchen counter.
+I recognized it.
 
-It looked familiar.
+That's the one I bought, back in college, at that general store near my old part-time job. She'd kept it, all this time. Had she been putting it out, every single year?\
+If so, what feeling had Yui-san carried, decorating with it, year after year—
 
-　This was the one I bought at a little shop near my part-time job back in my student days. She still had it. Had she been putting it up every year?\
-If so, what must Yui-san have felt each year when she...
+I bit down hard on my lip.
 
-I bit my lip hard.
+—It's snowing, so be careful on your way back. Message me anytime if you want me to come pick you up.
 
-—It's snowing, so take care on your way home. If you need me, I'll come and pick you up anytime, just let me know.
+I'd told Yui-san I had an errand today, right before leaving work, so she must have messaged out of worry.\
+Some inexplicable urge to see her swept over me, and, before I realized it, I found myself standing on the platform for a train heading the opposite direction from my own apartment, having already passed through the gate.
 
-　I’d told Yui I had plans today just before clocking off, so she must have been worried and called.\
-Suddenly, I felt an overwhelming urge to see her. Before I knew it, I’d passed through the ticket gates and was standing on the platform for a train heading in the exact opposite direction to my own flat.
+The train slid into the station, its silver body gleaming, kicking up small flurries of snow. By the time I'd slipped through the opening doors, all hesitation had already left me.
 
-The train glided onto the platform, its silver body gleaming as it kicked up tiny snowflakes. By the time I slid through the open doors, all hesitation had vanished.
+Passing through the ticket gate at the station nearest Yui-san's house, one I'd walked through more times than I could count back in college, I tapped the name at the very top of my call history.
 
-　Passing through the ticket gates at the station nearest Yui-san's house – one I'd passed countless times during university – I tapped the top name in my call history.
+Stepping out of the station, the roads had already started collecting a faint dusting of white.
 
-Exiting the station, a light dusting of snow had begun to settle on the road.
+*"Hello, Kanata?"*
 
-'Hello? Kanata?'
+Hearing that beloved voice in my left ear, my cheeks softened, unbidden.
 
-Feeling that beloved voice in my left ear, my cheeks relaxed.
+"Yui-san. Can I come over right now?"
 
-"Yui. Is it alright if I come over to your place now?"
+*"Right now? Sure, but... Kanata, where are you?"*
 
-'Now? Sure... but Kanata, where are you right now?'
+Her voice, through the phone, sounded happy.
 
-Her delighted voice came through the phone.
+"...Actually, I'm already at the station near your place."
 
-"...Actually, I've already reached the nearest station."
+*"Eh? It's snowing, let me come get you, wait at the station."*
 
-'Eh? It's snowing. I'll come and pick you up, so wait at the station.'
-
-"I've already left the station and am heading there. I should be there soon, so I'll call you back."
+"I've already left the station, heading your way. I'll be there soon, see you."
 
 Saying that, I hung up.\
-My eager heart pushed me forward, and my body cut through the wind towards Yui-san.\
-I wanted to see her as soon as possible, and before I knew it, I was running.
+Impatience pushed at my back, and my body cut through the wind, heading straight for Yui-san.\
+Wanting to see her as fast as possible, before I knew it, I'd broken into a run.
+
+*
 
 "Kanata!"
 
-As I hurried along, I saw Yui-san rushing towards me from across the road, looking flustered.
+Hurrying along, I saw Yui-san, across the street, rushing toward me in a panic.
 
-The distance closed, and I threw myself into her beloved chest. Holding me up, Yui-san embraced me tightly.
+Closing the distance, I dove straight into her beloved chest. Steadying me, Yui-san caught me, held me tight.
 
-"I told you to wait at the station... You must have been cold."
+"I told you to wait at the station... you must've been cold."
 
-Saying that, Yui wrapped the blue checked scarf I'd given her around my neck. It was warm. It smelled sweet, like Yui.\
-She brushed the snow off my shoulders with her palms, then looked at me with concern.
+Saying that, Yui-san wrapped the blue plaid scarf — the one I'd given her — around my neck. Warm. It smelled of her, sweet.\
+Brushing the snow off my shoulders with her palm, she looked at me, worried.
 
-"What's suddenly got into you? Has something happened?"
+"What's wrong, so sudden? Did something happen?"
 
-"Sorry for being so abrupt. I just needed to see you. ... It's snowing today, and sleeping alone might be a bit... cold, I thought."
+"Sorry, out of nowhere like this. I just wanted to see you. ...It's snowing today, and I thought, sleeping alone might be a little cold."
 
-I averted my gaze, trying to hide my embarrassment. Yui chuckled softly. She narrowed her gentle black eyes and gazed at me affectionately.
+Deflecting my embarrassment, I looked away as I said it, and Yui-san laughed, soft. Narrowing those gentle black eyes, she looked at me, fond.
 
-"...You're right. Tonight is a bit cold for sleeping alone, isn't it?"
+"...You're right. Tonight really is a bit too cold to sleep alone."
 
-My hand, which she was holding, was drawn into the warm pocket of her coat.
+Our joined hands slipped into the warm pocket of her coat.
 
-"...Shall we go home?"
+"...Let's head home."
 
-I nodded, and we started walking side by side.\
-I looked up at the sky, thick with snow clouds. Snow continued to fall quietly, blanketing the town in white.
+Nodding, "yeah," we started walking side by side.\
+I looked up at the sky, thick with snow clouds. Snow kept falling, quiet, steady, blanketing the whole town in white.
 
 ＊＊＊
 
-The room she welcomed me into was warm, and my body, stiff from enduring the cold, slowly began to thaw.
+Stepping into the warmth of the room she welcomed me into, my body, tensed against the cold, slowly began to thaw.
 
-　Before I could take mine off, Yui-san helped me out of my coat and hung it on the rack.
+Taking off my coat before her own, Yui-san hung it on the rack for me.
 
-Only when we were alone did the taut thread of tension finally begin to unravel.
+Only once we were finally alone did the tension I'd been carrying, coiled tight, start to loosen.
 
-I couldn't help but want to touch her, couldn't wait, so I took her hand and pulled her close. Turning to face me, I stood on tiptoe just a little and drew my face towards hers.\
-Her dark eyes flickered in surprise, but I pressed my lips against hers regardless.
+Unable to bear it any longer, wanting to touch her, I took her hand and pulled. Turning back, Yui-san met my eyes, and, rising slightly on my toes, I brought my face close.\
+Her black eyes widened, startled, but I pressed my lips to hers anyway.
 
-　They were cool to the touch, soft.
+Cool, and soft.
 
-For a moment, the fingertips of my clasped hand trembled — but Yui smiled, wrapped her arms around my waist, and pulled me closer, a little forcefully.\
-As we changed angles repeatedly, pressing our lips together, the chill I’d felt earlier had somehow vanished.
+Her fingers, in my grip, trembled, just once — but Yui-san smiled and wrapped an arm around my waist, pulling me in, faintly forceful.\
+Kissing again and again, tilting the angle each time, the cold I'd been feeling, at some point, disappeared entirely.
 
-"...It's unusual for you to kiss me first, Kanata."
+"...Rare, you kissing me first."
 
-She said it with a delighted smile, making me feel a little embarrassed.
+Saying that, happy, she laughed, and I felt a little embarrassed.
 
-"...Is that not allowed?"
+"...Not allowed?"
 
-"No. It's not forbidden. I'm happy."
+"No, it's allowed. I'm happy."
 
-When our gazes met, a deep tenderness welled up inside me.\
-I should have been famished, having only drunk alcohol, but the desire to be close to Yui-san overpowered that hunger.
+Meeting her eyes, fondness welled up in me, unstoppable.\
+Having only had alcohol, my stomach should have been empty — and yet, more than that, the desire to touch Yui-san won out completely.
 
 "...Hey, Yui-san."
 
-"Hmm?"
+"Mm?"
 
 "...Kiss me more."
 
-When I gazed at those lips and begged like that, Yui-san smiled. She gently stroked my cheek, peered into my eyes, and smiled mischievously.
+Looking at her lips, asking like that, Yui-san laughed. Gently stroking my cheek, looking into my eyes, she smiled, mischievous.
 
-"...Is a kiss all you want?"
+"...Just kissing is enough?"
 
-You're so mean. You know exactly what I want, yet you ask anyway.\
-I refuse to say what she wants me to say, just to spite her. Pouting, I lower my gaze, only for her to gently lift my chin.
+Mean person. As if she doesn't already know exactly what I'm asking for.\
+Frustrated at being made to say it, exactly as she'd clearly intended, I pursed my lips and looked down, and she gently lifted my chin.
 
-　When our eyes met, her fierce, dark gaze burning with heat, a shiver ran down my spine.\
-Her thumb traced my lips gently.
+Meeting that heated, ferocious black gaze, a shiver raced down my spine.\
+Her thumb traced gently along my lip.
 
-"...Kanata, I taught you properly, didn't I? What should you say at times like this?"
+"...Kanata, I taught you properly, didn't I? What you're supposed to say, at times like this."
 
-Deep within my chest, a searing heat burned.
+Something deep in my chest burned, hot, aching.
 
-　I blame Kitakami-san for this.\
-I don't want to share her with anyone. I want being touched by her to remain my exclusive privilege forever.\
-Possessiveness erupted like magma, surging over me in waves.
+Kitagami-san's fault, I think.\
+I don't want to hand her to anyone. I want being touched by this person to stay my privilege, and mine alone, forever.\
+Possessiveness surged up in me, like magma, crashing over me in waves.
 
-I gently bit down on her thumb as it slipped into my mouth, invitingly sweet, and looked up at her intently.
+Her thumb slipped lightly into my mouth, and, inviting, I bit down, sweet, and looked up at her, steady.
 
-　I know she wants me to say it out loud... but I'm still too embarrassed. I want to say it only after I've lost all sense of reason.
+I know she wants me to say it in words... but it's still embarrassing, so I want to save that for when I can't think straight anymore.
 
-When I wrapped my tongue around that finger and sucked lightly, Yui-san smiled, as if she'd realised my thoughts.
+Curling my tongue around her finger, sucking lightly, Yui-san, apparently catching my intent, laughed.
 
-After pulling her thumb out, she scooped me up in her arms — and then Yui-san gave me a kiss that was like biting, an incredibly sweet kiss.
+Pulling her thumb free, she gathered my body into a tight embrace — and gave me a biting, achingly sweet kiss.

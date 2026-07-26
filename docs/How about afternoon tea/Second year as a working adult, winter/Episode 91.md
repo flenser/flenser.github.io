@@ -1,239 +1,250 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 70
+nav_order: 7
 parent: Second year as a working adult, winter
-sequence: 96
-title: "Episode 91: Kanata looks adorable in anything she wears, so it's hard to choose!"
+sequence: 95
+title: "Episode Ninety-One: You're Cute in Everything, Kanata, So I Can Never Decide"
 ---
-Episode 91: Kanata looks adorable in anything she wears, so it's hard to choose!
+## Episode Ninety-One: You're Cute in Everything, Kanata, So I Can Never Decide
 
-Much earlier than usual, I awoke on Christmas Eve morning.
+\
+Much earlier than usual, Christmas Eve morning.
 
-After shaking Yui-san awake when her alarm failed to rouse her, we ate breakfast together. She then drove me back to the flat, where I hurriedly got ready.\
-I made sure not to forget the present I planned to secretly place by her pillow tonight, tucking it into my bag.
+The alarm going off, Yui-san, slow to wake as always, needed a proper shake before she'd stir. After finishing breakfast together, she drove me back to my apartment, and I hurried through getting ready.\
+Not forgetting the present I planned to sneak by her pillow tonight, tucked into my bag.
 
-Once today's work was done, it would be the long-awaited Christmas date with Yui-san.
+Once work wraps up today, it's finally, at long last, the Christmas date with Yui-san I'd been waiting for.
 
-I peered into the wardrobe.\
-　Truthfully, I wanted to wear something proper, hoping she might find me even a little bit cute.\
-But wearing something too dressed up on a day like today would surely make me stand out at work. Reluctantly, I chose my usual work skirt and tried it on in front of the mirror.
+I peeked into my closet.\
+Honestly, I'd wanted to wear something proper, wanted Yui-san to think I looked at least a little cute today.\
+But dressing up too much for a day like this would surely stand out at the office, so, reluctant, I picked out the same kind of work skirt I always wear, and checked myself in the mirror.
 
-I forced myself to accept it, suppressing my lingering disappointment. It was work today, and this was unavoidable.\
-Besides, I was sure Yui-san would say I looked cute no matter what I wore.
+Unable to fully let go of the disappointment, I talked myself into it. It's a workday, can't be helped.\
+And besides, I'm sure whatever I wear, Yui-san will call me "cute" regardless.
 
-　But on a special day like this, I wanted to dress up a bit more too.\
-Because I always want to be the kind of woman who can at least somewhat match her beauty.
+But even so, on a special day like this, I'd wanted to dress up, just a little more.\
+Because I always want to be, even slightly, a woman who measures up to someone as beautiful as her.
 
-Ah, if only today had been a day off.
+Ahh, if only today were a day off.
 
-I couldn't take my time choosing clothes because I was keeping Yui-san waiting in the car.\
-In the end, I threw on my usual outfit, draped yesterday's brown coat over it, and dashed out of the house.
-
-＊＊＊
-
-It’s not as if it matters if anyone sees us together.
-
-The president and her secretary. And both women. It wouldn’t be a problem if anyone saw us.
-
-I know that — but right now, sitting in the driver’s seat of this car isn’t me, the secretary, but the president herself. And this isn’t a company car, it’s her personal vehicle.
-
-　It's not unusual for a secretary to drive the president to and from appointments, but the reverse is another matter entirely.\
-Generally speaking, presidents don't drive their secretaries around. Thinking about it that way, it really was a situation that would seem odd if anyone saw us.
-
-So, reluctantly, I got out of the car alone a short distance from the office, looking around nervously to make sure no one was watching.\
-　It's Christmas Eve, so our company's hotels and restaurants are fully booked. Yui-san is heading straight out on her rounds, so we part ways here this morning.\
-We plan to meet up after work.
-
-"Right then, Yui-san, see you later."
-
-"Right. Take care."
-
-Waving goodbye to her white saloon car as it pulled away, I too began walking towards the office.
-
-I don't dislike the crisp air of a winter morning, but today is simply too cold. I shoved my numb hands into my coat pockets and exhaled a white cloud of breath.
-
-　Even if everything proceeds smoothly and Yui-san manages to break off her engagement with Kitakami-san without incident, I never intended to publicly announce our relationship within the company.\
-I simply want Yui-san by my side; I have absolutely no desire for recognition from anyone beyond our immediate circle.\
-I’m sure Yui-san feels the same.
-
-Still, I do hope the day comes soon when we no longer have to sneak around like this.
-
-　Someday, I hope the world becomes a place where we can simply say we love the person we love, without caring about anyone else's gaze.
-
-Secret relationships aren't all bad — but my lover is beautiful and kind, and so incredibly popular with both men and women that it causes far too much worry.
-
-Yui-san seems to skilfully hide it so I don't notice, but I wasn't unaware of her reputation within the company.
-
-　It’s just the way it is that Yui-san is popular. She’s been like that since school, it’s simply who she is. And I fell in love with that person.\
-Still… I’d rather avoid unnecessary worries if I can.
-
-There’s nothing for it when love makes you anxious, even when you know you’re loved. It’s like some sort of illness, I suppose.\
-I wish I could be more straightforward about it, but I’m also scared of getting too jealous and having her think I’m a pain.
-
-　I couldn't care less what anyone else thinks, but I want Yui to think I'm cute. If possible, forever, no matter how many years pass.
-
-Thinking that – even though it's a special Christmas date, turning up in my usual outfit feels somehow dull.\
-I slump my shoulders, wishing I'd worn something cuter. Regretting it now is too late, though.
-
-　I swiped my ID through the security gate and tapped it on the attendance system terminal.\
-The office felt quieter than usual. The admin department was as busy as ever, but the sales desks were deserted; everyone seemed to be out on support or patrols.
-
-Head office staff are busiest during the preparation period, but once the peak season arrives, the field teams become overwhelmingly busier. Today is probably the peak day.
-
-Once we get through Christmas and New Year, this hectic pace should settle down.
-
-I glance over at the Budget Management Department's desks. At the desk I used to sit at, there was a young female newcomer who'd transferred over from autumn.
-
-　Perhaps I should pop over to my old Budget Management Section to say hello sometime. With that thought, I headed towards the empty president's office.
-
-Right after Christmas, the long holiday break begins. This year, I'm returning to London for the first time in ages. It'll be lonely not being with Yui-san over New Year, but it's important, so there's no helping it.\
-I must finish as much preparation as possible to avoid causing trouble during my absence. With that in mind, I took off my coat and turned to face the PC monitor.
+Yui-san was waiting for me in the car, so I couldn't spend too much time agonizing over clothes.\
+In the end, dressed no differently than usual, I threw on the same brown coat from yesterday and rushed out of the house.
 
 ＊＊＊
 
-Yui-san's message saying "I'm here" arrived just as I left the office. Outside, it had grown completely dark.\
-Even though we'd been together all night yesterday, just the thought of seeing her now made my heart oddly thump-thump faster.
+It's not like it would actually matter, being seen together by anyone.
 
-I replied "Heading straight over" and hurried to our meeting spot. The cold wind brushing my cheeks didn't bother me at all.
+President and secretary. Both women, at that. There's really no problem, whoever might see.
 
-　Heading towards the station where we'd arranged to meet, I spotted Yui-san immediately and hurried over.\
-A black woollen coat, a blue checked scarf. Even from a distance, her tall, slender figure was instantly recognisable.
+That's what I think, but — right now, in the driver's seat of this car, it's not me, the secretary, but the president herself, and this isn't a company car, it's Yui-san's own private one.
 
-"Yui-san, sorry to keep you waiting. You must be exhausted."
+A secretary picking up or dropping off the president isn't strange at all — but the reverse is a different story entirely.\
+Generally speaking, presidents don't drive their secretaries around. Thinking about it that way, if someone did see us, it would probably look strange no matter how you framed it.
 
-"Oh, not at all. You too, Kanata."
+So, reluctant, I had her stop a little ways from the office, checked carefully around for anyone watching, and got out alone.\
+Since it's Christmas Eve today, our own hotels and restaurants are fully booked. Yui-san was heading straight to her rounds after this, so we'd say goodbye here for the morning.\
+We'd planned to meet up again after work.
 
-Her dark eyes looked down at me, narrowing gently with affection. It felt like my heart had been squeezed.
+"Well then, Yui-san, see you later."
 
-The whole town was wrapped in Christmas atmosphere; tonight was such a special night.\
-She gently took my hand and slipped it into her pocket, then smiled softly.
+"Yeah. Be careful."
 
-"Right then, shall we go?"
+Waving to her white sedan as it pulled away, I started walking toward the office myself too.
 
-　I nodded and started walking.\
-Earlier, I'd been in such a hurry, my mind occupied solely with Yui-san, that I hadn't even noticed it. Now, a large Christmas tree came into view at the edge of my vision.\
-Faint orange lights sparkled, and suddenly, they caught my eye.
+I don't dislike the crisp air of a winter morning, but today really was too cold. Shoving my numb hands into my coat pockets, I let out a white breath.
 
-Christmas comes every year. Since returning to Japan, I'd spent every winter alone, and I'd probably seen illuminations like this countless times before.
+*
 
-Only now do I realise just how large this Christmas tree truly is.\
-It's strange. Simply having someone you care for beside you makes everything seem to shine so brightly.
+Even if everything went smoothly from here, even if Yui-san managed to break off the engagement with Kitagami-san safely — I never had any intention, from the start, of announcing our relationship at the office.\
+I just need Yui-san. I don't need it recognized by some unspecified crowd of people outside our own close circle.\
+I think Yui-san feels the same way.
 
-Once you know the comfort of being together, being alone becomes painful. The blurred outline of 'loneliness' becomes sharply defined, making you acutely aware of the solitude.
+Even so, I do wish those days when we no longer needed to sneak around like this would come soon.
 
-Had I never known this burning passion, I believe one could surely live alone.
+Someday, I hope, we'll reach a world where you can simply love the person you love, plainly, without a single glance from anyone else mattering at all.
 
-　But once you know the comfort of being together, you suddenly can't live alone anymore.
+A secret relationship isn't so bad, in its own way — but my girlfriend is beautiful, kind, endlessly popular with everyone, men and women both, and that's more than enough reason for constant worry.
 
-It makes you stronger, yet weaker too. I can no longer imagine a life without Yui-san.
+Yui-san seems to skillfully hide it, careful I never notice — but I'm not entirely unaware of her reputation around the office either.
 
-I don't want to remember, but Kitakami-san's face flashed through my mind.\
-He probably doesn't know. That such a strong feeling, one that makes your heart burn like this, exists in this world.\
-　I hope someday he finds someone like that too. Then he'd surely understand how I feel.
+Can't be helped, Yui-san being this popular. She's always been like this, since college, and it's simply who she is. And I fell in love with exactly that person.\
+Still... I'd rather not carry more unnecessary worry than I have to.
 
-There are things people simply cannot compromise on.
+Understanding, logically, that I'm loved, and yet still feeling anxious anyway — a heart in love just doesn't listen to reason. It's a kind of sickness, in its own way.\
+I wish I could be more honest about it, but I'm also scared that getting too jealous might make her think I'm "a hassle."
 
-I clenched the hand held in my pocket. When Yui-san asked me, "What's wrong?", I just shook my head and said, "Nothing."
+I don't care what anyone else thinks of me, but I want, at least, for Yui-san to always find me cute. If possible, forever, however many years pass.
+
+Thinking that — even on a special Christmas date, dressed like this, same as always, everything felt a little flat, unsatisfying somehow.\
+I really should have worn something cuter, I thought, shoulders slumping. Regretting it now was already too late.
+
+*
+
+Passing through the security gate, I held my ID up to the time-clock terminal.\
+The office was quieter than usual. The management departments were business as usual, but the sales team's desks sat completely empty, everyone apparently out on support duty or making rounds.
+
+Headquarters staff are busiest during the prep period, but once the actual peak season hits, the field staff end up overwhelmingly busier. Today's probably the real peak of it all.
+
+Once Christmas and the New Year's season pass, this frenzy should finally settle down.
+
+I glanced, briefly, toward the budget management desks. At what used to be my own seat now sat a young new hire, apparently transferred in this past autumn.
+
+Maybe I'll stop by and say hello to my old team sometime soon. Thinking that, I headed toward the empty president's office.
+
+Right after Christmas, a long stretch of time off is coming. I'll finally be heading back to London after a while. Missing New Year's together with Yui-san is lonely, but it's important, so it can't be helped.\
+I need to get as much prepared as possible so my absence doesn't cause any trouble. Thinking that, I took off my coat and faced my PC monitor.
 
 ＊＊＊
 
-　Yui-san said to leave the date plans to her, so I have no idea where she intends to take me today.
+Yui-san's message — "here" — arrived right as I was leaving the office. Outside had gone completely dark.\
+Even though we'd spent the whole night together yesterday too, just knowing I'd get to see her again already had my heart racing, strangely fast.
 
-Back when we were students, I recall her saying, "Let's have a clichéd date," and we went to see the planetarium.\
-I remember us promising to go somewhere together someday where the stars would be beautiful.\
-Today's sky, with snow flurrying on and off, is covered in thick clouds, not a single star visible.
+Replying "heading over now," I hurried toward our meeting spot. The cold wind against my cheeks didn't bother me at all.
 
-　I wonder if that promise still stands. Hoping it does, I walked along, her hand in mine.
+Reaching the station we'd agreed on, I spotted Yui-san right away and rushed over.\
+A black wool coat, and the blue plaid scarf. Tall, elegant — she's instantly recognizable, even from a distance.
+
+"Sorry for making you wait, Yui-san. Good work today."
+
+"No, I haven't been waiting long at all. Good work to you too, Kanata."
+
+Those black eyes, looking down at me, narrowed gentle, fond. My heart felt seized, tight.
+
+The whole town wrapped in the atmosphere of Christmas — tonight, a special night like that.\
+Taking my hand, gentle, drawing it into her pocket, Yui-san smiled, gentle.
+
+"Well, let's go."
+
+Nodding, "yeah," I started walking.\
+Rushing toward her earlier, I'd been so focused I hadn't noticed a thing, but a large Christmas tree now came into view at the edge of my sight.\
+Countless soft, amber-colored lights glittered, and, caught off guard, my eyes were drawn straight to it.
+
+Christmas comes every year. Since coming back to Japan, I'd gotten through winter alone, and I'm sure I've seen illuminations like this plenty of times before.
+
+Late as it is to wonder — was a Christmas tree always this big?\
+Strange. Just having the person you love beside you is enough to make it shine this brightly.
+
+Once you've learned the comfort of being with someone, being alone becomes unbearable. The once-blurry outline of "loneliness" sharpens into focus, and you find yourself, clearly, recognizing that solitude for what it is.
+
+If you never know a love that burns you to the core, I think, a person can probably keep living alone just fine.
+
+But once you've learned the comfort of being with someone, suddenly, living alone becomes impossible.
+
+It makes you stronger, but also weaker. I can't imagine a life without Yui-san anymore.
+
+Not that I wanted to remember him, but Kitagami-san's face crossed my mind, unbidden.\
+He surely doesn't know. That a feeling this powerful, one that sets your chest burning, actually exists in this world.\
+I hope, someday, he finds someone like that too. I think, then, he'd finally understand this feeling of mine.
+
+That there are things a person simply cannot give up, no matter what.
+
+I gripped the hand joined with mine, tight, inside her pocket. "What's wrong?" Yui-san asked, and I just shook my head, "nothing," side to side.
+
+＊＊＊
+
+Yui-san had told me to leave the date plan entirely to her, so I had no idea where she planned to take me today.
+
+Back in college, I remember, she'd said "let's do a classic date" and taken me to a planetarium.
+
+I remember promising, someday, we'd go somewhere together where the stars looked beautiful.\
+Today's sky, alternating between light snow and clear patches, was blanketed thick with cloud, not a single star visible.
+
+I wonder if that promise still stands. Hoping it does, I let myself be led along by the hand.
 
 "By the way, where are we going today?"
 
-"You've been working all day, so you must be hungry, right? I've booked dinner at a hotel."
+"You worked all day, so you must be hungry, right? I booked a hotel dinner."
 
-"Eh? Is there a dress code? I'm just wearing my everyday clothes..."
+"Eh? Is the dress code okay? I came in regular clothes..."
 
-　If that was the case, you could have said so from the start, you tease. Thinking this, I puffed out my cheeks in a sulk. Yui-san smiled brightly and peered into my face.\
-She looked as though she'd seen right through me from the beginning.
+If that's how it was going to be, you could've just said so from the start. So mean. Puffing my cheeks out in annoyance, Yui-san smiled, bright, and peered into my face.\
+Her expression made it clear — she'd already anticipated exactly this.
 
-"It's fine. I was planning to go shopping for clothes right now anyway."
+"It's fine. We're going shopping for clothes first."
 
-"Huh...?"
+"Eh...?"
 
-"Never mind that. Just come with me."
+"Come on, just follow me."
 
-Shall we go clothes shopping too? What on earth?
+Shopping for clothes? What does that mean?
 
-A question mark floated above my head. Without understanding why, I followed Yui-san. When she brought me to the shop, I gasped at the name of the brand displayed there – one I knew well.
+A question mark floated over my head. Following her, still not understanding, we arrived at a shop, and the moment I saw the brand name displayed there — one I recognized well — I caught my breath, unbidden.
 
-"Um, Yui-san? You mean shopping for clothes... here?"
+"Um, Yui-san? Buying clothes... here?"
 
-"Yep. I've booked us in, so let's hurry in."
+"Yeah. I have an appointment booked, let's go in."
 
 "Ah, wait, Yui-san...!"
 
-She tugged my arm firmly, pulling me into the dazzlingly bright shop interior where the stark white floor reflected the light.
+Pulled forward, insistent, I was led into a store so brightly lit the white floor practically glowed, reflecting the light.
 
-What to do? True to form, Yui-san's 'spending habit' was kicking in again.
+What do I do, Yui-san's "spoiling habit" was activating, right on cue, exactly as always.
 
-Just as she'd said, she smoothly gave her name to the shop assistant, and we were promptly ushered into a private room at the back.\
-　My back stiffened with nervous tension. I wasn't used to this sort of thing, so I fidgeted.
+True to her word about an appointment, Yui-san gave her name to the staff, easy, and we were shown, almost immediately, into a private room in the back.\
+My spine snapped straight, tense. Not used to this kind of thing, I felt restless, fidgeting.
 
-"I had them pick out a few dresses beforehand."
+"I already had a few pieces picked out ahead of time."
 
-Just as Yui-san said, several expensive-looking formal dresses were already laid out in the private room.\
-I couldn't help but swallow hard. Items in places like this never have price tags, do they? Of course...
+Just as she'd said, the private room already held several high-end-looking formal dresses, lined up.\
+I swallowed, unbidden. Items in a place like this surely don't even carry price tags...
 
-　Yui-san, seemingly utterly unconcerned about the price, casually picked up a small black bag and smiled brightly, saying, "This one's cute, I think it would suit Kanata."
+Yui-san, apparently not the least bit concerned about price, picked up a small black bag, easy, and smiled, happy. "This is cute, I think it'd suit you, Kanata."
 
-"Hey, Yui-san, are we really buying something here?"
+"Hey, Yui-san, are you seriously buying this here?"
 
-I tugged her sleeve quietly, making sure the shop assistant couldn't hear, and her dark eyes widened in surprise.
+Careful not to let the staff hear, I tugged her sleeve and whispered, and her black eyes blinked, blank.
 
-"Oh, sorry. Did you dislike this brand?"
+"Ah, sorry. Did you not like this brand?"
 
-"It's not that... It's just, the brands here are expensive, aren't they...?"
+"That's not it... I mean, this brand's expensive, isn't it...?"
 
-"Don't worry about that. Think of this as a Christmas present too. Just pick whatever you like."
+"Don't worry about that. Think of it as a Christmas present too, and pick whatever you like."
 
-"But... but..."
+"B-but..."
 
-Is Yui-san serious? This feels like something out of a film. Is it really okay to be treated like this? Somehow, it feels like Yui-san's habit of lavishing gifts on me is accelerating year by year.
+Is Yui-san actually serious? This feels like something out of a movie. Is it really okay, being treated this well? It feels like her spoiling habit keeps accelerating, year after year.
 
-　Admittedly, every dress laid out was lovely. But being told to choose one made me hesitate.\
-The price probably didn't even register for Yui-san, but as a commoner, I just couldn't help but care and couldn't decide.
+It's true, every dress lined up here is lovely. But being told to just pick one leaves me hesitating.\
+For Yui-san, the price probably doesn't sting at all — but for someone as ordinary as me, I can't help but fixate on it, unable to choose.
 
-When I pouted, Yui-san seemed to read my mind, smiling as she ruffled my hair.
+Lips pursed, Yui-san, apparently reading my feelings, laughed and stroked my head.
 
-"Hmm, well then, I'll choose for you. Is that alright?"
+"Hmm, then, I'll pick for you. That work?"
 
-With that, she took the dresses laid out without a word, picking them up cheerfully and began draping them over my body.\
-Her expression looked so utterly delighted that my chest tightened, a pang of something deep inside.
+Saying that, without waiting for my answer, she happily picked up dress after dress from the lineup and held each one against my body in turn.\
+Watching her expression, so clearly, genuinely enjoying herself, something deep in my chest tightened, sweet.
 
-"What shall I do? You look adorable in anything, Kanata, so it's hard to choose."
+"Hmm, what to do. You're cute in everything, Kanata, so I can never decide."
 
-Just as I'd thought, Yui-san always gives me the words I long to hear.\
-That I look adorable in anything. She said it again, just as I hoped. Suddenly, the tension drained from my shoulders.
+Just as I'd thought — Yui-san always, always gives me exactly the words I want to hear.\
+Cute in everything, she says. She really did say it. Something in my shoulders eased, unwound.
 
 "...Yui-san."
 
-"Hmm?"
+"Mm?"
 
-"...That one from earlier. The black one."
+"...That one from before. The black one."
 
-I don't usually wear black much. But I thought that dress was lovely. It resembled the colour of Yui-san's eyes, like the night sea.\
-When I murmured it, almost like I was being spoiled, Yui-san smiled happily.
+I don't normally wear black much myself. But that dress, I thought, was lovely. Like the nighttime sea — the color of Yui-san's own eyes.\
+Wheedling, murmuring it, Yui-san smiled, happy.
 
-"This one? Right. Then choose some shoes too."
+"This one? Got it. Then, pick out shoes too."
 
-Yui-san surely didn't care about the price at all; she just wanted to make me happy.\
-A gift should be something nice, something you can use for a long time. I understood that sentiment perfectly.
+Yui-san probably doesn't care about the price at all — she just wants to make me happy.\
+A present should be something good, something that lasts. I understand that feeling well.
 
-Paying no mind to the shop assistant watching us, I pressed myself close to her arm, peered at the pumps, then pointed at a pair. "These are nice too. Try them on sometime. They'll suit you perfectly."
+Not caring at all that the staff was watching, I pressed close against her arm, looked over the pumps, and pointed. "This one."
 
-That's why she chose this shop, thinking they'd suit me.\
-That thought made me so incredibly happy, it was overwhelming.
+"Yeah, this one's cute too. Try it on for me. I'm sure it'll suit you perfectly."
 
-I nodded, and Yui-san smiled happily again.
+That's exactly why you picked this shop, isn't it. Because you thought it would suit me.\
+That feeling made me so happy, unbearably.
 
-This morning, I'd been really regretting choosing my outfit so carelessly — but I changed my mind.\
-Because the clothes Yui-san gave me as a present are definitely going to look much better.
+Nodding, "yeah," Yui-san smiled, happy, all over again.
+
+*
+
+I'd deeply regretted, this morning, picking such an ordinary outfit — but I reconsidered.
+
+Because whatever Yui-san picks out for me is bound to be far lovelier, without question.

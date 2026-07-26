@@ -1,182 +1,185 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 110
+nav_order: 11
 parent: Second year as a working adult, winter
-sequence: 100
-title: "Episode 95: Just because you're lonely doesn't mean you should cheat"
+sequence: 99
+title: "Episode Ninety-Five: Just Because You're Lonely Doesn't Mean You Get to Cheat"
 ---
-Episode 95: Just because you're lonely doesn't mean you should cheat
+## Episode Ninety-Five: Just Because You're Lonely Doesn't Mean You Get to Cheat
 
-Early on a Saturday morning, Christmas having passed, the streets gradually taking on the atmosphere of year-end.
+\
+Christmas had passed, and now, on a Saturday morning, the whole city had started taking on that distinct year-end atmosphere.
 
-Dragging an oversized suitcase packed with belongings, I leave the flat and lock the door.
+Dragging my oversized, packed suitcase, I stepped out of my apartment and locked the door behind me.
 
-My silver suitcase, a favourite since my student days, still serves me well despite its numerous scuffs. Lightweight and exceptionally durable, it remains a cherished possession.
+That silver suitcase, well-loved since my college days, still bears scuff marks here and there, but it's still going strong — lightweight, durable, and my favorite.
 
-　Its suspension-equipped castors feature a considerate silent-running design, allowing me to traverse the apartment's communal corridor without a sound, even leaving this early in the morning.\
-I plan to return to London tomorrow, where my parents live, using my extended holiday allowance. And actually, this marks my first visit home since starting my career.\
-I recall the last time I visited was in March of my fourth year at university, just before starting work.
+Its suspension-equipped casters are quietly engineered, so even leaving this early in the morning, I could walk the apartment's shared hallway without making a sound.
 
-　Last year, my father invited me several times, saying, "Come home."\
-But I was busy and desperate to learn my job, and the flights weren't exactly cheap either, so I kept putting it off — and before I knew it, two years had passed without me returning.
+Starting tomorrow, I'd be using my long holiday to go home to London, where my parents live. And, honestly, this would be my very first trip home since becoming a working adult.\
+The last time I went home, I remember, was March of my senior year of college, right before starting my job.
 
-　Just a few minutes ago, I received a message from Yui saying, "I'm here."\
-Taking the lift down to the first floor and passing through the shared entrance, it was still dim outside, and I felt the piercingly cold air unique to winter mornings.
+Even last year, my father had invited me more than once — "come home, come visit" — but between being desperately busy learning the ropes at work, and flights never exactly being cheap, I kept putting it off, and before I knew it, two whole years had passed without going back.
 
-A white saloon car was parked beside the apartment block, its hazard lights flashing. It was Yui's car. I waved, and she, who had been waiting inside, noticed me and got out.
+A few minutes earlier, a message had come from Yui-san: "I'm here."\
+Taking the elevator down to the ground floor and passing through the shared entrance, outside was still dim, and I felt that distinctly sharp, biting chill of a winter morning.
 
-　She smiled, raising her hand towards me in her black coat.
+Beside the apartment, a white sedan sat parked, hazard lights flashing. Yui-san's car. Waving, I saw her notice me from inside and get out of the car.
 
-"Kanata, good morning."
+Wearing a black coat, she raised a hand toward me and smiled.
 
-"Good morning. Thank you for coming to see me off today. The suitcase is heavy... it's a great help."
+"Morning, Kanata."
 
-"Oh, it's nothing. I just wanted to see you off, don't worry about it."
+"Good morning. Thank you for going out of your way to see me off today. The suitcase is heavy, so... this really helps."
 
-Yui-san took my suitcase and loaded it into the boot with practised ease.\
-　Brushing my arms together over my coat against the cold, I climbed into her beloved car. As if she'd been waiting for it, Yui-san handed me a warm bottle of milk tea.
+"No, I just wanted to see you off, don't worry about it."
 
-She turned off the hazard lights and the car began to move. Our destination was the place where Yui-san and I first met: the gateway to the sky, Haneda Airport.
+Yui-san took my suitcase and loaded it into the trunk with practiced ease.\
+Rubbing my arms against the cold, even through my coat, I climbed into her beloved car, and Yui-san, as if she'd been waiting for exactly this moment, handed me a warm bottle of milk tea.
 
-"Come to think of it, Ritsu-san asked for a souvenir, didn't she?"
+Switching off the hazard lights, the car pulled out. Our destination — the same place where Yui-san and I first met. The gateway to the sky, Haneda Airport.
 
-"Oh? What did she want?"
+*
 
-"Perfume, apparently. She said she's starting marriage hunting next year and asked for 'something that makes her feel like a proper lady'. But scents are such a personal thing, I wonder if it's alright for me to choose?"
+"Oh, come to think of it, Ritsu-san had a souvenir request."
 
-"Marriage hunting? She mentioned it before, but Ritsu was serious about it. I always thought she was joking."
+"Oh yeah? What'd she want?"
 
-"Me too..."
+"Perfume, apparently. She said she's starting matchmaking activities next year, so she wants 'something that gives off good-woman energy.' But scent preference is such a personal thing — do you think it's really okay for me to just pick something?"
 
-Marriage hunting, huh.
+"Matchmaking activities? She mentioned that before too, but Ritsu was actually serious about it? I always figured it was a joke."
 
-　Come to think of it, Yui-san and Ritsu-san, who are two years older than me, will be twenty-seven next year. It wouldn't be strange for them to start seriously looking for a life partner around now.
+"Same here..."
 
-That said, marriage isn't everything in this day and age, and it depends on the person, I suppose.
+Matchmaking activities, huh.
 
-Indeed, my best friend Yuri, even without a boyfriend, pours all her energy into her work and hobbies, living a fulfilling life.\
-　It's not as if Yuri has never had a partner. Occasionally, there were decent people.
+Thinking about it properly, Yui-san and Ritsu-san, two years older than me, will both turn twenty-seven next year. Wanting to seriously start looking for a lifelong partner around now isn't strange at all.
 
-But her priorities have always been clear: music first, work second, a partner occasionally... That sort of thing. Looking back at her romantic history, both her relationships and breakups were relatively straightforward affairs.
+Though, these days, marriage isn't everything, and I suppose it depends on the person.
 
-　I find Yuri's free-spirited, stray-cat-like way of living utterly wonderful.
+My close friend Yuuri, for instance, has no boyfriend at all right now, and yet she's pouring herself entirely into work and her hobbies, living a genuinely fulfilling life.\
+It's not that Yuuri's never had a boyfriend — there've been decent people, here and there.
 
-Others have no business meddling. If she's happy, that's all that matters. There should be room for all kinds of happiness.
+But Yuuri's own priorities have always stayed fixed: music first, then work, then, occasionally, a boyfriend — so, looking back over her whole romantic history, both the relationships and the breakups have always been fairly light, easy affairs.
 
-"...Yui-san, what sort of souvenir would you like?"
+That kind of free, wandering-cat lifestyle of hers — I genuinely think it's wonderful, in its own way.
 
-I ask quietly, gazing at the scenery passing by the train window.
+No need for anyone else to weigh in. As long as the person herself is happy, that's all that matters, and there's room for all kinds of happiness.
 
-"I'm fine. Just having Kanata come back is enough for me. Ahh, thinking I won't see Kanata for a while makes me feel so lonely."
+"...What do you want for a souvenir, Yui-san?"
 
-I smile at Yui-san as she murmurs this with a sigh.
+Watching the scenery slide past the car window, I asked, quiet.
 
-Since becoming her secretary, this is the first time we'll be apart for such a long period.\
-　I knew I'd feel terribly lonely too, so I'd actually brought Shachi-kun along on this trip home.\
-He's my precious companion who's helped me get through nights without Yui-san, and just having him here makes me feel so much more at ease.
+"I don't need anything. Just having you come home is more than enough for me. Ahh, just thinking about not seeing you for a while makes me genuinely lonely already."
 
-For a moment, I thought maybe I should have left the seal I brought back to my flat with her, since Yui-san seems to miss me this much too.
+Letting that slip out with a sigh, I couldn't help but laugh.
 
-"...But you mustn't cheat just because you're lonely, you know."
+Since becoming her secretary, this would be the longest stretch we'd ever been apart.\
+I'm sure I'll get terribly lonely too, so, honestly, I'd brought the little orca along on this trip home.\
+He's my precious partner, the one who's gotten me through every night without Yui-san, so just having him along makes an enormous difference in how secure I feel.
 
-　I made sure to give her a gentle jab. Yui-san just laughed off my little dig.
+If Yui-san's going to be this lonely too, just like me, maybe I should have left the seal — the one I'd taken back to my apartment — with her instead. That thought crossed my mind, briefly.
 
-"With such a lovely girlfriend, I'd never dream of cheating."
+"...Just because you're lonely doesn't mean you get to cheat."
 
-Knowing she meant it from the bottom of her heart made me feel a little relieved.
+Just to be safe, I said it, a small jab. Yui-san laughed off my little scolding, easy.
 
-It's not that I genuinely doubt her, but when we're physically apart, I worry we won't be able to meet whenever I want to. What if her old bad habits start acting up again?
+"With a girlfriend this cute, why would I ever cheat?"
 
-　Because I understand better than anyone just how popular Yui is.\
-Having a popular girlfriend means you never get a moment's peace – though it might take Yui a lifetime to grasp that.
+Hearing that she meant it, genuinely, from the bottom of her heart, put me a little at ease.
 
-Heading for the airport, the car sped along the tarmac. Dawn was still a little way off.\
-In the eastern sky, pale orange light began to seep through gaps in the grey clouds.
+It's not that I seriously doubt her. But once real physical distance sets in, we can't see each other whenever we want, and I do worry, sometimes, about whether some dormant bad habit of hers might stir back to life.
 
-　＊＊＊
+That's exactly because I, more than anyone, understand just how popular Yui-san is.\
+Having a popular girlfriend really does mean there's never a moment of true peace — something Yui-san might never fully understand, however long she lives.
 
-Parking in the car park directly connected to Terminal 3, I pull my suitcase towards the check-in counter.
+The car sped along the asphalt, toward the airport. Sunrise, not much longer now.\
+In the eastern sky, through gaps in the grey clouds, a pale orange light had started filtering through.
 
-Once on the plane, all that's left is sitting. But that sitting time feels interminable.\
-My legs swell, my backside aches, and the travelling alone always leaves me utterly knackered.
+＊＊＊
 
-　Returning home was my own decision, but truthfully, I dreaded being apart from Yui-san. Only now did it occur to me that I should have asked her to hold me tighter before leaving.
+Parking in the lot connected directly to Terminal 3, I pulled my suitcase toward the check-in counter.
 
-After checking in and handing over my suitcase, I finally felt unburdened.\
-Passing through security thirty minutes before the flight would be ample time, meaning I could stay with Yui-san until then.
+Once on the plane, all that's left is sitting — and yet that stretch of just sitting always feels impossibly long.\
+My feet swell, my back aches, and by the time I arrive, I'm always utterly worn out just from the travel itself.
 
-"Hey, Yui. We've still got a bit of time. Why not make the most of it and head to the observation deck? We might see all sorts of planes."
+Going home was my own decision, but honestly, parting from Yui-san is genuinely, unbearably hard. A little late now, but I found myself thinking — I should have let her hold me more, before we left.
 
-"The observation deck? Sounds good, I'd like to go."
+Once check-in was done and my suitcase checked, I finally felt light, unburdened.\
+Passing through security thirty minutes before the flight would leave plenty of time, so, until then, I still had this time with Yui-san.
 
-"It might be a bit chilly though..."
+"Hey, Yui-san. We've still got a little time, want to check out the observation deck, since we're at it? Might get to see all kinds of planes."
 
-"If it's cold, we can always come back inside. Let's go and have a look, it's worth it."
+"Observation deck? Sounds nice, let's go."
 
-Saying that, Yui smiled and took my hand.
+"Might be a little cold, though..."
 
-　Heading up to the observation deck on the fifth floor, the top level of Terminal 3, we found it surprisingly sparse despite the space. Perhaps it was the season, with a cold wind blowing through, even though the sun had already risen.
+"If it's cold, we can just come back down. Since we're here, let's go take a look."
 
-Being the international terminal, it was spectacular. One after another, large passenger planes from various airlines headed towards the runway.\
-Their silver wings glinted and sparkled, reflecting the morning sun, dazzlingly bright.
+Saying that, Yui-san laughed and pulled my hand.
 
-"Which airline are you flying with today, Kanata?"
+Heading up to the observation deck on the fifth floor, the top level of Terminal 3, even with the sun already up, the season meant a cold wind cutting through, and the wide-open space held only a scattering of people.
 
-"JAL. Flight 43 to Heathrow Airport."
+International flights, probably why — one massive passenger jet after another, from all kinds of airlines, taxied toward the runway, an impressive sight.\
+Silver wings caught the morning sun, glittering, dazzling.
 
-"I see. Well then... from here, I suppose I can see Kanata's plane off."
+"Which airline are you flying today, Kanata?"
 
-I gazed at her lonely-looking profile, illuminated by the morning sun. Though we were only parting for a few days, the feeling was entirely different between being within easy reach and moving to a distance where we couldn't meet immediately.
+"JAL. Flight forty-three, to Heathrow."
 
-The thought that she might be recalling the day I left Japan made my heart ache as if pricked by a needle.
+"I see. Then... from here, maybe I'll be able to see your plane off."
 
-"...Yui-san, listen."
+I studied her profile, lit by the morning sun, faintly lonely. Just a few days apart, and yet being within easy reach versus being suddenly, truly far — the feeling is completely different.
 
-　Taking a small breath, I fixed my gaze on the aeroplane visible beyond the fence, holding her hand tightly without looking away.\
-I sensed Yui-san looking in my direction. But I didn't turn to face her as I spoke.
+Maybe she was remembering that day I left Japan. Thinking that, something pricked, sharp, at my chest, like a needle.
 
-"I'm planning to tell my parents. That I'm in a relationship with a woman. Of course, I don't intend to say it's you just yet. This trip home is for that purpose."
+"...Yui-san, so, um."
+
+Taking a small breath, I looked at the plane visible past the fence, and, without looking away, gripped her hand, tight.\
+I sensed her turn to look at me. But I kept my eyes forward and spoke.
+
+"I'm planning to tell my parents. That I'm dating a woman. Of course, I don't plan on saying, yet, that the person is you, Yui-san. This trip home — that's what it's for."
 
 "Eh..."
 
-I could tell Yui gasped. I gently turned my gaze towards her. Her deep, dark eyes, reflecting the morning sun, shimmered like water, rippling with unease.
+I could tell she'd caught her breath. I glanced at her, gentle. Catching the morning sun, her deep black eyes shimmered, wavering, anxious, like the surface of water.
 
-"Why? You don't have to force yourself to tell them, Kanata. I could keep it a secret forever—"
+"Why? You don't have to force yourself either, Kanata. I've kept this secret this whole time, so—"
 
-Yui surely understood the weight of telling my parents about this. And the anxiety it brought.\
-　But I shook my head from side to side and smiled. As if to blow her unease away.
+Yui-san surely understands, deeply, the weight of what it means to tell your parents something like this. And the anxiety that comes with it too.\
+But I shook my head, side to side, and smiled. Blowing away her unease.
 
-"I'm not forcing myself at all. It's fine. Because I truly believe they'll understand."
+"I'm not forcing myself. It's fine. Because I believe, absolutely, that they'll understand."
 
-Come spring, I'll be twenty-five myself. While marriage is gradually becoming a matter of personal freedom nowadays, my parents' generation married and had children much, much earlier than people do now.
+Once spring comes, I'll turn twenty-five soon enough. Marriage is becoming more and more a matter of individual choice these days — but my parents' generation married, and had children, far, far earlier than people do now.
 
-　Perhaps because of that, my mother has been asking me more often lately, "Haven't you met anyone suitable?" Like Ritsu-san, more and more people will start thinking about marriage from now on.
+Maybe that's part of it, but lately my mother's been asking, more and more often, "isn't there someone nice?" People who think seriously about marriage, like Ritsu-san, will probably keep increasing too, going forward.
 
-I could keep dodging the question, but there's a limit. My parents aren't planning to stay permanently in Britain either. They'll return to Japan eventually. Probably in the not-too-distant future.
+I could keep deflecting, sure, but there's a limit. My parents won't stay in England forever either. Eventually, they'll come back to Japan. Probably, not in the too-distant future.
 
-When that happens, I'll need to explain that I'm living with Yui-san. There's no avoiding it, I'm sure.
+When that happens, I'll need to explain that I'm living with Yui-san. One way or another, there's no avoiding it forever.
 
-I don't think I need to force the issue. There are ways to approach it. But I don't feel the need to hide it either.
+It's not that I have to force myself to say it now. There are all kinds of ways to handle it. But I don't feel any need to hide it either.
 
 I just want to tell my parents honestly.
 
-That I've met someone I truly want to spend my life with, and I'm incredibly happy. It just so happens that person is a woman.
+That I found someone I genuinely want to spend my whole life with. That the person just happened to be a woman.
 
-Even if we can't marry now, our hearts are deeply and strongly connected.
+Even if we can't marry right now, our hearts are connected, deeply, strongly.
 
-　Besides, I believe the day will come when Japanese law changes. I truly believe it. A future where we can live together as a matter of course, regardless of gender, will absolutely arrive. Yes, I'm certain of it.
+And someday, I believe, a day will come when Japan's laws change too. A future where people can simply live side by side, loving each other, regardless of gender. I'm certain of it.
 
-"...Do you really think they'll understand? Won't they oppose it?"
+"...Do you really think they'll understand? Won't they be against it?"
 
-It was an uncharacteristically timid voice for Yui-san. The hand holding mine squeezed back, a little tighter, anxiously.
+Her voice, faintly weak, unlike Yui-san's usual self. Our joined hands squeezed mine back, tight, anxious.
 
-"It'll be alright. So next time, come with me and meet my family. I want you to see the city I grew up in too. London's streets are truly beautiful. It's a bit far, and travelling might be tiring, but..."
+"It'll be fine. So, next time, come with me, and meet my family. I want you to see the city I grew up in too, Yui-san. London's streets really are beautiful. It's a bit far, and the trip might be exhausting, but..."
 
-I gazed into her eyes and smiled. Then, I felt the tension in Yui-san's expression soften.
+I looked into those eyes and smiled. And something in Yui-san's tense expression seemed to soften, ease.
 
-"...Yes. Next time, I'll definitely come with you. I promise."
+"...Yeah. Next time, I'll definitely come with you. I promise."
 
-We stood shoulder to shoulder, watching the aeroplane streak straight up into the sky. Our breath turned white, mingling with the clear, cold winter air before fading away.
+Shoulders close together, we watched the plane climb, straight, into the sky. Our breath turned white, dissolving into the clear, cold winter air.
 
-But the hands we held remained warm, no matter how long we stood there.
+But our joined hands, however long we stood there, stayed warm.

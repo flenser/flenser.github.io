@@ -1,231 +1,241 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 130
+nav_order: 13
 parent: Second year as a working adult, winter
-sequence: 102
-title: "Episode 97: I haven't actually been proposed to yet"
+sequence: 101
+title: "Episode Ninety-Seven: I Haven't Actually Been Proposed To Yet"
 ---
-Episode 97: I haven't actually been proposed to yet
+## Episode Ninety-Seven: I Haven't Actually Been Proposed To Yet
 
-Before long, I told Mum and Kaname, who had just returned from shopping, that I was seeing someone and wanted to be with her.
+\
+Not long after, once my mother and Kaname got back from shopping, I told them too — that I'm dating a woman, and that I want to spend my life with her.
 
-Mum, who was naturally easygoing, was surprised but didn't seem particularly flustered. She just cheerfully remarked, "So you've found someone good too, Kanata."
+My mother, naturally easygoing, seemed startled but showed no real confusion — she just seemed happily unbothered, saying something like "so Kanata found someone nice after all."
 
-Kaname, on the other hand, was furious, just as I'd expected.
+Kaname, meanwhile, reacted exactly as expected — thoroughly indignant.
 
-　"What sort of girl is she? Can she really make my sister happy? Bring her here this instant! I won't accept it until I've spoken to her!" he ranted and raved, while Mum and Dad desperately tried to calm him down.
+Who exactly is this person, can she really make Sis happy, bring her here right now, I won't approve until I've actually talked to her — he went on, ranting, while my parents worked hard to calm him down.
 
-It's not like we're getting married or anything... But seeing how Yō had lived in this country where same-sex marriage is legal far longer than I had, he didn't seem to have much of a hang-up about gender, which was a bit of a relief.
+It's not like we're getting married, but... Kaname's spent far more of his life than I have in a country where same-sex marriage is legal, so gender itself doesn't seem to register as much of an issue for him at all — which put me a little at ease.
 
-　I never imagined Kaname was such a devoted big sister's boy, but somehow, it made me happy to realise he loved me after all.
+I never imagined he was such a devoted little brother, honestly, but somehow, being loved like that made me happy too.
 
-Still, I'm sure Kaname will understand once he meets Yui-san. And it sounds amusing, so I'll leave him angry for now. When they meet, I might get to see Yui-san getting bitten and beaten into submission by Kaname.
+Still, I'm sure once Kaname actually meets Yui-san, he'll come around completely — and since watching him fume is a little entertaining, I decided to just let him stay annoyed for now.
 
-Perhaps the tension has eased, but I'm starting to feel a bit sleepy. Seems my jet lag hasn't fully cleared yet.
+If they ever meet face to face, maybe I'll even get to see Yui-san flustered, cornered by Kaname's questioning.
 
-"Dad, Mum, I'm still sleepy. I'm going to take a nap."
+Maybe because the tension had finally eased, I started feeling sleepy. Apparently the jet lag still hadn't fully worn off.
 
-"Ah, sis, we still need to talk..."
+"Dad, Mom, I'm still tired, so I'm going to take a nap."
 
-"Goodnight."
+"Ah, sis, we're not done talk—"
 
-Cutting Yō off, I headed to my room, yawning.\
-I plopped down on the bed and hugged my companion, Shachi-kun, who'd come with me from Japan.
+"Night."
 
-　It was night in Japan, so I decided to call Yui-san. Better to tell her soon. She must be worried about my family's reaction.\
-I slid my finger across my smartphone. After a few rings, Yui-san answered.
+Cutting Kaname off, I headed for my room, yawning.\
+Sitting down on my bed with a soft thud, I hugged the orca I'd brought along from Japan.
 
-'Hello? Kanata?'
+It's night in Japan right now — maybe I'd give Yui-san a call. Better to tell her sooner rather than later. She must be worried about how my family reacted.\
+Sliding my finger across my phone screen. After a few rings, Yui-san picked up.
 
-Through my left ear pressed against the phone, I heard her soft, sweet, happy voice.
+*"Hello, Kanata?"*
+
+A soft, sweet, happy voice reached me through the phone pressed to my left ear.
 
 "Yui-san, were you still up?"
 
-It was late afternoon here, but in Japan it must be just past eleven at night. I was glad she wasn't asleep.
+It's afternoon here, but it must be a little past eleven at night in Japan. Glad she wasn't already asleep.
 
-Still hugging Shachi-kun, I flopped down onto the bed. Closing my eyes, I focused on that beloved voice. I wanted to hear Yui-san's voice more clearly.
+Still hugging the orca, I lay down on the bed. Closing my eyes, focusing on that beloved voice. I wanted to hear it more, better.
 
-‘I was awake. How are you feeling, Kanata?’
+*"Yeah, I'm up. How are you feeling, Kanata?"*
 
-‘Still a bit sleepy, but much better.’
+"Still a little sleepy, but much better."
 
-Just a few days apart, yet hearing her voice alone ignited a burning longing.\
-It made me realise how utterly central Yui-san had become to my life, leaving me with a tingling unease.\
-Before dating Yui-san, I’d never imagined I could possess such a lover-centric way of thinking.
+Just a few days apart, and yet hearing her voice alone is enough to set my heart aching with longing, like a fire catching.\
+Being made to feel, all over again, just how much Yui-san has become the center of my whole life left something in me restless, unsettled.\
+Before dating her, I never thought I'd end up someone whose entire way of thinking revolved so completely around a partner.
 
-"...Yui, listen. I just... I told my family."
+"...Yui-san, so, um, I told my family. Just now."
 
-The moment I said it, I could hear her gasp on the other end.
+The moment I said it, I could hear her catch her breath, through the phone.
 
-When I told my father I was "dating a woman", I finally understood why Yui had seemed so worried all this time.
+Only now, belatedly, did I understand why Yui-san had looked so genuinely worried, right before I told my father "I'm dating a woman."
 
-　Coming out to my family took an enormous amount of courage.\
-I should have believed I’d be alright, yet my limbs still trembled, my throat went dry, and my heart pounded so fiercely I felt it might burst through my chest.
+Coming out to your family — it takes an almost unimaginable amount of courage.\
+I'd believed, so firmly, that everything would be fine — and yet, even so, my hands and feet had trembled, my throat had gone dry, and my heart had pounded so hard, so relentlessly, it felt like it might actually be beating against my own ribs from the inside.
 
-It was precisely because I knew that feeling that I realised something.
+Knowing that feeling now, I understood something.
 
-Perhaps Yui-san had once tried to tell her father too. That must be why she looked so worried.\
-I'm sure she's experienced this bottomless tension, this indescribable anxiety.
+Maybe, in the past, Yui-san had once tried to tell her own father too. That's probably exactly why she'd looked so worried.\
+I think she must have experienced this same bottomless tension, this indescribable anxiety, herself, at some point.
 
-"...How did it go?"
+*"...How'd it go?"*
 
-Seeing Yui-san looking uneasy, I chuckled softly.
+Her voice, anxious, and I couldn't help a small laugh.
 
-"It was nothing. Both my father and mother accepted me."
+"It was nothing to worry about at all. Both my mom and dad accepted me."
 
-I decided to keep quiet about my brother screaming, "Bring her here right now!" for now.
+I decided to keep it secret from Yui-san, for now, that my brother had been shouting "bring her here right now!"
 
-"Yui-san's father will definitely understand too. After all, he's Yui-san's father."
+"Your father's sure to understand too, Yui-san. Because he's your father."
 
-I could tell Yui-san let out a deep sigh of relief.
+I could hear Yui-san let out a long, relieved breath.
 
-‘I see… That’s good. Kanata… Thank you, truly.’
+*"I see... I'm glad. Kanata... thank you, really."*
 
-Knowing she meant it from the heart, a warmth slowly spread deep within my chest.\
-The fact that our parents had accepted us calmed our hearts more than I’d imagined.
+Hearing that she meant it, genuinely, from the bottom of her heart, something in my chest warmed, slow.\
+Being accepted by my parents had eased both our hearts far more than I'd ever imagined it would.
 
-‘I want to see Yui-san… soon.’
+"I want to see you, Yui-san... soon."
 
-‘…Yes. I want to see Kanata soon too.’
+*"...Yeah. I want to see you too, soon."*
 
-　There were still things we needed to do to ensure we could stay together forever.\
-But today, I think it was okay to be happy that we'd managed to overcome that first small hurdle.
+There's still work left to do, if we're going to stay together, always, from here on.\
+But today, I think, I'm allowed to be happy about clearing this first small hurdle.
 
-Next time, I'll definitely come here with Yui-san. When all the problems have been cleared up.
+Next time, I'll definitely come here together with Yui-san. Once every problem's been cleared away.
 
-The day I can introduce you to my father and mother, and my slightly grumpy younger brother, I can hardly wait.
-
-　＊＊＊
-
-My homecoming after two years passed far quicker than I'd imagined.\
-Before I knew it, the New Year arrived, and suddenly it was time to return.\
-I'd bought far too many souvenirs, making my luggage bulky and a real pain to pack.
-
-After cramming the suitcase into the back seat, Kaname climbed into the driver's seat. I followed him into the passenger seat.
-
-"Sorry, Kaname. Thanks for seeing me off."
-
-I said this while fastening my seatbelt. Though looking a bit put out, Kaname gave a small nod. I rolled down the passenger window and waved to my parents as the car began its journey to the airport.
-
-Gazing out at the passing streetscape, I was dozing off as the car rocked along when Kaname suddenly spoke up in a heavy tone.
-
-"Listen, sis..."
-
-"Hmm?"
-
-"Don't you think... it's still a bit early to decide on marriage?"
-
-"Eh?"
-
-Caught completely off guard by this sudden, unrelated remark, I stared at his profile as he gripped the steering wheel, eyes fixed straight ahead. His brow was furrowed, his expression clearly displeased.
-
-　Ever since my confession, Kaname had been sulking, so I knew he must have been thinking about something. But I hadn't expected him to bring this up right now, on the way to the airport. I was a little taken aback.
-
-"Of course, I want to celebrate for you, okay? But still... I really need to meet her... I can't tell if she'll truly treat you well or not..."
-
-By the time Kaname finished saying that, I found myself laughing out loud. I hadn't realised he'd been thinking about it so seriously.\
-I'd assumed he was just sulking. Yo had grown up far more than I'd realised.
-
-"Wh-why are you laughing? I'm trying to be quite serious here."
-
-"Yō, in Japan, same-sex marriage isn't legal."
-
-"Eh, it isn't!?"
-
-"That's right. And besides, she hasn't even proposed yet."
-
-Saying that, I held up my left hand, ringless, for him to see. Then Kaname sighed, sounding deflated, "What the hell..." and pressed his back against the seat.
-
-For now, though. For now.\
-As long as there are unresolved issues, I still can't slip a ring onto this ring finger.
-
-　But — once all the problems are resolved, I suppose I can start hoping then. Because this summer, Yui-san promised me, "Next time, I'll buy you a ring."
-
-"...But next time, I'll definitely bring her along. I'll make sure you meet her properly. She's absolutely gorgeous, so I reckon you'll be jealous."
-
-"I won't be jealous. Because my girlfriend is definitely cuter, you know."
-
-　I laughed at Yō sticking out his tongue. Despite everything, it seemed he’d stayed with the girlfriend he’d had since high school. That’s probably why he hadn’t chosen a Japanese university, I vaguely imagined.
-
-The car sped relentlessly towards the airport.
-
-Leaving my family behind was lonely, but I’d see Yui-san soon. Thinking that, the fluttering in my chest only accelerated.
+The day I get to introduce you to my father, my mother, and my slightly grumpy little brother — I can hardly wait for it to come.
 
 ＊＊＊
 
-After enduring the interminably long flight that never seemed to end, I finally arrived at Haneda Airport.\
-Collecting my suitcase, I hurried towards the exit.\
-True to her word, Yui-san was waiting for me right by the arrivals gate. The moment our eyes met, her face lit up with a bright smile.
+My first trip home in two years passed by far faster than I'd expected.\
+Before I knew it, the new year had arrived, and, just as quickly, the day to fly back came around.\
+Having bought far too many souvenirs, my luggage had swollen considerably, and packing turned into a genuine struggle.
 
-　I dashed straight towards her and threw myself into her open arms. The moment our bodies pressed tightly together, it felt like my nearly depleted emotional fuel tank was instantly filled to the brim.
+Once the tightly-packed suitcase was loaded into the back seat, Kaname climbed into the driver's seat, and I followed into the passenger seat.
+
+"Sorry, Kaname. Thanks for driving me."
+
+Fastening my seatbelt as I said it, Kaname, still faintly sulking, gave a small nod. Waving to our parents through the open passenger window, the car pulled out toward the airport.
+
+Watching the scenery slide past the window, drowsy from the car's gentle rocking, Kaname suddenly, heavily, opened his mouth.
+
+"Hey, so, sis."
+
+"Mm?"
+
+"...Isn't it a little early to be deciding on marriage, though?"
+
+"Huh?"
+
+Said so suddenly, with no context at all, I turned to look at his profile, still facing forward, hands on the wheel. His brows were drawn tight, unmistakably displeased.
+
+He'd been sulking this whole time since I told him — I'd figured something was on his mind, but I never expected him to bring it up right here, on the way to the airport, and it caught me a little off guard.
+
+"I mean, of course I want to be happy for you. But I still can't tell, without actually meeting her... whether she's really someone who'll treasure you properly..."
+
+Right as he got that far, I couldn't help but burst out laughing. I never imagined he'd been thinking about it this seriously.\
+I'd assumed he was just sulking. Turns out he's grown up far more than I gave him credit for.
+
+"Wh-why are you laughing? I'm being pretty serious about this, you know."
+
+"Kaname, same-sex couples can't marry in Japan."
+
+"Eh, seriously!?"
+
+"Yeah. And besides, I haven't actually been proposed to yet."
+
+Saying that, I held up my ring-less left hand for him to see. At that, Kaname let out a deflated "what..." sigh and slumped back against his seat.
+
+Not yet, anyway. Right now.\
+As long as there are still unresolved problems standing in the way, I can't put a ring on this finger yet.
+
+But — once everything's settled, maybe then, I think, I'm allowed to hope a little. Because Yui-san promised me, back in summer — "next time, I'll buy you a ring."
+
+"...But next time, I'll definitely bring her along. I'll properly introduce her to you too, Kaname. She's really beautiful, so you'll probably be jealous."
+
+"I won't be jealous. My girlfriend's definitely cuter."
+
+Sticking his tongue out, I laughed. Apparently, through everything, Kaname's still going strong with the girlfriend he's had since high school. That, I imagine, is probably why he chose not to go to college in Japan.
+
+The car sped on, straight toward the airport.
+
+Leaving my family behind is lonely, but soon, I'll get to see Yui-san again. Just thinking that, my heart kept racing, faster and faster.
+
+＊＊＊
+
+Enduring the long flight, one I never quite get used to no matter how many times I take it, I finally reached Haneda.\
+Collecting my suitcase, I hurried toward the exit.\
+Just as promised, Yui-san was waiting right there by the arrivals gate. The moment our eyes met, her face broke into a bright smile.
+
+Running straight toward her, I threw myself into those open arms. The instant our bodies pressed close, my nearly-empty heart's fuel tank filled, instantly, completely full.
 
 "I'm home, Yui-san."
 
-"Welcome back, Kanata. I was so lonely. I missed you terribly."
+"Welcome home, Kanata. I really was so lonely. I missed you."
 
-Her clear voice, different from over the phone, resonated in my eardrums and shook my very heart.\
-After filling my lungs with the scent of my beloved Yui, I held her body as tightly as I could.
+That clear voice, so different from over the phone, rang through my ears, shaking something deep in my chest too.\
+Breathing in Yui-san's beloved scent, filling my lungs, I hugged her body back, tight, with everything I had.
 
-　After loading the suitcase, now denser and heavier than when I left, and the paper bag of souvenirs into the boot, I settled into the passenger seat of her beloved car, one I knew well.\
-She fastened her seatbelt, pressed the button beneath the steering wheel, and the engine roared to life. Pressing the accelerator, the car began to move. Our destination was my flat.
+*
 
-"By the way, did you find a nice perfume for Ritsu as a souvenir?"
+Once she'd loaded my suitcase — heavier now, packed even fuller than on the way there — along with the paper bags of souvenirs into the trunk, I settled into the passenger seat of her familiar, beloved car.\
+Fastening my seatbelt, Yui-san pressed the button under the wheel, and the engine hummed to life. Pressing the accelerator, the car pulled out. Destination — my apartment.
 
-"Well, I really couldn't decide myself, so I just let the shop assistant choose it for me. I suppose I ought to pop round to give Ritsu her souvenir too."
+"Oh, right, did you find a good perfume for Ritsu-san's souvenir?"
 
-"Ah, Ritsu's visiting her family too. She shouldn't be back yet."
+"I ended up having no idea myself, so I just let the store staff pick for me, honestly. I need to go give it to her too."
 
-So Ritsu was visiting her family as well. I think I heard her family home was in Akita when we went to the New Year shrine visit together before.
+"Ah, Ritsu's actually back visiting family right now too. She shouldn't be back yet."
 
-"...Speaking of which, Yui, have you been to the New Year shrine visit yet?"
+So Ritsu-san had gone home too. I think I remembered, from that one New Year's shrine visit together, that her family home was in Akita.
 
-"No, not yet. Somehow, I just can't bring myself to go alone."
+"...Come to think of it, Yui-san, have you already been to the shrine this year?"
 
-"I see... Well then, since we're here, shall we go now?"
+"No, not yet. Didn't really feel like going alone."
 
-"Eh, now? Kanata, aren't you sleepy?"
+"I see... Well, since we're at it, want to go now?"
 
-Yui-san, seemingly concerned about my jet lag, glanced at me while driving.
+"Eh, right now? Kanata, aren't you sleepy?"
 
-"I'm fine, I'm not sleepy at all right now. I need to pay my respects, draw a fortune slip, and make a wish for business prosperity."
+Apparently worried about my jet lag, Yui-san glanced my way, briefly, while driving.
 
-　Seeing Yui-san had me so wound up I wasn't sleepy now. But I knew if I went home and crawled into bed, I'd never get up again.\
-So if we were going, now was our only chance.
+"I'm fine, not sleepy at all right now. We need to pray properly, draw a fortune, and wish for good business luck."
 
-"Right then, understood. Let's go now, then."
+Seeing Yui-san has my nerves wound up enough that I'm not sleepy right now. But I know that once I get home and crawl into bed, I probably won't wake up again.\
+So if we're going, now's the only chance.
 
-Yui-san smiled at my suggestion. Then she turned the wheel away from home.
+"I see, got it. Then, let's go now."
+
+Yui-san laughed at my suggestion. And turned the wheel toward a different direction than home.
 
 ＊＊＊
 
-Perhaps because the first three days of the year had passed, there were fewer worshippers than I'd expected. As I rubbed my hands together, numb from the cold, Yui-san offered me one of her gloves.\
-The glove I'd given her – Santa Claus, that is – fit her long fingers perfectly, just as I'd thought it would.\
-Taking it and slipping it onto my left hand, she clasped my right hand tightly. Then that hand was drawn into Yui-san's pocket.
+Being past the traditional first three days of the new year, the shrine had fewer visitors than I'd expected. Rubbing my hands together against the cold, Yui-san held one glove out to me.\
+The gloves I, as "Santa," had given her — just as I'd hoped, they fit her long fingers perfectly.\
+Taking them, I slipped one onto my left hand, and she gripped my right hand tight. That hand, still joined with mine, was drawn straight into Yui-san's coat pocket.
 
-　I tossed every last coin I had into the offering box, making the bells clatter. Then I clapped my hands firmly.\
-I glanced sideways at Yui, who stood beside me, hands pressed together, eyes closed.\
-What on earth was she wishing for with that earnest profile? Though I knew better than to ask such a tactless question.
+*
 
-I closed my eyes once more.
+Tossing every last coin I had into the offering box, I rang the bell, loud, clattering. Then clapped my hands firmly.
 
-　Back in our school days, Yui had said, "God has never once granted a single wish."
+Beside me, I glanced, briefly, at Yui-san, palms together, eyes closed.\
+What could that serious profile possibly be wishing for? Too tactless a thing to ask, of course.
 
-This time, at least — please, let Yui's wish be heard.
+I closed my eyes once more too.
 
-That was my only wish. From the bottom of my heart, I prayed to the gods.
+Back in college, Yui-san had told me — "the gods have never once granted my wishes."
 
-After properly conveying my wish to the gods, we walked hand in hand through the shrine grounds.\
-We couldn't leave without drawing omikuji fortune slips.
+This time — please, let Yui-san's wish finally be heard.
 
-　I plunged my hand into the box and rummaged around. Then I pulled out one that felt right.\
-Afterwards, Yui-san quietly drew one too.
+That's all I wished for. Praying, with everything in my heart, to the gods.
 
-My heart pounding, I unwrapped mine. The words "Great Fortune" leapt out at me. I did a little dance and thrust the paper right in front of Yui-san.\
-Then, a moment later, Yui-san opened hers and held the paper up to me, smiling happily.
+*
 
-　We tied the two 'Great Fortune' omikuji together, side by side, on a branch within the shrine grounds.
+Having properly delivered our wishes, we walked the shrine grounds, hand in hand.\
+Last thing left — drawing our fortunes.
 
-Whether this omikuji will come true, I cannot say. But I want to believe.
+Reaching into the box, I stirred it around, then pulled one out, the one that felt right.\
+A beat behind, Yui-san quietly drew one too.
 
-Surely this year will be a happy one for both of us.
+Heart pounding, I unfolded the paper wrapping. What leapt into view was the character for "Great Blessing" — the very best fortune. Delighted, hopping in place, I held it up right in front of Yui-san's face.\
+A moment later, Yui-san, unfolding her own, held her paper up in front of my face too, smiling, happy.
+
+Side by side on a tree branch in the shrine grounds, we tied our two "Great Blessing" fortunes together.
+
+I don't know whether these fortunes will actually come true. But I want to believe they will.
+
+This year, without question, is going to be a happy one for us both.

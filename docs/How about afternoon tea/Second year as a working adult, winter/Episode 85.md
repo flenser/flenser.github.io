@@ -1,229 +1,236 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 10
+nav_order: 1
 parent: Second year as a working adult, winter
-sequence: 90
-title: "Episode 85: This Year, We're Leaving It to Father Christmas"
+sequence: 89
+title: "Episode Eighty-Five: This Year, I'll Leave It to Santa"
 ---
-Episode 85: This Year, We're Leaving It to Father Christmas
+## Episode Eighty-Five: This Year, I'll Leave It to Santa
 
-By mid-December, the temperature plummets sharply at night, and you can truly feel winter's arrival on your skin.
+\
+Once mid-December passed, the nighttime temperatures dropped sharply, and winter's arrival became something you could feel directly on your skin.
 
 Friday night.
 
-I watch Yui-san with just my eyes as she fills the humidifier with water, wrapped in a blanket on the sofa. When the season for heating arrives, the air inevitably becomes dry. As this is a time when colds are common, Yui-san, in her responsible position, was always careful about managing her health.\
-　Having spent so much time with her, I too take several times more care than I did during my student days.
+Wrapped in a blanket on the sofa, I watched Yui-san out of the corner of my eye as she filled the humidifier with water. Once the heating season kicks in, the air always gets so dry. This time of year makes it easy to catch a cold, so Yui-san, in her position of responsibility, always kept careful watch over her own health.\
+Spending this much time with her, I'd started paying several times more attention to that too, compared to my college days.
 
-As the season changed, Yui-san's loungewear had quietly shifted from simple T-shirts to hoodies.
+With the seasons changing, Yui-san's loungewear had, at some point, shifted from a simple T-shirt to a hoodie.
 
-This morning's news featured a weather forecaster predicting a colder winter than usual this year.\
-Even with the heating on, I doubt I could survive this harsh winter in just shorts and a blanket.
+This morning's news had a weather forecaster saying this winter was expected to be colder than average.\
+However much the heater's running, wrapped in nothing but shorts and a single blanket, I don't think I can survive this year's cold winter.
 
-"Hey, Yui. Is it alright if I turn the heating up a bit?"
+"Hey, Yui-san. Can I turn the heater up a bit?"
 
-I asked her this after she'd finished filling the humidifier and was making me hot milk in the kitchen.
+Once she'd finished filling the humidifier, I called out to her — she'd been in the kitchen, making hot milk for me.
 
-"Oh, were you cold? Of course, go ahead. Sorry I didn't notice."
+"Ah, you're cold? Of course, go ahead. Sorry for not noticing."
 
-She said this, lowering her eyebrows apologetically. No, no, I shook my head and turned the heating up just one notch.
+Her brows drooped, apologetic, saying that. No, I shook my head, side to side, and nudged the heater's setting up one degree.
 
-　Yui-san is kind, so she's always the first to say "sorry" in situations like this, but there's no need for apologies. It's just my fault for dressing too lightly.\
-With a soft beep, a warm gust of air surged from the air conditioner vent, filling the room.
+Yui-san's so kind that she always says "sorry" first, at moments like this — but there's no need to apologize. It's just my own fault for dressing too lightly.\
+With a small beep, warm air gusted from the AC vent, filling the room.
 
-　"Here," she said, handing me a mug. "Thank you," I replied, accepting it. Yui slid in behind me and gently hugged me close, as if to warm my body.\
-Feeling the warmth against my back, I sipped from the mug. A faintly sweet taste of honey.
+Taking the mug she handed me, saying "thank you," Yui-san slipped in behind me and wrapped her arms tight around my body, warming me.\
+Feeling that warmth against my back, I brought the mug to my lips. Faintly sweet — the taste of honey.
 
-"We really ought to get some winter loungewear. My sweatshirt's a bit too big for you."
+"Guess we need to get you winter loungewear too. My sweats are a bit big on you."
 
-　I hadn't felt the need to replace my loungewear, thinking the air conditioning would keep me warm enough even in winter, but it had definitely started to feel a bit chilly.\
-Yui and I have different leg lengths, so while I could borrow her tops, her bottoms probably wouldn't work. I'd likely end up tripping over the hem.\
-I really ought to get some new loungewear soon. If I caught a cold, it would be a bother for her.
+I'd figured the heater alone would keep things warm enough, even in winter, so I hadn't felt the need to replace my loungewear — but it really had gotten a little cold.\
+Since Yui-san and I have such different leg lengths, I could probably borrow a top, but bottoms are definitely out. I'd end up stepping on the hem.\
+I should get new loungewear soon too. Wouldn't want to catch a cold and cause trouble for everyone.
 
-"With the winter bonus coming up, I think I'll buy some new loungewear. Yui-san must have given me a high rating, so I'm looking forward to the twenty-fifth."
+"With the winter bonus coming too, maybe I'll buy some new loungewear. I'm sure you gave me a good review, Yui-san, so I'm looking forward to the twenty-fifth."
 
-"Hehe, yes, you should. You can definitely look forward to the winter bonus."
+"Fufu, that's right. You can look forward to the winter bonus too."
 
-I'd meant it as a joke, but I was secretly a little surprised that Yui-san had apparently given me a genuinely high rating.\
-　The summer bonus had also made me gasp when I saw the statement... but given how well the company's doing, it looks like my pockets will be warm this winter too.
+I'd meant it half as a joke, but hearing that she'd genuinely given me a good review after all left me a little surprised, privately.\
+Even the summer bonus had made me gasp looking at the statement — and with performance this strong, this winter's looking like it'll fatten my wallet nicely too.
 
 "Come to think of it, is your bonus in winter too, Yui-san?"
 
-"No, mine's in spring. It's a performance-linked bonus just once. So next year should be promising. I'll make the most of it and go travelling, spending it all. It's still a way off, but I'm looking forward to it."
+"No, mine's spring. Performance-linked, paid once a year. So next year should be something to look forward to. Let's go on a trip and really splurge, since we're at it. Still a ways off, but look forward to it."
 
-　Yui-san smiled as she said this.\
-Well then, I'll take her up on that offer for spring, but Christmas is my turn since I get the bonus.\
-It's quite possible Yui-san's monthly salary is far higher than my bonus, but that's beside the point.
+Saying that, Yui-san laughed.\
+In that case, I'll gratefully take her up on spring — but Christmas, with my own bonus in hand, is my turn to step up.\
+Yui-san's monthly income is probably, without question, far higher than my bonus — but that's beside the point.
 
-I persuaded her to let me pay for her birthday, but normally she dislikes me reaching for my wallet, so events like this are where I get to step up.
+For her birthday, I'd talked her into letting me pay, but normally she hates it when I pull out my wallet — so any event like this becomes my chance to really try.
 
-　Besides, Yui-san genuinely treasures and uses the presents I give her for a long time, which makes choosing them all the more worthwhile for me.
+And Yui-san genuinely treasures whatever gift I give her, keeps using it for ages, which makes picking something out worthwhile, from the giving side too.
 
-Even now, she wears the blue checked scarf I gave her back in our student days – me being her very own Santa. When I noticed it as the chill set in, it tickled my heart.
+Back in college, "Santa" — meaning me — had given her a blue plaid scarf, and Yui-san still wears it, even now. Noticing that, once the weather turned chilly, something in my chest went warm, ticklish.
 
-　So this year too, I must be Yui-san's Santa again.
+So this year, too, I need to be Yui-san's Santa again.
 
-If I could wish for anything, it would be that at least Christmas Eve fell on a holiday.\
-From Christmas through to New Year, both the restaurant business and the accommodation business – our main revenue streams – are peak season. Yui-san is in constant demand for meetings and consultations, busier than ever, needing all the help she can get.
+If I could ask for one thing, I wish at least Christmas Eve could fall on a day off.\
+From Christmas through New Year's, both the restaurant business and the hotel business — pillars of the company's revenue — hit their peak season, so Yui-san gets pulled into meeting after meeting, busy enough to want to borrow a cat's paws for help.
 
-　Appointment requests came flying in one after another, relentlessly, so I had a real struggle fitting everything into her schedule like a game of Tetris.\
-I could feel the frantic atmosphere of people rushing about throughout the entire office.
+Appointment requests keep flying in, one after another, relentless, and even I struggled, piecing together her schedule like a game of Tetris.\
+I could feel, vividly, the restless, bustling atmosphere sweeping through the whole office.
 
-In such circumstances, I couldn't possibly take time off work, and if we could manage a date after work, that would be absolutely splendid. I couldn't very well be selfish with her in such a responsible position.\
-Last year, the year before that, and the year before that too. Compared to spending Christmas alone, just being able to spend it together made me feel perfectly happy.
+Under circumstances like that, there's no way she could take time off work, and honestly, just managing a date after work would already feel like a huge win. I can't afford to be selfish with someone carrying this much responsibility.\
+Last year, and the year before, and the year before that. Compared to those Christmases I spent alone, just getting to spend it together at all already feels like more than enough happiness.
 
-After placing my mug on the coffee table, I picked up the remote and leaned back.
+*
 
-　Then, a mischievous palm slipped beneath the blanket and gently stroked the sensitive edge of my chilled inner thigh.\
-Startled, I instinctively smacked the hand and spun around.
+Setting my mug down on the coffee table, I picked up the remote and leaned my weight back against her.
 
-"Yui-san, really! Please don't touch me in strange places."
+Then a mischievous hand slipped into the blanket and gently stroked the exposed, chilled skin of my inner thigh.\
+Startled, I smacked that hand away reflexively and turned to look at her.
 
-"Sorry, sorry. I thought your legs might be cold."
+"Yui-san, seriously! Don't touch weird places like that."
 
-　To Yui-san, it was probably just light physical contact, but when that hand carelessly touched such a sensitive spot, it made me feel strange, so I was always on edge.
+"Sorry, sorry. Just thought your legs might be cold."
 
-The scolded hand slowly crawled out from under the blanket and instead hugged my body tightly once more.
+For Yui-san, it's probably just casual skinship, but when she touches somewhere that risky without warning, it does something strange to me, and I'm never quite at ease.
 
-Regaining my composure, I chose the film we'd watch today. Repeating weekends like this so many times, it was already becoming our everyday routine.\
-　Our weekend living room, filled with countless moments of happiness, was where we watched films while chatting about trivial things, laughing at the ticklish sensation of lips touching my cheek and neck again and again.
+Her scolded hand slowly withdrew from the blanket, and instead wrapped tight around my body again.
 
-"Let's finish work on time and go on a date, Christmas Eve."
+Refocusing, I picked out today's movie. Repeating weekends like this over and over, it's already become something like our everyday routine.\
+Ticklish from the repeated kisses at my cheek, my neck, laughing, trading idle chatter while watching a movie — the living room, on a weekend like this, was packed full of quiet happiness.
 
-It seemed Yui-san had been thinking the same thing after all. I nodded, "Mm-hmm," and squeezed her hand, which had slipped around my waist.
+"Let's leave right on time Christmas Eve and go on a date."
 
-"I'd like to go see the illuminations."
+So Yui-san had been thinking the same thing after all. I nodded, "yeah," and gripped tight the hand she'd wrapped around my stomach.
 
-"Alright, let's go. What would you like as a present?"
+"I want to go see the illuminations."
 
-"What would be nice, I wonder?"
+"Sure, let's go. What do you want for a present?"
 
-"Anything? Jewellery? A bag?"
+"Hmm, what would be good..."
 
-I'd already received jewellery, and the bag I had was perfectly adequate. Yui-san had a tendency to spoil people, so I knew from past experience that I had to be careful what I said in situations like this, or things could get out of hand.
+"Anything's fine. Accessories, a bag, whatever."
 
-"Ah, well then... loungewear, perhaps?"
+I've already gotten accessories, and what I have for bags is plenty. Yui-san has this spoiling habit, so from experience, I know I need to be careful what I say at moments like this, or things spiral out of control fast.
+
+"Ah, then... loungewear, maybe."
 
 "Loungewear?"
 
-She nodded in response to Yui's questioning look. Then, from behind, came a dissatisfied "Ehh?"
+Asked that back, I nodded, "yeah." Then, from behind, I heard a displeased "ehh."
 
-"I'd buy you that even if it wasn't Christmas. Surely there's something else? Something you want?"
+"I'd buy you that regardless of Christmas. Isn't there something else? Something you actually want?"
 
-Loungewear isn't exactly cheap either. Yui-san buys things she likes without hesitation, regardless of price, but she's not the type to waste money.\
-I think she's quite good with money, but when it comes to me, I feel I lack a bit of restraint. When she buys me so many things so readily, I feel terribly guilty.
+Loungewear's not exactly cheap either. Yui-san buys whatever she likes without hesitation, regardless of price, but she's not the wasteful type.\
+I think she's actually good with money — it's just that, when it comes to me, she seems to lose all sense of restraint. Being showered with gifts like this so easily leaves me feeling guilty.
 
-"Hmm... I wonder what."
+"Hmm... what, though..."
 
-Neither Yui nor I are particularly materialistic. We're both the type to value the sentiment behind things more than anything else... and I think that's especially true for Yui.\
-The paper bags from all the presents Kitakami-san has given her since university still sit unopened, piled up in her wardrobe.
+Neither of us is especially materialistic. If anything, we're both the type who values the feeling behind a gift more than the object itself — and with Yui-san, I think that tendency's especially pronounced.\
+Those paper gift bags Kitagami-san's kept giving her since college are still stacked, unopened, in her closet, even now.
 
-　The accessories from that brand Kitakami-san always gives Yui are all utterly charming.\
-Yet Yui stubbornly refuses to wear them. For her, it seems the value lies not in the object itself.
+Every accessory from that brand Kitagami-san always gives her is genuinely lovely, whichever piece you pick.\
+And yet Yui-san stubbornly refuses to wear any of it — which tells me, clearly, that what she values isn't the object itself.
 
-I understand that feeling perfectly. After all, I’d be genuinely delighted with anything Yui gave me.
+I understand that feeling completely. Because anything Yui-san gives me, whatever it is, makes me genuinely, wholeheartedly happy.
 
-"Well then... this year, I'll leave it to Father Christmas."
+"Then... this year, I'll leave it to Santa."
 
-As I turned, intertwining my fingers with hers, Yui gave a soft, gentle smile.
+Lacing my fingers through her long ones, I turned back, and Yui-san smiled, gentle.
 
-"Is that so? All right. I'll tell Father Christmas then. To prepare the perfect present for you, Kanata, who's been such a good girl this year."
+"Yeah? Got it. I'll pass that along to Santa, then. Tell him to prepare something perfect for Kanata, who's been such a good girl all year."
 
-"Hehe, thank you."
+"Fufu, please do."
 
-I leaned in, wanting a kiss. Yui-san responded with a gentle kiss, so I felt happy and rubbed against her neck.
+Wanting a kiss, I leaned my face in. Yui-san answered, kissing me gently, and, happy, I nestled against her neck.
 
-My body, which should have been cold, had somehow become completely warm.
+My body, which should have been cold, had, without my noticing, warmed completely.
 
-Once Christmas passed, the end of the year arrived in a flash. This year, I was going back to London for the holidays, so I planned to take a slightly longer break right after finishing work.
+*
 
-　I wouldn't see Yui for about a week. It would be lonely, but I had to go. There was something I needed to tell my family.
+Once Christmas passes, year's end comes in the blink of an eye. Since I'm going home to London this year, I'll get a slightly longer break, starting right after the year-end work wraps up.
 
-I hadn't yet told Yui that I was planning to tell my parents I wanted to be with a woman.\
-But I intended to tell her before I left.
+Which means, from Yui-san too, I'll be apart for about a week. Lonely, but I have to go. There's something I need to tell my family.
 
-Yui would surely say I didn't necessarily have to tell my parents, that I shouldn't force myself.\
-Yet, strangely, I felt no anxiety about telling them.
+I still hadn't told Yui-san — that I'm planning to tell my parents I want to spend my life with a woman.\
+But I'd decided to tell her before I left.
 
-Until Japanese law changes, we cannot marry. I cannot hold my own child.\
-Even so, I want to tell my family clearly, in my own words, that I am happy.
+She'd surely say I don't necessarily have to tell my parents, that I shouldn't push myself.\
+But, strangely, I felt no anxiety at all about telling them.
 
-I fell in love with a woman. If asked whether that means I was homosexual all along, probably not.\
-If then asked whether I am bisexual, that feels a little off too.
+Until Japan's laws change someday, we can't marry. I can't give her children of her own.\
+Even so, I want to tell my family, in my own words, properly, that I'm happy.
 
-Even now, I still don't quite understand how I should be categorised.\
-　I probably never will, not for the foreseeable future. But I thought that was fine. It didn't need a name.
+I fell for a woman. Does that mean I'm actually gay? Probably not, exactly.\
+Then am I bisexual? That doesn't quite feel right either.
 
-It's not for anyone else to decide. It's for me to decide.
+Even now, I still don't really understand how I'd be categorized.\
+Maybe I never will, going forward either. But I think that's fine. No need to attach a label at all.
 
-The only answer within me is the fact that I love Yui with all my heart.
+It's not something anyone else gets to decide. It's mine to decide.
+
+Because the one single truth I hold, the only answer I have, is simply this — that I love Yui-san, from the bottom of my heart.
 
 ＊＊＊
 
-Monday. Feeling the crisp winter air on my cheeks, I walk along a road lined with bare, leafless trees.\
-　Along the way, I bumped into Mitsuya-san. She had pulled the collar of her black coat up, rubbing her hands together and breathing out white clouds of breath, looking cold.
+Monday. Feeling the crisp, cold winter air against my cheeks, I walked the road lined with bare, leafless street trees.\
+Along the way, I ran into Mitsuya-san by chance. Collar of her black coat pulled close, rubbing her hands together, breathing out white breath, clearly cold.
 
 "Good morning, Mitsuya-san."
 
-"Good morning, Aosawa-chan. It's cold again today, isn't it?"
+"Morning, Aozawa-chan. Cold today too, huh."
 
-Mitsuya-san smiled broadly, the tip of her nose slightly red. Come to think of it, had there been any progress with her love life since then?\
-　I thought I'd ask. As I moved closer, just close enough for our shoulders to touch, I caught a floral scent – one I'd smelt somewhere before. It was the scent of women's perfume.
+Mitsuya-san grinned, her nose tip faintly red from the cold. Come to think of it, had there been any progress with Mitsuya-san's love, since then?\
+Let me ask her. Thinking that, as I drew close enough for our shoulders to nearly touch, a floral scent reached me — one I'd caught somewhere before. Women's perfume, unmistakably.
 
-I'd always thought Mitsuya-san, like me, wasn't one for wearing perfume. Had her feelings changed?
+I'd always thought Mitsuya-san was, like me, the non-perfume type — had something changed in her, then?
 
 "Oh, Mitsuya-san. Are you wearing perfume today, by any chance?"
 
-"Eh?"
+"Eh!?"
 
-　Mitsuya-san recoiled in surprise, her eyes darting around, so I tilted my head in puzzlement.
+Startled, Mitsuya-san jerked back, her eyes darting, and, puzzled, I tilted my head.
 
-"Ah, um, sorry, is it that noticeable?"
+"Ah, um, sorry, does it smell that strong?"
 
-"Why are you apologising? It smells lovely. What perfume is it?"
+"Why are you apologizing? It smells really nice. Where's it from?"
 
-I’d meant it as a casual remark, but Mitsuya-san just laughed awkwardly, saying, "Well... I can't quite remember."
+I'd only meant it as casual conversation, but Mitsuya-san deflected with a laugh — "who knows... what was it, again?"
 
-I hear that around the end of autumn, my successor was finally assigned to the Budget Management Department.\
-I wanted to ask about that too, but as soon as Mitsuya-san arrived at the company, she waved at me as if fleeing and hurried off.\
-I missed my chance to ask about the outcome of her romance too... but never mind, there'll be another opportunity.\
-She must have been busy, so I reluctantly headed for the president's office myself.
+I'd heard, sometime near the end of autumn, that my replacement had finally been assigned to the budget management team.\
+I'd wanted to ask about that too, but the moment we reached the office, Mitsuya-san waved and fled, hurrying off in a rush.\
+I never got to ask how her love was progressing, either... well, there'll be another chance, I suppose.\
+Maybe she was just busy. Giving up, I headed for the president's office too.
 
-　Yui-san was scheduled to attend an all-day management training session for executives, heading straight to the holding company's headquarters building and returning home directly afterwards, so the president's office was empty.
+Yui-san had a full day of executive management training scheduled, heading straight to the Holdings company's headquarters building and straight home from there — so the president's office was empty.
 
-　I'd better knock out some simple tasks while Yui-san is away. Yesterday, she'd asked me to have the minutes from the recent board meeting bound.\
-Yui-san had already reviewed the minutes received from the board secretariat beforehand, so all that remained was to bind them and get the signatures and seals from each director, including Yukiyasu-san... She'd said she wanted them prepared in advance because she was planning to visit Yukiyasu-san's company tomorrow and could take them along then.
+Might as well get some simple tasks done while she's out. Yesterday, Yui-san had asked me to have the minutes from the recent board meeting bound properly.\
+Yui-san had already reviewed the minutes she'd received from the board secretariat, so all that was left was binding them and getting seals of approval from each director, Yukiya-san included — but since she had a visit planned to Yukiya-san's company tomorrow anyway, she'd asked me to prepare it ahead of time so she could bring it along.
 
-　When I switched on my PC, several emails had arrived. I’d start by checking my messages. Just as my gaze slid over the inbox, my heart leapt as if seized.
+Booting up my computer, several emails had come in. Let's start with those first. Just as I let my eyes drift over the inbox — my heart lurched, seized, sudden.
 
 "...Why..."
 
-My lips trembled, and the words slipped out. Only the sound of my breathing echoed in the deathly quiet president's office.
+My lips trembled, the words slipping out before I could stop them. In the hushed, silent president's office, only the sound of my own breathing echoed.
 
-　At the very top of the inbox sat an email from a sender I'd never received one from before. The time stamp showed this morning.
+At the very top of the inbox sat an email from a sender I'd never once received a message from before. Sent this morning.
 
-The sender's name was — Kitakami Shinji.
+Sender's name: Kitagami, Shinji.
 
-Why, I wondered, when we hadn't even exchanged business cards? But it was simple.\
-Using the employee search function on the group's shared intranet, finding an email address was easy.
+We'd never even exchanged business cards — why would he — but the answer was simple.\
+Using the group's shared intranet employee search function, finding an email address is trivially easy.
 
-With trembling hands, I clicked on the received email.
+Hands trembling, I clicked open the received email.
 
-—Good work today. I need to speak with you. I'll be waiting at this hotel's bar lounge at 19:00 tonight. It's work-related, so I absolutely need you to come. Keep it from Yui. Cheers.
+—Thanks for your hard work. There's something I'd like to discuss, so I'll be waiting tonight at 7 PM, at this hotel's bar lounge. It's about work, so please, absolutely come. Keep this from Yui. Thank you.
 
-The email contained a URL for the hotel. It wasn't our hotel — meaning, despite claiming it was work, he wanted to discuss something he didn't want anyone else to hear.\
-This was clearly a personal message. It didn't look anything like a business email.
+An unfamiliar hotel's URL was attached to the email. Not our own hotel — meaning, despite calling it "work," this is something he doesn't want anyone else overhearing.\
+This is, unmistakably, a personal matter. It didn't look like a business email at all, not in the slightest.
 
-What should I do? Should I tell Yui-san? Or not? I'm torn. I sighed, 'Hmph,' and instinctively pressed my fingers to my forehead.
+What do I do. Should I tell Yui-san, or not. I hesitated. Letting out a sigh, I pressed a hand to my forehead, unable to stop myself.
 
-I knew it. Back then, I'd vaguely sensed it, but — nine times out of ten, Kitakami-san has noticed our relationship.
+Just as I'd suspected. That day, I'd vaguely sensed it — and now, near certainty. Kitagami-san has, almost surely, figured out our relationship.
 
-I clutched the necklace at my throat. It's alright. There's no need to be afraid. I mustn't run away. I have to stay strong.
+I gripped the necklace at my chest, tight. It's fine. No need to be afraid. I mustn't run. I need to steady myself.
 
-　I knew from the start that a day like this would come.\
-I simply couldn't wait those few months until spring.\
-Even knowing our relationship wasn't permitted yet, I still wanted her love, right now, immediately.
+I'd already braced myself for a day like this coming, right from the very start.\
+I simply couldn't wait out those few remaining months until spring.\
+Knowing, even then, that this relationship still wasn't something the world would forgive — even so, I'd wanted her love, right then, immediately.
 
-Back then, I resolved to accept all the guilt and punishment.
+*
 
-Now, at this point — I won't back down.
+Back then, I'd already decided — I'd accept it all. Every sin, every punishment, whatever came.
+
+There's no room, at this point, to suddenly lose my nerve.

@@ -1,205 +1,208 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 80
+nav_order: 8
 parent: Second year as a working adult, winter
-sequence: 97
-title: "Episode 92: Yui-san, you really do adore me, don't you?"
+sequence: 96
+title: "Episode Ninety-Two: Yui-san, You Really Do Love Me So Much"
 ---
-Episode 92: Yui-san, you really do adore me, don't you?
+## Episode Ninety-Two: Yui-san, You Really Do Love Me So Much
 
-We walked hand in hand along the promenade towards the hotel, gazing at the illuminations decorating the tree-lined avenue.
+\
+Watching the illuminations decorating the tree-lined path, hand in hand, we walked the promenade toward the hotel.
 
-Just before the full onset of winter, as the weather presenter on the morning news programme I watch every day had predicted, this winter was truly bitterly cold. It might well be the coldest winter since I returned to Japan.
+Just before proper winter set in, the weather forecaster on the morning news show I always watch had said it — and true to his word, this winter really had been brutally cold. Maybe the coldest since I came back to Japan.
 
-　Yet today, I felt so light-hearted, as if walking on clouds, that the winter chill hardly mattered.\
-The tiny snowflakes that had been falling intermittently since earlier melted away upon touching the ground, adding colour to this Christmas night.\
-My exhaled breath turned white and dissolved into the air.
+But tonight, that winter chill barely registered at all, and I felt almost like I was walking on clouds, giddy.\
+Tiny snow flurries, drifting on and off since earlier, landed on the ground and melted away, slow, coloring the Christmas night.\
+My breath came out white, dissolving into the sky.
 
-Perhaps it was the warmth transmitted through our joined hands. My heart remained steadily, gently warm.
+Maybe it's the warmth traveling through our joined hands. My heart's felt warm this whole time, gentle, steady.
 
-　During those four empty years between us, I spent every Christmas Eve alone.\
-But now, Yui-san is beside me. If I look over, there you are, right there, gazing at me with such tenderness.
+Through the four blank years between us, I always got through Christmas nights alone.\
+But now, Yui-san's right beside me. I only need to glance over, and there you are, looking at me with such fondness.
 
 "...Hey, Yui-san."
 
-"Hmm?"
+"Mm?"
 
-"You must have been incredibly busy today, yet you made time for me... Thank you."
+"You must have been so busy today, and yet you made time... thank you."
 
-"I haven't done anything worthy of thanks. I just wanted to spend time with you, Kanata."
+"Nothing to thank me for. I just wanted to spend the day with you."
 
-She said it so casually, but I know how much she had to squeeze into her schedule to be with me tonight.\
-I'm glad I became her secretary. If I hadn't, I might never have realised how much she was doing for me.
+Said so easily, but I know exactly how much Yui-san packed into her schedule just to make tonight happen.\
+I'm glad I became her secretary. If I hadn't, I might never have noticed just how much she does for me.
 
-"Hehe... Yui-san, you really do adore me, don't you?"
+"Fufu... Yui-san, you really do love me so much."
 
-　When I teased her like that, her dark eyes, reflecting the illumination lights, fixed on me and narrowed gently.
+Saying it, teasing, her black eyes, catching the glow of the illuminations, looked steadily at me and narrowed, gentle.
 
-"That's nothing new, is it? Ever since we were students, I've always loved Kanata."
+"That's nothing new, is it? Since college, right up to now, I've always loved you, so much."
 
-I knew she'd say that. Overjoyed, I smiled too.
+I'd known she'd say something like that. Happy, I laughed too.
 
-I recalled that Christmas four years ago. Back then, I was already in love with Yui-san.
+I thought back to that Christmas, four years ago. Back then, I'd already fallen for Yui-san.
 
-　But back then, you weren't my girlfriend, and you belonged to no one.\
-That fact squeezed my inexperienced heart, leaving a memory that's bittersweet, a little painful, and just a touch bitter.
+But you weren't my girlfriend then, and you never became anyone's, not really.\
+That fact, weighing on the heart of someone hopelessly clueless about love, remains, even now, a memory both sweet and painfully bitter.
 
-"When I was at school, I always thought Yui-san was just teasing me..."
+"Back in college, I always thought you were just teasing me..."
 
-"Eh? I did tell Kanata I liked you, didn't I?"
+"Eh? I told you I loved you, properly, didn't I?"
 
-"I couldn't believe that. You clearly said you weren't going to have a girlfriend... Yui, you were always swapping out different girls to play with, hardly ever coming home. You were always crashing at other girls' houses."
+"I could never believe it. You'd said, plainly, you'd never make a girlfriend... And you kept swapping girls, playing around, barely ever coming home. Always crashing at some other girl's place."
 
-Just remembering it made me feel complicated. When I pouted my lips accusingly, Yui laughed evasively.
+Just remembering it stirs up complicated feelings. Lips pursed, accusing, Yui-san laughed, deflecting.
 
-"Was I? But I don't think I was seeing anyone else by Christmas, though..."
+"Did I? But I don't think I was seeing anyone else, right before Christmas..."
 
-"Really? Then... Yui, when did you start liking me? What was the trigger?"
+"Really? Then... Yui-san, when did you actually fall for me? What was the reason?"
 
-Back in school, Yui always told me things like "I like you" or "you're special", but she was also seeing other girls at the same time. I had no idea how serious she really was.
+Back in college, you always told me I was "special," that you "liked" me — but you were seeing other girls at the same time, so I never had any way of knowing how serious you really were.
 
-　Maybe she said the same thing to everyone. The truth was, that unease never quite left me. Wanting to confirm my suspicions, I asked.
+Maybe you said the same thing to everyone. That unease had never fully left me. Wanting to finally settle it, I asked.
 
-"The trigger? Hmm... If you tell me when you started noticing me, I'll tell you mine."
+"The reason, huh. Hmm... if you tell me when you started noticing me, I'll tell you too."
 
-"Eh?"
+"Eh."
 
-When did I start noticing her...?
+When did I start noticing her — ?
 
-Asked like that, it was difficult. Noticing her... I probably always had. Quite early on, actually.
+Asked that, it's a hard one. I think... probably the whole time. And, honestly, from pretty early on.
 
-　Having thought that far, I realised that although I was the one who’d asked the question, somehow the focus had shifted. No good. To avoid getting caught up in Yui-san’s rhythm, I hastily shook my head from side to side.
+Thinking that far, I realized — I'd been the one asking the question, and somehow it had gotten turned right back around on me. Not good. Careful not to get swept along at her pace, I scrambled to shake my head, side to side.
 
-"That... is a secret."
+"That's... a secret."
 
-"Eh? Why? Tell me. When did you start liking me, Kanata?"
+"Ehh? Why? Tell me. When did you fall for me?"
 
-"No way, I'm not telling."
+"No, I won't say."
 
-I turned away, hiding my embarrassment, as she beamed happily.\
-Because telling her felt a bit awkward. "That long ago?" I thought she might laugh at me.\
-If I told her, Yui-san would surely be delighted, but now wasn't the right time.\
-In this atmosphere, I felt too shy to speak properly.
+Smiling, so happily, delighted, I turned away, hiding my embarrassment.\
+Because telling her that felt a little too embarrassing. I felt like she might laugh — *that early?*\
+Telling her would surely make her happy, but the timing doesn't have to be now.\
+In this kind of atmosphere, I don't think I could manage to say it properly, too flustered.
 
-"If you want to know, you tell me first, Yui-san."
+"If you want to know, tell me first."
 
-She squeezed the hand she held in her pocket, digging her nails in sulkily.
+Gripping our joined hands tight inside her pocket, I dug my nails in, sulking.
 
-Sometimes, I get this overwhelming urge to ask what it is about me she likes. I want her to list every single thing she can think of, beg her to tell me all of them.
+Sometimes, I get this sudden, overwhelming urge to ask exactly what she likes about me. Wanting her to list every single thing she can think of, wanting to beg her to tell me all of it.
 
-I know I couldn't possibly make such a troublesome request, but even so, I wanted to hear what made you fall for me in the first place.
+I could never actually ask for something that troublesome, but I still wanted to hear, at least, what had made her fall for me in the first place.
 
-You always tell me you like me, but even so, I want to hear those words again and again. I want to hear them over and over. Those words, 'I like you', meant only for me.
+She always says "I love you" — and yet, even so, I want that word more, and more. However many times, I want to keep hearing it. That "I love you," meant only for me.
 
-Back in my school days, I think I was a bit more modest. But now, I can't stop myself from becoming more greedy.
+Back in college, I think I was a little more modest about it. But now, I can't stop this growing greed in myself.
 
-"...Ever since we first met at the airport, I thought you were a cute girl. Living together, it would've been impossible not to fall for you. Kanata, you're just so incredibly cute, it's unbearable. Before I knew it, I'd fallen for everything about you."
+"...I thought you were cute, from the very first time I saw you, at the airport. Living together, there was no way not to fall for you. You're just so unbearably cute, Kanata. Before I knew it, I'd fallen for everything about you."
 
-"...Hmm, I see."
+"...Hmm, is that right."
 
-I lowered my head so Yui couldn't see my face, forcing my voice to sound utterly uninterested, just like always.\
-　To that, Yui-san poked my cheek with the finger not holding mine and laughed.
+Ducking my head so she couldn't see my face, I forced out my voice, casual, disinterested, matching my usual tone as carefully as I could manage.\
+Watching me, Yui-san poked my cheek with her free hand and laughed.
 
-"Oh... Are you blushing? You asked me yourself, yet your face is bright red."
+"Wait... are you maybe blushing? You're the one who asked, and your face is bright red."
 
-"I'm not blushing...!"
+"I'm not blushing, not at all...!"
 
-I was just a bit surprised, never having imagined she'd thought I was cute from the start.
+I'd never once imagined she'd found me cute from the very start, so I was just a little surprised, that's all.
 
-　I puffed out my cheeks and squeezed her hand tightly. Yui-san laughed, saying, "Ouch, ouch!"
+Puffing my cheeks out, I squeezed her hand tight, and Yui-san laughed, "ow, ow."
 
-"So, what about you, Kanata? Won't you tell me?"
+"So, Kanata? Won't you tell me?"
 
-She nudged my shoulder with hers, making my body sway. I turned my face away abruptly, looking the other way, as if resisting.
+Shoulder bumping mine, my whole body swayed. Resisting, I turned my face away, pointed, refusing to look at her.
 
-"...I'll tell you another time. Not today."
+"...I'll tell you some other time. Not today."
 
-"Eh? That's not fair, Kanata. You said you'd tell me if I said it first!"
+"Ehh? That's not fair, only you get to hold back. You said you'd tell me if I went first."
 
-Ignoring her discontented voice, I walked on.\
-We'd soon pass through the tree-lined avenue sparkling with illuminations. The hotel we were heading for was just a little further.
+Ignoring her displeased voice, I kept walking.\
+The tree-lined path, glittering with lights, was nearly behind us now. Not much further to the hotel.
 
 ＊＊＊
 
-　The night view of Tokyo from the high-floor restaurant was, unsurprisingly, just as dazzling as the one from our company's flagship hotel.
+The Tokyo night view from the high-rise restaurant, expected as it was, glittered no less beautifully than the view from our own celebrated hotel.
 
-The flawlessly clear window reflected the orange lighting and my own reflection, clad in the black dress Yui-san had gifted me.
+In the spotless, gleaming windows, orange lighting reflected back, along with my own figure, dressed in the black gown Yui-san had bought me.
 
-Yui-san had given me everything for this occasion: the coat, the dress, the shoes, the bag – the whole ensemble.
+Yui-san had given me the coat, the dress, the shoes, the bag — all of it, together, as a present.
 
-When I opened the fitting room curtain, Yui-san smiled so genuinely and kept saying how lovely it was — so I somehow got carried away and cheekily accepted the gift after all.
+Opening the fitting room curtain, Yui-san had smiled, so genuinely happy, calling me "cute" over and over — and, caught up in that, I'd shamelessly ended up accepting the whole gift.
 
-I have no idea how much it all cost. Honestly, I can't even begin to guess.
+I have no idea what the total came to. Honestly, I can't even imagine.
 
-While I was eating the chocolate the shop assistant had offered us to pass the time, Yui-san had quietly settled the bill.
+While I ate the chocolate a staff member had offered during the wait, Yui-san had, without my noticing, already finished settling the bill.
 
-　Just having you there, smiling and saying "How lovely" as you looked at me all dressed up, was enough to make me feel utterly, hopelessly happy.
+Just having you here, smiling, calling me "cute" while looking at me dressed up like this, is enough to make me hopelessly, helplessly happy.
 
-When we sat down at the restaurant, Yui-san ordered a sweet champagne she thought I might enjoy, saying it was a special occasion since it was Christmas.
+*
 
-Back in my student days, I didn't know much about table manners, but since joining this company – which also runs restaurants – I've studied the basics. So I think I'll be fine today.
+Once we were seated at the restaurant, Yui-san, saying it was Christmas after all, ordered a sweet champagne she thought I'd be able to manage.
 
-　I sat up straighter than usual and draped the pure white table napkin over my lap.
+Back in college, I hadn't known much about table manners, but since joining this company — which runs a restaurant business too — I'd studied the basics properly. So I think I'll be fine tonight.
 
-I looked at her across from me. Once again, I thought, Yui really is a remarkable person.\
-Back in university, she often dressed like a typical student.\
-Even now, she doesn't have that typical rich girl vibe about her day-to-day.
+Sitting straighter than usual, I laid the pure white table napkin across my lap.
 
-　Yet, the moment she steps into a formal setting like this, everything suddenly clicks into place perfectly.\
-It’s likely down to her innate looks and good upbringing, but that ability to adapt instantly to any situation, like a chameleon, might be a kind of talent.
+I looked at her, across from me. Yui-san really is such a strange person, I found myself thinking, all over again.\
+Back in college, she'd often dressed like an ordinary college student, casual.\
+Even now, day to day, she doesn't especially carry that "typical wealthy young lady" air.
 
-"What a lovely restaurant... When you work in the same industry, do you ever slip into work mode at times like this?"
+And yet, the moment she steps into a formal setting like this, everything about her falls into place, instantly.\
+Probably thanks to natural looks and good upbringing, but that chameleon-like ability to adapt instantly to any setting might be its own kind of talent.
 
-It suddenly occurred to me.\
-　I suppose I can be one thing, but Yui-san is the president; she's well known at her own company's hotel, so naturally she can't go there.\
-That's probably why she went to the trouble of booking a hotel belonging to another company. But I couldn't help wondering just a little – is Yui-san actually enjoying herself?
+"What a lovely restaurant... Working in the same industry, does coming to a place like this ever put you in work mode?"
 
-Feeling a touch uneasy, I asked her that. Yui-san looked straight at me and smiled.
+I found myself wondering, suddenly.\
+Setting me aside — Yui-san, as president, is a recognizable face, so of course she couldn't go to our own company's hotel.\
+Which is surely why she'd booked a competitor's hotel instead — but I found myself a little curious whether Yui-san herself was actually enjoying the evening properly.
 
-"Hmm, absolutely. I'm only thinking about you, Kanata."
+A little anxious, I asked, and Yui-san looked straight at me and smiled.
 
-You say such things so casually, it makes me flush without meaning to. Oh dear, even if the lighting in here is warm-toned, being hit with such a pick-up line head-on means my embarrassment will be obvious in an instant.
+"Nnh, not at all. I'm only thinking about you, Kanata."
 
-"...Your womanising ways remain unchanged, Yui-san."
+Said so easily, I couldn't help flushing red. Ugh, however warm-toned the restaurant lighting is, being told something that flirtatious, straight to my face, will surely give away how flustered I am, instantly.
 
-I realise that wasn't the nicest way to put it, but perhaps because she knows my temperament well, Yui-san doesn't seem particularly bothered and just laughs.
+"...Your skirt-chasing habit hasn't changed a bit, has it, Yui-san."
 
-"Do you dislike being told things like this, Kanata?"
+I know it wasn't a cute thing to say, but Yui-san, knowing my personality well enough by now, didn't seem to mind at all, and laughed.
 
-Those eyes, dark as the night sea, pierced straight through my heart.
+"Do you hate hearing things like that, Kanata?"
 
-Perhaps I was acting strangely today.
+Those black eyes, like a nighttime sea, pierced straight through my heart.
 
-Was it the atmosphere of this restaurant? The breathtaking night view? Or this dress enveloping me...? Every time Yui-san said something, it felt like my heart was being squeezed, a tight ache deep within my chest.
+Maybe something's off with me tonight.
 
-"...Not really. I don't mind. As long as you don't say it to anyone else..."
+Whether it's the atmosphere of this restaurant, or the spectacular night view, or this dress wrapped around me... every time Yui-san says something, my chest tightens, aching, like my heart's been seized.
 
-My voice trailed off into a mumble at the end, so I took a sip from my champagne glass to cover it up.
+"...I don't hate it, exactly. Just, don't say it to anyone but me..."
 
-The fizzing carbonation on my tongue, the fruity aroma. Ah, it's easy to drink. Even I can enjoy this. As expected of Yui-san, she knows my tastes so well.
+My voice trailed off into a mumble toward the end, and, covering for it, I brought the champagne glass to my lips.
 
-　Perhaps relieved that I drank without hesitation, Yui-san also picked up her glass.\
-Bordeaux manicure on neatly trimmed, rounded nails. My gaze became transfixed on those long, white fingers.
+Bubbles popping on my tongue, a fruity aroma. Ah, this is easy to drink. Even I could enjoy this properly. As expected of Yui-san — she really does know my taste well.
 
-　Suddenly, memories of last night flashed back. Like a conditioned reflex, a heat and ache stirred deep within my stomach.\
-Why? Was it the alcohol? I couldn't tell. But something felt off. I hurriedly tore my gaze away from those fingers.
+Apparently relieved I could drink it without resistance, Yui-san picked up her own glass too.\
+Smoothly rounded nails, done in a burgundy polish. My gaze caught, helpless, on those white, long fingers.
 
-Whether she knew or not, Yui-san narrowed her eyes slightly and smiled bewitchingly.
+Suddenly, last night's memory flashed back. Reflexive, something deep in my stomach warmed, ached.\
+Why — is it the alcohol? I don't know. But something feels off. Flustered, I tore my eyes away from her fingers.
 
-　Her intense, heated gaze, reminiscent of those moments in bed, made me shiver and catch my breath.
+Whether she noticed or not, Yui-san narrowed her eyes and smiled, alluring.
 
-What should I do? I find myself conscious of Yui-san more than usual.\
-It's strange. We're just going out for dinner – yet I find myself thinking about what might come next.
+That heated, intense gaze — exactly like when we're in bed — sent a shiver through me, and I caught my breath.
 
-"...Somehow, you seem more demure today, Kanata. Even cuter than usual."
+What do I do. I'm more aware of Yui-san than usual, tonight.\
+Strange. We're just about to have dinner, and yet — I find myself thinking ahead, to what comes after.
 
-Feeling as if she'd seen straight through me, I didn't know how to respond and let my gaze wander.
+"...Somehow, tonight's Kanata feels extra demure, extra cute."
 
-"I've booked a room tonight... you're staying, aren't you?"
+Feeling like she'd seen straight through my thoughts, I didn't know how to answer and let my gaze wander.
 
-That tone, as if she never expected refusal, was so typical of Yui-san.
+"I booked a room for tonight... you're staying, right?"
 
-But — maybe it was good she invited me so insistently today.
+Her tone made it clear she never considered the possibility of being refused — so exactly like Yui-san.
 
-I bowed my head and gave a small nod. Yui-san, right in front of me, smiled happily.
+But — maybe being pulled along like this, forceful, was exactly what I wanted tonight, after all.
+
+Ducking my head, I gave a small nod, and, across from me, Yui-san smiled, happy.

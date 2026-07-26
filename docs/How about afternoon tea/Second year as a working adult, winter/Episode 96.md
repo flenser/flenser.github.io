@@ -1,192 +1,201 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 120
+nav_order: 12
 parent: Second year as a working adult, winter
-sequence: 101
-title: "Episode 96: I love you so much that I don't mind even if it's like that"
+sequence: 100
+title: "Episode Ninety-Six: I Love You Enough That Even That Would Be Fine"
 ---
-Episode 96: I love you so much that I don't mind even if it's like that
+## Episode Ninety-Six: I Love You Enough That Even That Would Be Fine
 
-After an excruciatingly long flight, the aeroplane touched down on the runway.\
-Following the arrival announcement, I retrieved my carry-on luggage from the overhead compartment and stretched my stiffened body with a deep sigh.\
-It had been two years since my last visit to London Heathrow Airport.\
-I walked briskly along the familiar route, now etched into my memory from countless previous trips.
+\
+After a flight long enough to make your head spin, the plane finally touched down on the runway.\
+Once the arrival announcement finished, I pulled my carry-on from the overhead bin and stretched my stiff, cramped body, long and slow.
 
-　Switching my phone out of flight mode, I found a message from my younger brother, Kaname.\
-It seemed he'd got his driving licence while I was away and was coming to collect me from the airport. When I returned to Japan to start university, Kaname was still in secondary school; now he was twenty and a university student himself.
+London Heathrow, for the first time in two years for me.\
+I'd already flown through here so many times that my feet carried me automatically along the route, familiar, without a single wrong turn.
 
-　The jet lag had me utterly exhausted, though it was still just past noon here.\
-After collecting my suitcase, I headed towards the arrivals hall, stifling yawns, where my brother stood waving at me, looking a whole size bigger than I remembered.
+Switching off airplane mode on my phone, a message had come in from my brother, Kaname.\
+Apparently he'd gotten his driver's license while I was away, and was picking me up from the airport. Back when I'd returned to Japan for college, Kaname had still been in middle school — now he was twenty, in college himself.
 
-"You've grown again since we last met... Have you perhaps overtaken Dad in height?"
+Jet lag made me unbearably sleepy, but here, it was still just past noon.\
+Collecting my suitcase, fighting back a yawn, I headed for the arrivals lobby, and there, a full size bigger than I remembered, my little brother waved at me.
 
-I called out to his back, rolling my suitcase along as he walked ahead, now unrecognisably tall.\
-His silhouette in a black bomber jacket and jeans was that of a fully grown man, looking even more robust than two years prior.
+*
 
-"Yeah, I have. Dad was really gutted about it. And I'm still growing taller, you know~"
+"You've gotten even taller since I last saw you... did you pass Dad's height?"
 
-He turned and smiled, and I could still see a hint of his childhood in his face, but boys really do grow up fast.\
-The hand holding the suitcase was now gnarled and knobbly, and remembering the small hand from my memories made me feel a little wistful.
+Rolling his suitcase along ahead of me, his back had grown unrecognizably broad, and I called out to it.\
+Black bomber jacket, jeans — from behind, he looked every bit a grown man now, noticeably more solid than two years ago.
 
-When we reached the car park, I spotted the familiar vehicle. The well-used Land Cruiser. Dad's beloved car, driven for years.\
-We're past the age for family outings together, yet Dad still clings to this vehicle, cherishing it.
+"Yeah, exactly. Dad was really annoyed about it. And I'm still growing, too~"
 
-Who'd have thought the day would come when Kaname would drive this car? — As a child, I never imagined such a distant future.
+Turning back to grin at me, I could still catch a faint trace of the boy he used to be — but boys really do grow up fast.\
+The hand carrying my suitcase had gone knuckled, rough — remembering his small hand from before, something in my chest ached, faintly bittersweet.
 
-Compared to Yui-san's car, it sat higher off the ground. Climbing into the passenger seat with its excellent view, a familiar scent filled the air.
+Reaching the parking lot, I spotted a familiar car. A well-worn Land Cruiser. My father's beloved car, the same one he's driven for years.\
+We're past the age of family outdoor trips now, but my father's still stubbornly attached to this car, keeps driving it, treasuring it.
 
-"Yō, drive carefully, alright?"
+Kaname, driving this car — I never once imagined, back when he was small, that a day like this would come.
 
-Despite being a paper driver herself, she put on this big sister act. Hearing that, Yō pouted, lips pursed.
+Compared to Yui-san's car, this one sits noticeably higher, and climbing into the passenger seat with its clear view all around, a nostalgic scent reached me.
 
-"It'll be fine, don't worry. You could even sleep if you want. Come on, sis, you're actually tired, aren't you? Every time you come back home, you just lock yourself in your room for days, sleeping all the time."
+"Kaname, drive carefully, okay?"
 
-"Look, Yō, you might not understand since you hardly ever come back to Japan, but jet lag is really tough. There's a nine-hour time difference, you know."
+Playing the big-sister role despite being a paper license holder myself, Kaname pouted, faintly displeased.
 
-Though I teased him, I relaxed into the seat, reassured by Yō's confident driving.\
-Watching the familiar streetscape flow past the window, drowsiness gradually overtook me, and before I knew it, I'd fallen into a deep sleep.
+"I'll be fine, don't worry. You can sleep if you want, honestly. You're actually tired, aren't you, sis? Every time you come home you end up holed up in your room, sleeping the whole time."
+
+"You know, Kaname, since you never come back to Japan, you probably don't get it, but jet lag is genuinely rough. Nine whole hours of time difference."
+
+Bantering lightly, but relieved by how confidently he drove, I let my body sink back against the seat.\
+Watching the nostalgic streets slide past the window, drowsiness crept in, gradual, and before I knew it, I'd fallen into a deep sleep.
 
 ＊＊＊
 
-My homecoming after two years ended up just as Kaname had predicted.
+My first trip home in two years turned out exactly as Kaname had predicted.
 
-As always, the jet lag stubbornly refused to lift. For the first few days of my week-long visit, I spent most of my time cosy in bed.
+Jet lag, as always, refused to clear easily, and I spent the first several days of my one-week trip home cozying up to my bed instead.
 
-　I exchange messages with Yui-san every day.\
-When we're apart, the longing to see her swells boundlessly. On lonely nights, I hugged Shachi-kun as if to distract myself, thinking of her as I drifted off to sleep.
+I message Yui-san every single day.\
+Being apart, the wish to see her keeps welling up, endless. On lonely nights, I hug my orca, as if to distract myself, and fall asleep thinking of her.
 
-The New Year is fast approaching.
+The new year drew close.
 
-Having nothing to do, I lazed around in my bed without even having breakfast. Hearing a knock at the door, I lifted my head from the pillow.
+Nothing much to do, I'd skipped breakfast and was lounging on my bed when I heard a knock at the door and lifted my face from the pillow.
 
-The door creaked open slightly, and Father peered through the gap.
+The door opened, modest, with a small creak, and my father peeked his face through the gap.
 
-"Kanata, fancy lunch together? I've bought sandwiches and scones too."
+"Kanata, want to have lunch together? I got sandwiches, and scones too."
 
-Father said cheerfully, smiling happily. I nodded and got up from the bed.
+My father said it, smiling, delighted. I nodded and got up from bed.
 
-　After eating the sandwiches, while I brewed tea for two, Dad took scones from the paper bag and prepared strawberry jam and clotted cream.\
-Mum and Kaname seemed to be out too; it was just Dad and me at home.
+*
 
-Two teacups on the dining table. Since it was after lunch, I chose Earl Grey.
+After the sandwiches, while I brewed tea for the two of us, my father pulled the scones from the paper bag and set out strawberry jam, then clotted cream.\
+My mother and Kaname were both out, apparently, so it was just my father and me at home.
 
-　The scent of bergamot reminded me of Christmas just the other day. The body soap used in the bath amenities – it smelled lovely, didn't it?
+Two teacups lined up on the dining table. Since it was after a meal, I'd chosen Earl Grey.
 
-Even within the most ordinary days, Yui-san's presence was always woven in, and whenever I remembered her in a fleeting moment, it would set my heart aflame.
+The scent of bergamot brought Christmas, just recently passed, rushing back to memory. The body wash used in the bath amenities — such a lovely smell, that.
 
-"I never imagined you'd end up working at Yui-chan's company, Kanata. I was genuinely surprised when I first heard."
+Even in the middle of the most ordinary moments, Yui-san's presence always seems woven in somewhere, and every time some small trigger brings her back to mind, it sets my chest burning.
 
-　Spreading jam on a scone, Father smiled happily.
+*
 
-Four years ago, when I returned to London after parting ways with Yui-san, Father was visibly dejected, his shoulders slumped in a way anyone could see.
+"Never imagined you'd end up working at Yui-chan's company, Kanata. I was genuinely shocked when I first heard."
 
-This was the same Father who had boasted so emphatically that "they'd definitely get along." He surely never dreamed his best friend's daughter and his own daughter wouldn't hit it off.
+Spreading jam on his scone, my father smiled, happy.
 
-　But actually, contrary to Dad's expectations, Yui and I didn't just get along – we clicked so perfectly we ended up falling in love.
+Four years ago, when I'd parted from Yui-san and come back to London, my father had visibly, unmistakably drooped, dejected, for anyone to see.
 
-"Getting a job at Yui's company was pure coincidence. Now I'm working hard as a secretary. Every day is really enjoyable."
+He'd been the one who'd insisted, so confidently, "you two are bound to get along" — surely he never dreamed, not in his wildest imagination, that his own daughter and his best friend's daughter simply wouldn't click.
 
-"I'm relieved to hear you're enjoying your work. But please come home at least once a year. I worry when I don't see you often. Mum was saying things like, 'Maybe Kanata doesn't want to come back because she found someone nice in Japan too'... But that's a different matter altogether. Even if you did find a lover."
+But as it turned out, exactly as my father had predicted, we hadn't just gotten along — we'd fit together so perfectly it became something far more than friendship.
 
-Father crossed his arms and looked at me with a face that clearly showed he wasn't convinced.
+"It really was pure coincidence, ending up at Yui-san's company. I'm working hard there now, as her secretary. It's genuinely fun, every single day."
 
-It suddenly occurred to me. Perhaps now was the chance to talk.\
-That was precisely why I'd travelled all the way back from Japan, taking over half a day.
+"I'm relieved to hear you're enjoying the work. But please, come home at least once a year. I worry, not seeing your face enough. Your mother even said, 'maybe Kanata found someone nice in Japan and doesn't want to come back' — but that's a separate matter entirely, even if you do have a partner."
 
-"Well, about that... I have something I want to tell you, Father."
+My father crossed his arms, looking genuinely unconvinced, and said it to me.
 
-I clenched my hands tightly in my lap.
+A thought crossed my mind, suddenly. Maybe now, if ever, is the chance to actually say it.\
+Because that's exactly what I'd wanted to tell him — the whole reason I'd flown all this way home, over half a day, from Japan.
 
-Suddenly, I thought, Huh? That's odd.
+"Actually, about that... there's something I want to tell you, Dad."
 
-Despite having told Yui-san so confidently just now that "it's fine," for some reason my hands were shaking, and my throat felt tight and painful. What was this feeling?
+I gripped my hands tight on my lap.
 
-—Could I possibly be nervous?
+Suddenly, strangely, something felt off.
 
-　I met his gaze, those light brown eyes the same colour as mine. Father gently placed his teacup on the saucer and looked at me intently.
+I'd told Yui-san, so confidently, "it'll be fine" — and yet, for some reason, my hands were trembling, my throat tightening, painfully. What is this feeling?
+
+—Am I... nervous, maybe?
+
+I looked at those eyes, the same pale brown as mine. My father set his teacup down gently on its saucer and looked at me, steady.
 
 "Something you want to tell me?"
 
-Asked in that gentle voice, I nodded. Sweat beaded on my clenched palms, and I could feel a faint tremor running down my legs, even though I wasn't putting any weight on them.
+Asked so gently, I nodded, small. My gripped palms had gone damp with sweat, and, without even tensing them, I could feel my legs faintly trembling too.
 
-"Yes... um... well..."
+"Yeah... um... so..."
 
-　Noticing my trembling, quiet voice, perhaps sensing my nerves, Father lowered the corners of his eyes and smiled.
+My voice, shrunk small, trembling — sensing my nerves, my father's eyes crinkled, and he smiled, gentle.
 
-During the time we hadn't seen each other, it seemed the wrinkles around his eyes had deepened just a little more than I remembered.\
-But that gentle gaze remained unchanged, just as it had been since I was a child.
+In the time we'd been apart, I thought his eyes carried a few more lines than I remembered.\
+But that gentle gaze hasn't changed at all, not since I was a child.
 
-"It's alright, take your time. Calm yourself down first, then tell me."
+"It's okay, take your time. Talk it through once you're calm."
 
-It was a familiar tone of voice.
+A voice I knew so well, nostalgic.
 
-Childhood memories resurface. When soothing me as I wept, Father would always lift me onto his lap, pat my back gently, and speak softly like this until I calmed down.
+Childhood memories came flooding back. Whenever I cried, inconsolable, my father would always sit me on his lap, pat my back, gentle, and talk to me in exactly this soft voice, until I settled.
 
-I draw a deep breath, filling my lungs completely, then exhale slowly. My feelings settle a little.
+I drew a deep breath, filling my lungs, and let it out, slow. Something in me eased, just a little.
 
-It's alright.\
-I look straight at Father once more.
+It's fine.\
+Once more, I looked straight at my father.
 
-"Father, I... I have someone I'm seeing. they're truly kind, wonderful, and love me with all their heart. I love them so much, and I want to spend my life with them."
+"Dad, I... I have someone I'm dating. Really kind, wonderful, someone who loves me from the bottom of their heart. I love them so much, and I want to spend my life together with them."
 
-I say it all in one breath. Father, who had simply listened to my words, gave a small nod.\
-His eyes didn't waver at all, as if he had sensed exactly what I was going to say.
+I said it all in one breath. My father, who'd just been listening, nodded, small, once.\
+Almost like he'd already guessed what I was about to say, those eyes never wavered at all.
 
-"I see. Do you want to marry this person, Kanata? Could it be that you came home this time to talk about that?"
+"I see. So, do you want to marry this person? Is that why you came home this time — to talk about that?"
 
-The eyes I met seemed, if only slightly, a little lonely, perhaps even moist.\
-I shook my head side to side at my father's question.
+Looking into his eyes, they seemed, somehow, a little sad, faintly wet.\
+I shook my head, side to side, in answer.
 
-"No. I can't marry them... Because they're a woman."
+"No. We can't marry... because she's a woman."
 
-"Eh? A woman...?"
+"Eh, a woman...?"
 
-Stunned by the sudden confession, Father was speechless.\
-I couldn't blame him. Before meeting Yui-san, I'd never imagined I could fall in love with a woman either.
+Startled by the sudden confession, my father froze, speechless.\
+Understandable, I think. I never once imagined myself falling for a woman, either, until I met Yui-san.
 
-"...Yes. I'm sorry."
+"...Yeah, I'm sorry."
 
-My hands trembled on my lap. I couldn't lift my face.
+My hands, on my lap, trembled, faint. I couldn't lift my face.
 
-　I was absolutely certain Father would understand. He’d always listened to what I had to say, never dismissing me outright.\
-But, when it came to actually telling him, contrary to my heart’s desire, I was overcome by an unimaginable tension.\
-It’s not about logic, this sort of thing. I’m baffled by these mismatched feelings myself.
+I believe, absolutely, my father will understand. He's always listened to what I have to say, never once dismissed me outright.\
+But — actually saying it, contrary to what my heart truly believed, left me seized with a tension beyond anything I'd imagined.
 
-　After a long pause, my father, who had been stiff as a statue, let out a deep sigh.
+This isn't something logic can explain. Even I, myself, was confused by the mismatch in my own feelings.
 
-"I see. A woman, eh... Blimey, that's a surprise."
+After a long stretch of silence, my father, frozen like a statue, let out a breath. "Fuu."
 
-Tentatively, I raised my gaze. My father stroked his clean-shaven chin and leaned back into the chair, his body slumping forward as if exhausted.
+"I see. A woman, huh... well, that's certainly a surprise."
 
-　What would he say? Peering at him, Father met my eyes and offered a smile.
+Tentative, I lifted my gaze. My father rubbed his beardless chin and let his leaning-forward body sink back against the chair, relaxed.
 
-"Kanata, you don't need to say 'I'm sorry'. If it's someone you've come to love, they must be a wonderful person."
+What would he say? Watching carefully, my father looked into my eyes and smiled.
 
-At those words, the taut thread of tension snapped. His warm gaze seemed to seep deep into my heart.
+"Kanata, there's no need to apologize, no need to say sorry. Whoever you fell for must be a wonderful person."
 
-"...Yes. We can't marry, and we can't have children, but I love her so much that I'm fine with that. Just being together makes me truly happy."
+Hearing that, the tension I'd been holding, taut, eased. That warm gaze seemed to soak straight down into the very bottom of my heart.
 
-"Meeting someone you can love so deeply from the heart is rare. It happens once in a lifetime, if at all. Cherish that feeling above all else. It's alright. I won't oppose it. Thank you for telling me."
+"...Yeah. We can't marry, can't have children, but... I love her enough that even that would be fine. Just being able to be together makes me genuinely happy."
 
-The weight lifted from my shoulders, and I nearly collapsed.
+"Finding someone you can love that deeply, from the heart — that's rare. Something that might only come once in a lifetime, if you're lucky. Treasure that feeling above everything else. It's fine. I'm not against it. Thank you, for telling me."
 
-"Thank you, Dad. ...If, in the future, my relationship with someone of the same sex ever causes you any trouble..."
+The strength drained from my shoulders, and I nearly slumped, boneless.
 
-My father stopped me mid-sentence, calling my name, "Kanata."
+"Thank you, Dad. ...If, going forward, dating someone of the same sex ever causes you any trouble..."
 
-"If Kanata is happy, that's all that matters. I don't care what anyone says. No matter what happens, I'll never think it's a bother."
+My father cut me off, calling my name — "Kanata."
 
-It was a voice of conviction, utterly straightforward. Without a trace of doubt, I sensed the gaze of a father who truly cared only for his daughter, and understood that all my worries had been unfounded.
+"As long as you're happy, that's all that matters. I don't care what anyone else says. Whatever happens, I'd never think of it as trouble."
 
-"Next time, bring that girl along. I'm entrusting her with my precious daughter, so I'd like to see her face at least."
+A steady, unwavering voice. Not a single shadow of doubt in it, genuinely, only a father's love for his daughter — and I understood, then, that every worry I'd carried had been unfounded.
 
-Saying that, Father smiled warmly. I couldn't help but smile back, a soft chuckle escaping me.
+"Bring her home sometime. I'm entrusting my precious daughter to her, so I'd like to at least see her face."
 
-"...Yes, thank you. Next time, I'll definitely bring her along. She's incredibly beautiful, so I'm sure you'll be quite taken aback, Father."
+Saying that, my father smiled, bright, and, drawn along, I laughed too.
 
-Just one glance at her face, and he'd surely recognise my lover's true identity immediately.
+"...Yeah, thank you. Next time, I'll definitely bring her along. She's really beautiful, so I think you'll be surprised, Dad."
 
-He absolutely would be astonished.
+The moment he sees her face, even just once, I'm sure he'll instantly realize exactly who my girlfriend actually is.
 
-Because Yui-san is the spitting image of her mother, as if she were a living replica.
+Without question, he'll be shocked.
+
+Because Yui-san looks, unmistakably, almost like a living image of her own mother.

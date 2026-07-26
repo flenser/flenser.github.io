@@ -1,231 +1,238 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 100
+nav_order: 10
 parent: Second year as a working adult, winter
-sequence: 99
-title: "Episode 94: You'd better be a good girl tonight, you know"
+sequence: 98
+title: "Episode Ninety-Four: Better Behave Tonight, Then"
 ---
-Episode 94: You'd better be a good girl tonight, you know
+## Episode Ninety-Four: Better Behave Tonight, Then
 
-From a light, dreamlike drowsiness, consciousness slowly surfaced. The sensation of lips gently pressed against my cheek woke me.
+\
+Slow, drifting up from a soft, floating doze, consciousness gradually surfaced. I woke to the sensation of lips, gentle, pressed against my cheek.
 
-I felt the moist warmth of human skin against my back. Realising I was being embraced from behind, I lifted my face slightly. Yui-san was peering at me with a faint smile.
+Feeling the warmth of skin against my back, damp and soft, I lifted my face slightly and realized I was being held from behind — Yui-san, peering down at me, smiling faintly.
 
-　Clothed in nothing but skin, the touch of bare flesh felt comforting. Just as I relaxed, on the verge of drifting back into a deep, dreamless sleep, a gentle, soothing voice roused me.
+Not a stitch of clothing between us, the bare skin touching mine felt pleasant. Left to myself, I might have drifted right back into sleep, but a gentle, soft voice pulled my consciousness back.
 
 "Kanata, wake up."
 
-Whispered softly in my ear, I blinked several times.\
-Slowly shifting my gaze to the window, I saw it was still dark outside. We were still in the night.\
-　After that, aided by the alcohol, it seemed I’d drifted off for a little while.
+Whispered gently at my ear, I blinked, several times.\
+Glancing slowly toward the window, it was still dark outside — we were still, I realized, in the middle of the night.\
+After everything, combined with the alcohol, I must have fallen into a light sleep.
 
-"Mmm..."
+"Mm, nh..."
 
-"Would you like to take a bath first? Or would you like some cake?"
+"Want to bathe first? Or would you rather have cake?"
 
-As lips gently descended upon my cheek and the nape of my neck, I rebooted my sleep-addled brain.\
-A bath or cake. Both were tempting propositions.
+Accepting the kisses falling gently on my cheek, my neck, I rebooted my still-sleepy brain.\
+Bath, or cake. Both tempting propositions.
 
-"...I'm hungry, but... I'd like to take a bath first."
+"...I'm hungry, but... I want to bathe first."
 
-After quite a serious deliberation, I decided bathing came first.\
-Having done something that made me sweat profusely, the urge to feel clean and refreshed edged out my appetite slightly.\
-If it were just being close to Yui-san, it wouldn't bother me so much, but skin that felt a little sticky didn't mix well with the sheets.
+After genuinely weighing it, I decided to prioritize bathing.\
+We'd worked up quite a sweat, and wanting to feel clean again edged out my appetite, just barely.\
+Pressed close to Yui-san, it hadn't bothered me much, but my slightly sticky skin didn't sit well against the sheets.
 
-"Right then. I'll run the bath."
+"Got it. I'll go run the water."
 
-After gently stroking my hair, Yui efficiently gathered her underwear and dressed.\
-She slipped on a white shirt and left the bed, and I suddenly missed the warmth she'd left behind.
+Stroking my hair gently, Yui-san briskly gathered up her underwear and put it on.\
+Throwing a white shirt over her shoulders, she slipped out of bed, and the sudden absence of her warmth left me faintly wistful.
 
-　Time had passed since dinner, and as the alcohol that had so pitifully shattered my rationality began to wear off, the haze in my head gradually cleared.
+Time had passed since dinner, and, mercilessly, the alcohol that had shattered my composure so thoroughly was starting to wear off — my fogged head clearing, gradually.
 
-I bitterly regretted my actions from hours earlier.\
-I'd stubbornly insisted, "I'm not drunk," but Yui-san's accusation that I'd "had too much" was absolutely correct.
+I reflected, seriously, on my own conduct from the past few hours.\
+I'd stubbornly insisted "I'm not drunk," but Yui-san's warning — "you're drinking too much" — had been absolutely right.
 
-I'd done it again. I sighed and pressed my fingers to my forehead.
+I did it again. Sighing, I pressed a hand to my forehead.
 
-　When drunk, the clingy side of me that I usually suppress with all my might surfaces.\
-Things I'd never normally say become painfully easy to utter with alcohol's help, and just remembering them makes me blush fiercely.
+Drunk, the spoiled, needy side of myself I usually keep firmly suppressed comes right out.\
+Things I could never normally say slip out easily, with a little alcohol's help, and just remembering it makes my face feel hot enough to catch fire.
 
-Drunk sex, for all its passionate goodness that makes you think you might just drift off to heaven, comes with a shame that wells up afterwards unlike anything in ordinary sex.
+Sex while drinking, with reason thrown completely aside, feels passionate enough, in the moment, to make you think you might just float straight up to heaven — but once it's over, the wave of embarrassment that follows is on a completely different scale from ordinary nights.
 
-Why on earth did I say that? I regret it, blushing.\
-Before I started seeing Yui, I thought I didn't have any 'sexual desire'. But I was wrong. I just didn't know anything.
+*Why did I say something like that*, I thought, regretting, flushing red.\
+Before dating Yui-san, I never once thought I had any "desire" of my own. But I was wrong. I simply never knew any better.
 
-　If I could, I'd erase every single word I uttered in this bed from Yui-san's memory.
+If I could, I'd want to erase every single word I'd spilled in this bed, every last one, from Yui-san's memory.
 
-As I was reflecting on this, Yui-san returned from the bathroom.\
-She held a plastic bottle in her hand. With a sharp twist, she popped the cap off and handed it to me.
+While I was busy reflecting like that, Yui-san came back from the bathroom.\
+A plastic water bottle in hand. Twisting the cap open with a small crack, she handed it to me.
 
-"You must be thirsty. Have some water."
+"Thirsty, right? Drink some water."
 
 "Thank you..."
 
-Pulling myself up by the sheets, I hugged my knees as I took it.\
-Truth be told, my throat had been parched since waking. Swallowing the water, a cool sensation slid down my throat and flowed into my stomach.
+Pulling the sheet up as I sat up, I hugged my knees and accepted it.\
+Actually, my throat had been parched since I woke. Drinking the water, a cool sensation traced down my throat, settling into my stomach.
 
-"Sober now?"
+"Sobered up?"
 
 "...Yes."
 
-Pressing my cheek against my knees, as if to hide my flushed cheeks, Yui-san simply smiled at me without saying anything.
+Pressing my flushed cheek against my raised knees, hiding, Yui-san just watched me, silent, and smiled.
 
-　When the bath had filled, we headed to the bathroom together. True to its suite status, the bathroom was astonishingly spacious, its gold accents dazzling like something from a film set.
+*
 
-We fussed over the large bathtub and the bergamot-scented bath amenities, washing each other before finishing our bath.\
-　Truthfully, I wanted to linger longer, but the cake awaited me, and with alcohol in my system, a long soak wasn't wise.\
-After washing away the sweat, we slipped into fluffy bathrobes and took turns drying each other's hair in front of the mirror at the vanity.\
-Her long, glossy black hair was like silk thread; when I ran my fingers through it, it slipped through my fingers as if flowing.
+Once the bath had filled, we headed to the bathroom together. True to being a suite, the bathroom was surprisingly spacious, gold accents here and there catching the light like something out of a movie.
 
-　Before meeting Yui-san, I'd never experienced that fluttering sensation at the sight of a woman's uniquely fine, smooth skin or the soft scent of her hair. But now, I cherish this beautiful black hair from the bottom of my heart.
+Delighted by the huge tub and the bergamot-scented bath amenities, we washed each other and finished bathing.\
+I'd wanted to soak longer, honestly, but the cake was waiting, and with alcohol still in my system, staying in too long wasn't a good idea.
 
-Even when we first met, Yui-san was already complete and beautiful. But at twenty-six, the last traces of the innocence she'd carried through her student days had vanished, replaced by the refined beauty of a mature woman.
+Rinsing off the sweat, slipping into plush bathrobes, we took turns drying each other's hair in front of the vanity mirror.\
+Her glossy long black hair felt like silk thread, slipping smooth between my fingers as I combed through it.
 
-Her refined features are as beautiful as a work of art. Surely, from this point onward, that beauty will only continue to deepen and intensify.
+The fine, smooth texture of a woman's skin, the scent of soft hair — I'd never once been moved by things like that before meeting Yui-san. But now, I love this beautiful black hair from the very bottom of my heart.
 
-I gathered a strand of her flowing hair and kissed it. I felt I finally understood the feeling Yui-san always had when she did that to me.
+Even the first time we met, Yui-san had already been complete, already beautiful — but at twenty-six, whatever faint trace of youthful innocence had lingered from her college years had faded completely, leaving nothing but the refined beauty of a grown woman.
 
-I hope that from now on, I can repay her with just as many, no, even more of those 'happy things' she has done for me until now.
+Her fine features are beautiful, like a work of art. Surely, that beauty will only keep growing, from here on.
 
-　The love that had once scorched my heart, without losing its heat, had unnoticed transformed into a strong, deep affection.\
-I realised for the first time that if the intense longing for another is love, then the desire to give to them is called affection.\
-The affection Yui-san had continually given me filled this heart ceaselessly, granting me happiness that overflowed.
+I gathered a strand of her flowing hair and pressed a kiss to it. I felt, for the first time, like I understood the feeling behind everything Yui-san's always done for me.
 
-Therefore, I too. I can now swear to God without hesitation that I will love only you for the rest of my life.
+All the countless "happy things" she's given me, this whole time — I want to give them back to her now, just as much, or more.
 
-　Changing into loungewear, I settled onto the large sofa. The night view from the high-rise window was beautiful. The snow brought by the large low-pressure system that had swept across Kanto this winter continued to fall steadily, threatening to blanket the cityscape in white.
+This love, burning steady in my chest, hadn't lost any of its heat, and yet, before I noticed, it had reshaped itself into something deep and strong.\
+If wanting someone intensely is what "romantic love" means, then I finally understood — the desire to give is what people call real love.\
+The love Yui-san's kept giving me, without pause, has filled this heart of mine, endlessly, with more happiness than I could ever ask for.
 
-When Yui-san took the cake out of the box, the lovely scent of chocolate wafted up.\
-A classic Christmas cake, a delicious-looking Bûche de Noël.\
-　Upon the log base, atop powdered sugar representing snow, sat a small sugar Santa.
+So I, too. I can swear it now, without a shred of hesitation, before God — that I'll love only you, for the rest of my life.
 
-Even after eating dinner until I was full, just seeing something sweet before me made my greedy stomach rumble immediately.
+*
 
-When the sliced cake was offered before me, a smile came naturally. Yui, who placed the Santa on my plate without hesitation, looked at me happily too.\
-　As I lifted it to my mouth, the taste of the chocolate cream melting on my tongue made me sigh involuntarily.\
-It was my first time trying a cake from a renowned chocolate brand, but it was profoundly rich, so delicious that the difference was apparent in just one bite.\
-This was truly a flavour for a special day.
+Changed into loungewear, I settled onto the large sofa. The night view through the high-floor window was beautiful, and the snow, carried in by the massive low-pressure system that had swept through Kanto this winter, kept falling, quiet, steady, blanketing the whole city white.
 
-"Is it delicious?"
+Yui-san pulled the cake from its box, and a wonderful chocolate scent drifted up.\
+The classic Christmas cake — a lovely bûche de Noël.
 
-Asked by Yui sitting beside me, I nodded honestly.\
-　The one Christmas I spent with Yui-san back in our student days remains an irreplaceable memory for me, but tonight – our first Christmas together as lovers – will surely become another memory I'll cherish forever.
+On the log-shaped cake, atop powdered-sugar snow, sat a tiny sugar-candy Santa.
 
-"Actually, Kanata, there's one more present for you."
+Even after eating that much dinner, just seeing something sweet in front of me was enough for my stomach, food-loving as ever, to growl immediately.\
+Handed a cut slice, I smiled, unbidden. Without hesitation, Yui-san had placed the little Santa on my plate, and she watched me, happy.\
+Bringing it to my mouth, the chocolate cream melted on my tongue, and I couldn't help a small, appreciative groan.\
+First time trying cake from a well-known chocolate brand, and the depth of flavor was noticeable, even in a single bite.\
+Exactly the kind of taste meant for a special day.
 
-Waiting until I'd polished off the cake, Yui-san suddenly brought it up.
+"Good?"
 
-Another one? It was the last thing I expected, so I stared in surprise, eyes wide.
+Yui-san, beside me, asked, and I nodded, honest, "yeah."\
+The one Christmas I'd spent with Yui-san back in college is an irreplaceable memory for me too, but this one — our first Christmas as girlfriends — I'm sure will become a memory I'll never forget, for the rest of my life.
 
-You mean there's still more?\
-Seeing me gape, Yui-san smiled. Then, as if she'd had it ready all along, she pulled a wrapped box from the pocket of her loungewear and plopped it onto my lap.
+"So, actually, there's one more present for you, Kanata."
+
+Right as I finished polishing off the cake, Yui-san said that, suddenly.
+
+One more? Never having expected that, I looked up, startled.
+
+Is there really something more?\
+Watching me sit there, blank, Yui-san laughed, and, apparently having prepared it without my noticing, pulled a small wrapped box from her loungewear pocket and set it, gentle, on my lap.
 
 "Open it."
 
-What on earth could it be? Unable to hide my astonishment, I did as I was told. I slid the red ribbon decorating the box off and opened it.\
-Inside lay a glossy black leather key case. Picking it up, I felt a slight bulge.
+What could it be. Still unable to hide my surprise, I did as told, unwinding the red ribbon on the box and opening it.\
+Inside sat a glossy black leather key case. Picking it up, I felt a faint bulge inside.
 
-Is there something inside? Clicking the golden clasp open, I unfolded the key case.
+Something's in there? Snapping open the gold clasp, I opened the case.
 
-　Inside, a slightly scratched key, tied with a red ribbon, was attached to a keyring.
+Inside, a slightly worn key hung from the ring, tied with a red ribbon.
 
-I knew immediately. This key was — the key to that house, given to me when I first met Yui-san before starting university.
+I understood immediately. This key — it's the key to that house. The one Yui-san handed me the very first time we met, before I started college.
 
-There was absolutely no mistaking it. It was the one I used every day during the year we lived together under the same roof. The key I returned to her on the day we parted.
+There's no way I could mistake it. The one I used every single day, that whole year we spent under one roof together. The key I returned to her, the day we parted.
 
-　Memories of the day we met burst into colour and came flooding back. The day I first met Yui-san. I was still eighteen, and she was twenty.\
-Holding a large suitcase, I was incredibly nervous when I first stepped into that house.\
-That's why I remember. That day, when Yui-san placed this brand-new key, not a scratch on it, into my hand.
+The memory of the day we first met, sudden, vivid, full of color, came flooding back. I was still eighteen then, and she was twenty.\
+Stepping into that house for the very first time, suitcase in hand, I'd been more nervous than I'd ever been in my life.\
+Which is exactly why I remember it. That day, Yui-san pressing this brand-new key, not a single scratch on it yet, into my hand.
 
-I was filled with anxiety.
+I'd been full of anxiety.
 
-　I didn't know what kind of person Yui-san was yet, so I didn't know what to say.\
-For the first few weeks, just seeing her face kept me tense the whole time. I couldn't really make casual conversation and I think I just acted all prickly and unattractive.\
-But Yui-san never once made a sour face at me like that. She was always kind, never changing.
+I hadn't known, then, what kind of person Yui-san actually was, and had no idea what to even talk to her about.\
+For the first few weeks, just seeing her face left me tense the whole time, unable to make casual conversation, coming across, I think, prickly and unlikable.\
+But Yui-san never once showed the slightest displeasure at that. She was always, without fail, kind.
 
-　Every season we spent together in that house is filled to the brim with bittersweet memories of love.
+Every single season we spent together in that house is filled, wall to wall, with sweet, bittersweet memories of falling in love.
 
-"Yui, this key..."
+"Yui-san, this key..."
 
-"I thought it might be a bit soon, but since it's today, I wanted to give it to you. When spring comes, let's live together again. This time, without setting any deadline. Forever."
+"Might be a little early, but I wanted to give it to you today, while we're at it. Once spring comes, let's live together again. This time, without setting any deadline. Forever."
 
-Why? Tears welled up. The thing I’d let go of that day had returned to my palm. Just thinking that, an indescribable torrent of emotion spilled out as tears, unstoppable.
+Why — the tears just wouldn't stop. What I'd let go of that day had come back into my hand again. Just thinking that, some overflowing, unspeakable feeling turned into tears, spilling over, unstoppable.
 
-I rubbed my eyelids with the back of my hand, as if wiping away tears. Then Yui-san took my hand tightly.
+I wiped at my eyes with the back of my hand. Then Yui-san took my hand, tight.
 
 "Don't cry, Kanata."
 
 "But..."
 
-Her lips pressed gently against my eyelids, as if to soak up the tears. Unable to bear it, I clung to her. From the white skin peeking out from her loungewear wafted the sweet, refreshing scent of bergamot.
+As if drinking up the tears, her lips pressed gently against my eyelid. Unable to hold back, I clung to her, and, through her loungewear, her pale skin carried a sweet, refreshing bergamot scent.
 
-Our bodies pressed tightly together. As if drawn by magnetism, my body refused to pull away from Yui-san. A warm palm stroked my back, tenderly, as if cherishing me.
+Our bodies pressed flush together. Like being pulled by some magnetic force, my body refused to let go of her. Her warm palm stroked my back, gentle, cherishing.
 
-"When spring comes, let's go buy a new bed, new furniture, everything. What sort of room would you like, Kanata?"
+"Once spring comes, let's go buy new furniture, a new bed, everything. What kind of room do you want, Kanata?"
 
-"Is that alright? I mean, it's your house..."
+"Is that really okay? It's your house..."
 
-"From now on, it's our house."
+"From here on, it's our house."
 
-I had always liked her home too – simple, devoid of anything superfluous.\
-　I know that the room given to me that day remains frozen in time, unchanged.\
-Yui-san never gave up. She believed I would return someday, always.
+I'd always loved her house too, simple and spare, nothing unnecessary in it at all.\
+I know, too, that the room she gave me back then still sits exactly as it was, frozen in time, even now.\
+Yui-san never gave up. She believed, the whole time, that someday I'd come home again.
 
-"...May I go back to that room again?"
+"...Can I... go back to that room, then?"
 
-When I asked, Yui-san buried her cheek in my hair and smiled.
+Asked that, Yui-san rubbed her cheek against my hair, laughing.
 
-"No, that won't do. We'll get rid of the bed in your room. Because I want to sleep with Kanata every single night. So let's make my room our bedroom."
+"No, that won't do. I'm getting rid of the bed in your room. Because I want to sleep with you, every single night. So let's make my room our shared bedroom instead."
 
-Her arms wrapped tightly around my waist, holding me close. Starting over again, our life together. My heart leapt at the burgeoning possibilities.\
-I pressed my face against the nape of her neck and held her back, holding her tight, tight, as if to never let go of the warmth of her body holding me.
+The arm around my waist tightened, pulling me close. Starting over again, from scratch, a life together — imagining it, one thing after another, my heart danced.\
+Nuzzling against her neck, I hugged her back, tight, tight, determined never to let go of the warmth of the body holding me, ever again.
 
 ＊＊＊
 
-After getting ready for bed, we tumbled onto the mattress, tangled together in playful wrestling. The balloon art I'd pushed aside earlier floated and swayed softly around the bed.\
-Yui-san gently nipped at the nape of my neck peeking out from my nightwear. Ticklish, I turned my face away, only for a slightly forceful hand to seize my wrist.
+Once we'd finished getting ready for bed, we tumbled, tangled, laughing, into bed together. The balloon art, pushed aside earlier, still floated, swaying, around the bed.\
+Yui-san nipped playfully at my neck, peeking from my loungewear collar, and, ticklish, I turned my face away, only for her hand to catch my wrist, faintly forceful.
 
-　Surprised by the strength, I looked at Yui-san, only for her to press her lips against mine as if she'd been waiting for it. She changed angles repeatedly, and the feeling of our lips rubbing together was so good I just let her continue. Then, a mischievous palm stroked and tickled my side, so I hurriedly pushed her shoulder away.
+Startled by that grip, I looked at her, and, as if she'd been waiting for exactly this, our lips met. Tilting again and again, the feel of it pleasant enough that I accepted it, easy — until her mischievous palm stroked my side, ticklish, and I scrambled to push her shoulder back.
 
-"H-hold on, Yui-san...!"
+"Wa— wait, Yui-san...!"
 
-Her dark eyes, reflecting the dim orange room lamp, narrowed into a sly grin.
+Her black eyes, catching the dim orange room light, narrowed, sly.
 
-"Aren't you going to sleep?"
+"Aren't we supposed to be sleeping?"
 
 "Hmm... do you want to sleep already, Kanata?"
 
-Unbelievable. After what just happened, how can she have so much stamina?\
-Yui-san, you're such a lecher.
+Unbelievable. After everything we just did, where does she get this much stamina.
 
-I almost said it... but then I remembered how I'd wanted her myself just now, so I decided to swallow those words for today at least.
+*Yui-san, pervert* — I nearly said, but, remembering how I'd wanted her myself, just a while ago, I decided to swallow that particular word, just for tonight.
 
-It's rare for me to wake up later than Yui-san, but if I exhaust myself any further, I might genuinely not be able to get up before her.\
-If I couldn't place the present by Yui-san's pillow by tomorrow morning, that would truly defeat the whole point of Christmas.
+Normally, I'm rarely the one who wakes up later than Yui-san — but if I use up any more energy tonight, I might genuinely fail to wake before her.\
+If I can't get the present by her pillow before morning, Christmas loses its whole meaning.
 
-"Hey, Yui-san. If you don't behave yourself, Santa might not come tonight... Is that alright with you?"
+"Hey, Yui-san. If you're not good, Santa might not come tonight. Is that okay with you...?"
 
-When I said that, Yui-san blinked, her eyes widening.
+Saying that, Yui-san's eyes went round, blinking.
 
-"...Will Santa come to me too?"
+"...Santa comes for me too?"
 
-She said it with such surprise I couldn't help but laugh. Of course he would come. I held back the urge to say that and instead wrapped my arms around her body.
+Asked that, so genuinely surprised, I couldn't help but laugh. Of course he does — I bit back the urge to say it, and hugged her body instead.
 
-"If Yui-san stays quiet and sleeps like this, he'll come, I'm sure."
+"If you go to sleep quietly, like a good girl, I'm sure he'll come."
 
-As long as I'm here, there'll never be another Christmas without Santa coming.\
-Yui-san smiled, rolled over onto her side next to me, and hugged me back tightly.
+As long as I'm here beside you, a Christmas without Santa will never come again.\
+Yui-san laughed and lay down beside me, hugging my body back, tight.
 
-"I see. Well then... I'd better be a good girl tonight, won't I?"
+"I see, then... better behave tonight, then."
 
-Hearing her cheerful voice made me smile too. Tomorrow, I absolutely will get up before Yui-san.\
-After making that vow, I pressed my face against her chest, wrapped in happiness, and closed my eyes.
+Hearing that happy voice, I smiled too. I vowed to wake before Yui-san tomorrow, absolutely, no matter what.\
+After making that vow, I pressed my face against her chest, and, wrapped in happiness, closed my eyes.
 
-　The next morning.
+*
 
-True to her word, Santa Claus came to Yui-san again after four years.
+The next morning.
 
-Opening the gift wrapped and placed by her pillow, Yui-san beamed with genuine delight, laughing innocently with joy.
+Just as promised, Santa came to Yui-san again, after four years.
 
-Seeing that smile, I thought – from the bottom of my heart – that I wanted to remain her Santa Claus next year, the year after that, and forever after.
+Opening the wrapped present left by her pillow, Yui-san's smile was genuine, innocent, delighted.
+
+Watching that smile, I found myself thinking, from the very bottom of my heart — I want to keep being her Santa, next year, and the year after, and every year after that.

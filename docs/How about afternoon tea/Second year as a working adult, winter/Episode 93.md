@@ -1,279 +1,282 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 90
+nav_order: 9
 parent: Second year as a working adult, winter
-sequence: 98
-title: "Episode 93: I'm So Happy Right Now"
+sequence: 97
+title: "Episode Ninety-Three: Right Now, I'm So Incredibly Happy"
 ---
-Episode 93: I'm So Happy Right Now
+## Episode Ninety-Three: Right Now, I'm So Incredibly Happy
 
-"Kanata, are you alright? Oh dear, I told you not to drink at such a pace when you can't hold your liquor. Your face is bright red."
+\
+"Kanata, you okay? Geez, you're weak with alcohol, I told you not to drink at that pace. Your face is bright red."
 
-I hear Yui-san's gentle voice scolding me.\
-Just the two of us in the lift. Inside the iron box climbing steadily upwards, I clasped her arm tightly and leaned my weight against her.
+Yui-san's soft voice, scolding me gently, reaches me.\
+Alone in the elevator, just the two of us. Inside the steel box, climbing steadily higher, I hugged her arm tight and leaned my whole weight against her.
 
-"I'm fine, really. I'm not drunk at all."
+"I'm fine, I'm not drunk at all."
 
-　I shook my head to convey this, and Yui let out a small sigh, shrugging her shoulders.
+Shaking my head, I said it, and Yui-san let out a small sigh and shrugged.
 
-"Even easy-drinking alcohol is something to be wary of. Champagne and wine are both much stronger than the drinks you usually have, Kanata. You really ought to be careful, you know?"
+"Easy-to-drink alcohol is deceptive, you know. Champagne, wine — both way stronger than what you usually drink. You need to be careful."
 
-"Aye."
+"Okaaay."
 
-"Once we get to the room, let's have some water first, alright?"
+"Once we get to the room, drink some water first, okay?"
 
-"I'm fine, I tell you. Honestly, Yui, you worry too much."
+"I told you, I'm fine. Geez, Yui-san, you worry too much."
 
-　The luxurious dishes arriving one after another were all delicious, and it was true that I’d ended up drinking more than intended. But I wasn’t just putting on a brave face — I genuinely didn’t think I was that drunk.\
-Both the champagne we’d toasted with and the wine we’d enjoyed with the special Christmas dinner course had been ordered sweet to suit me, so they’d been absolutely lovely.
+Course after gorgeous course, all of it delicious — it's true the alcohol had kept flowing, but I'm not saying this out of stubbornness. I really don't think I'm that drunk.\
+The toast champagne, and the wine I'd had through the special Christmas dinner course, both ordered sweet specifically for me — both had been genuinely delicious.
 
-True, my heart had been pounding since earlier, and my feet felt a bit wobbly, but I reckoned I always felt like this when I was with Yui-san.
+It's true my heart's been racing since a while ago, and my feet feel a little unsteady, floaty — but I think that's just how it always is, being with Yui-san.
 
-　Alone in the lift, taking advantage of the fact no one could see us, I called her name, "Yui-san," and pulled her hand tightly.\
-Stretching up slightly, I pressed my lips lightly against her cheek.
+Just the two of us in the elevator, and, taking advantage of no one watching, I called her name — "Yui-san" — and tugged her hand.\
+Rising slightly on my toes, I pressed my lips lightly against her cheek.
 
-Yui-san's eyes widened in surprise, and she looked straight at my face, making me laugh. She didn't need to be so startled.\
-After all, we're lovers. It should be fine for me to take the initiative like this once in a while.
+Startled, her eyes went wide, and she snapped her face toward me, and I couldn't help but laugh. No need to be that surprised.\
+We're girlfriends, after all — it should be fine for me to do something like this myself, once in a while.
 
-"...Kanata, you really are terribly drunk, aren't you?"
+"...Kanata, you really are completely drunk, aren't you."
 
-"I'm not drunk at all. See, Yui-san, I'm incredibly happy right now."
+"I'm not druuunk. Hey, Yui-san, right now, I'm so incredibly happy."
 
-I clasped her left hand with both of mine, trying to convey my feelings as fully as possible. Then Yui-san blinked rapidly.
+Gripping her left hand with both of mine, I poured everything I had into conveying that feeling. Yui-san blinked, rapid.
 
-　For a moment, Yui-san looked as if enduring something, then she forcefully pulled me towards her with her right arm around my waist. My body swayed, and our faces drew near. Meeting Yui-san's gaze directly at such close range, my already wildly beating heart accelerated even further.
+For a moment, she looked like she was enduring something, and then pulled my waist in, forceful, with her right arm. My body swayed off balance, our faces drawing close. At this distance, our eyes met, dead-on, and my already-racing heart sped up even further.
 
-Ah, is she going to kiss me? Just as I thought that and was about to close my eyes, the lift began to slow down.
+Ah, is she going to kiss me? Thinking that, my eyes had just started to drift shut when the elevator began slowing.
 
-Noticing this, Yui cast her gaze solely at the floor indicator, her brows knitting tightly as if suppressing something.\
-The lift came to an abrupt halt, its doors opening slowly and mercilessly, so Yui loosened the arms that had been holding me close.
+Noticing, Yui-san glanced only at the floor display and, brows drawing together, seemed to be holding something back.\
+The elevator came to a smooth stop, and, mercilessly, the doors slid open, so Yui-san loosened the arm holding me.
 
-Oh, what a shame. I thought you were going to kiss me.
+Aw, too bad. I'd really thought she was about to kiss me.
 
-　Yui sighed deeply and shook her head slightly.
+Yui-san let out a deep sigh and shook her head, small.
 
-"...Kanata, you really don't mix well with alcohol."
+"...You and alcohol really don't mix well."
 
-What did she mean by that? Sure, compared to Yui, I might be a bit weak with drink, but it wasn't like I couldn't handle it at all.\
-I tilted my head in confusion as we stepped out of the lift. Our destination was just a stone's throw away.
+Don't mix well — what does that mean? It's true I might be weaker with alcohol than Yui-san, but it's not like I can't drink at all.\
+Tilting my head, still puzzled, I stepped off the elevator. Our room was just a short way off.
 
-　Ignoring Yui-san, who was still muttering about my drinking habits, I tugged at the sleeve of her jacket in front of the door, saying, "Hurry up and open it."\
-When Yui-san held up the room key she'd taken from her breast pocket, the lock clicked open, and I entered the room with excitement.
+Ignoring Yui-san, still muttering something about my drinking habits, I tugged her jacket sleeve at the door — "hurry, open it."\
+Yui-san held the room key from her chest pocket up to the panel, and with a click, the lock released, so, excited, I stepped inside.
 
-　The panoramic glass windows offered views of Tokyo's nightscape, while the decor was uniformly Christmas-themed.\
-My eyes were drawn to the large tree and the balloon art adorning the space around the huge bed.
+A Tokyo night view through floor-to-ceiling glass, and decorations unified in Christmas design.\
+My eyes were drawn instantly to the large tree and the balloon art decorating the enormous bed.
 
-"Wow, amazing! Yui-san, look! There are so many balloons!"
+"Wow, incredible! Yui-san, look! So many balloons!"
 
-She dashed over to the large king-size bed and plopped down. The momentum caused a golden balloon decorating the bed to float gently into the air.\
-She picked up one balloon. As she bounced it playfully between her hands, Yui-san suddenly laughed, as if all her strength had left her.
+Rushing to the huge king-size bed, I sat down with a soft thud. The gold balloons decorating it floated up, light, from the impact.\
+I grabbed one and played with it, bouncing it between my hands, and Yui-san laughed, something in her relaxing.
 
-"I'm so glad you like it, but first, have some water, won't you? We've got cake ready too. Once you've sobered up a bit, let's eat it together."
+"Glad you're happy, but drink some water first, okay? There's cake too, so once you've sobered up, let's eat it together."
 
 "There's cake too? Yay!"
 
-While Yui-san went to fetch water from the built-in fridge, I pulled back the Christmas-coloured red bedspread and flopped straight back onto the bed. Just as I drew in the scent of freshly laundered linen, it suddenly dawned on me.
+While Yui-san went to fetch water from the mini fridge, I pulled off the red Christmas-themed bed runner and fell straight back onto the bed. Breathing in the fresh scent of clean linen, filling my lungs, I suddenly realized something.
 
-　It felt so comfortable I hadn't noticed, but right now, I was still wearing the precious dress Yui-san had bought for me.
+Comfortable enough that I hadn't even thought about it, but I was still wearing the precious dress Yui-san had bought me.
 
-Come to think of it, where had my clothes gone? Glancing around the room, my eyes fell on a paper bag sitting atop the luggage rack. Apparently, the luggage I'd left during dinner had been brought to the room beforehand.
+Come to think of it, where had my regular clothes gone? Scanning the room, I spotted a paper bag sitting on the luggage rack. Apparently our bags, checked during dinner, had already been carried up to the room ahead of us.
 
-With a plastic bottle of mineral water in one hand, Yui approached the bed.
+Bottle of mineral water in hand, Yui-san walked back toward the bed.
 
-"Kanata, are you alright?"
+"Kanata, you okay?"
 
-She looked down at me with concern. I wasn't feeling ill, exactly. More like light-headed and rather pleasant.\
-But my heart seemed to be playing up. It kept thumping faster and faster, accelerating relentlessly.
+She looked down at me, worried. I'm not sick or anything. If anything, I feel floaty, good.\
+But something's off with my heart. It won't stop racing, faster and faster, ceaselessly.
 
-　Don't worry, I'm fine. More than that, I've been itching for you to hold me tight.\
-I want you to tell me you love me with your body, your lips, your fingers.
+No need to worry. More than that, I just want to be held, and I've been restless with that want this whole time.\
+I want you to tell me you love me, with your body, your lips, your fingers, right now.
 
-Usually you pounce like a wolf, yet somehow whenever I drink, Yui suddenly tries to be rational.
+Normally, you attack like a wolf — but the moment I've had a drink, for some reason, you always turn suddenly rational.
 
-I gently reach out and call her name, "Yui." Thinking I wanted her to get me up, Yui-san gently took my outstretched hand with her free hand and pulled me closer. Oh, come on, that's not it.
+Reaching out gently, I called "Yui-san." Apparently misunderstanding I wanted to be helped up, she took the hand I'd extended with the one not holding the bottle, and pulled, gentle. Ah, no, that's not it.
 
-Wanting her to understand, I pulled her hand firmly towards me.
+Wanting her to understand, I pulled that hand toward myself, hard.
 
-"Whoa—"
+"Wa—!"
 
-Caught off guard, Yui-san lost her balance, placed her hands on the bed, and fell on top of me.
+Thrown off balance, unprepared, Yui-san caught herself on the bed and toppled forward, onto me.
 
-　To make sure she didn't escape, I wrapped my arms tightly around her neck and pulled her closer.\
-Seeing her eyes widen in surprise felt rather good. After all, it's unfair that I'm always the one getting flustered. I want Yui-san to feel flustered around me more too.
+Making sure she couldn't escape, I wrapped my arms tight around her neck and pulled her close.\
+Seeing her eyes go wide, startled, felt satisfying, a little. It's not fair, always being the only one whose heart races. I want Yui-san's heart to race for me too, more.
 
-I gently tucked a strand of her long, glossy black hair that had fallen loose behind her ear. Then I slid my finger along the edge of her ear, tracing its outline, before my fingertip touched the silver stud piercing it, glinting in the light.
+Gently tucking her long, glossy black hair behind her ear, I traced my finger along the edge of that ear, following its shape, and touched the silver earring glinting there.
 
-Once more, I called her name, "Yui-san," lacing my voice with all the sweetness I could muster. But she narrowed her eyes at me, as if scolding me.
+Once more, I called "Yui-san," pouring every bit of sweetness I could into my voice. But she just narrowed her eyes at me, scolding.
 
-"...Kanata, water?"
+"...Kanata, the water?"
 
-"No, I'm fine... I'm not that drunk."
+"It's fine, I don't need it... I'm not that drunk."
 
-"Saying that means you're absolutely plastered, I reckon..."
+"The fact that you keep saying that is exactly why I think you're completely drunk..."
 
-I gave a wry smile, annoyed that Yui-san looked away from me. The necklace I'd given her — a black onyx clover — swayed before my eyes. Her white nape. Feeling the smooth texture of her skin so close, my heart pounded loudly in my ears.
+Wry, laughing, turning her gaze away from me — that annoyed me. The necklace I'd given her, the black onyx clover, swayed in front of my eyes. Her white throat. Feeling the smooth texture of her skin this close, my heart pounded, loud, at my own ear.
 
 "Hey, Yui-san."
 
-"Hmm?"
+"Mm?"
 
-"I don't want my clothes to get creased... take it off."
+"...I don't want my clothes to wrinkle, so... take them off."
 
-My fingertips gently traced the line of her neck.\
-The ceiling seemed to be spinning round and round. I didn't feel capable of undoing the zip at my back myself.
+My fingertip traced, gentle, along her throat.\
+The ceiling felt like it was spinning. I didn't think I could manage the zipper on my own back right now.
 
-When I tried coaxing her like a child, Yui froze stiff as a board.
+Wheedling, asking like that, Yui-san froze, like she'd turned to ice.
 
-Strange. Yui always grants my every wish when I ask nicely.\
-Won't you listen to my request today? I silently stared at her, as if posing that question.
+Strange. Yui-san's supposed to grant any wish of mine, if I just ask.\
+Won't you grant my wish tonight? As if asking that, I just stayed silent, watching her steadily.
 
-Yui closed her eyes once, then took a deep breath and slowly opened them. Her intense gaze pierced my heart.\
-My body trembled at that look, demanding me without words, its urgency palpable. Yes, that was the look I wanted her to give me.
+Closing her eyes once, Yui-san took a slow, deep breath, then opened them, slow. That heated gaze pierced straight through my heart.\
+Even without words, that wanting look, unmistakable, made my body tremble. Yes — that's exactly the look I wanted from you.
 
-"...Kanata, you really are... sneaky."
+"...Kanata, you're really unfair, you know."
 
-"But... I can't take it off myself."
+"Because... I can't take it off myself."
 
-"Right. Fine, I'll take it off for you."
+"That's true. Fine, I'll take it off for you."
 
-　Arms wrapped around my back lifted me up. Clinging to her as I rose, her lips gently pressed against my ear.
+The arm around my back lifted me up. Leaning into her, half-clinging, as I rose, her lips pressed gently against my ear.
 
-"...I was trying to hold back until after the cake."
+"...I was planning to hold off until we'd had cake."
 
-Her slender fingers slipped beneath my skirt, scratching lightly at my thigh covered by stockings. Normally, her touch would be direct, but feeling it through just a thin layer of fabric felt frustratingly distant.\
-　I wanted to touch her bare skin. I wished she'd take it off already.
+Her elegant fingers slipped under my skirt, dragging along my stocking-covered thigh. Fingers that usually touch bare skin directly felt strangely maddening, held back by that thin layer of fabric.\
+I want bare skin against mine. I wish she'd hurry up and take it off.
 
-"Today, you don't have to hold back at all."
+"Tonight, you don't have to hold off on anything at all."
 
-Was it the drink I'd had earlier, or was it Yui-san? I couldn't tell anymore. I'd felt strange ever since we started eating.\
-Just her touch made my whole body tingle.
+Whether it's the alcohol from earlier, or Yui-san herself, I can't tell anymore. I'd been strange this whole time, even during dinner.\
+Just being touched by her sends shivers through my whole body.
 
-"Does that mean you're inviting me?"
+"Should I take that as an invitation?"
 
-"...Don't ask me that. You can do whatever you like with me."
+"...Don't ask that. Do whatever you want, Yui-san."
 
-This conversation is just playful banter. It means nothing.\
-After all, Yui must know already. I'm just too embarrassed to tell her honestly that I "want to", so I'm fidgeting instead.
+This kind of exchange is nothing but playful teasing. Meaningless.\
+Because Yui-san must already understand — I'm just too embarrassed to say plainly that I "want to," and it's making me fidget.
 
-Even though we did it yesterday, this way I might not be able to call Yui a "lecher" anymore.
+We already did it yesterday, so at this rate, I might not have any room left to call Yui-san the "pervert" anymore.
 
-"...In that case, shall we save the cake for later?"
+"...Then, let's save the cake for later."
 
-Whispered with a hot breath, I close my eyes. Hidden within the sweetness in her voice lies desire.
+Whispered with a heated breath, I closed my eyes. Underneath the sweetness in her voice, desire flickered, unmistakable.
 
-When did it start? When did just being whispered to like this make the depths of my stomach tingle and grow hot?\
-When she touches me, I melt away as easily as ice cream left out in the midsummer sun.
+Since when, I wonder, has just being whispered to like that been enough to set something warm burning deep in my stomach?\
+Touched by her, I melt, helpless, like ice cream left out under the summer sun.
 
-My jaw was captured, my lips taken. Her thumb forcefully parted my lips, and the soft tongue that slipped through the opening tasted of wine.
+My chin taken, my lips claimed. Her thumb forced my lips apart, and through the gap, her soft tongue slipped in, tasting faintly of wine.
 
-The balloon decorations around the bed swayed softly.
+The balloon art decorating the bed swayed, light, floating.
 
-The warmth of her palm touching my skin came through the thin fabric. When our lips parted, our eyes met.
+The heat of her palm, touching my body, came through the thin fabric. Our lips parted, and our eyes met.
 
-　Yui-san smiled gently, kneeling as she kissed my knee peeking out from beneath the dress. Through the stockings, it felt strangely ticklish, just a little.
+Yui-san smiled, gentle, and, kneeling, pressed her lips to my knee, peeking from the dress. Through the stocking, it felt ticklish, strange.
 
-Yui-san's palm stroked down my calf. Then her hand touched the heel of the pumps she'd just bought for me.
+Her palm stroked down my calf. Then her hand reached the heel of the pumps I'd just been given.
 
-　First the left foot, then the right, each shoe removed in turn. Somehow, I felt like Cinderella. Not in glass slippers, but to me, they held nearly as much value.
+Left foot first, then right, taken off in turn. I felt almost like Cinderella. Not glass slippers, but for me, close enough in value.
 
-Just having my shoes removed made my breath quicken. I felt rather indecent reacting like this, but I couldn't help wanting her desperately.\
-Yui-san lifted her face. She gazed intently into my eyes and smiled gently.
+Just having my shoes removed, and my breath had already quickened. I know reacting this much isn't exactly proper, but I want her, unbearably, and there's nothing I can do about it.\
+Yui-san lifted her face. Looking straight into my eyes, she smiled, gentle.
 
-"...You look rather like a princess, you know."
+"...Kind of like a princess, huh."
 
-"That's because Yui-san gave me this lovely dress as a present."
+"That's because you gave me such a cute dress, Yui-san."
 
-"No, no. Whatever you wear, ever since we met, Kanata has always been my princess."
+"No. Whatever you wear, ever since we met, you've always been my princess."
 
-If I am a princess, then Yui-san is the one who cast the spell. She made me this way.\
-　To utter such saccharine lines without hesitation... perhaps Yui-san is drunk enough herself to be in no position to criticise others.
+If I'm a princess, then it's Yui-san who cast the spell. Yui-san made me this way.\
+Saying something this saccharine without a shred of hesitation — maybe Yui-san's just as drunk as me, in her own way.
 
-I felt her hand move around to my back, pulling down the zip.
+Her hand reached my back, and I felt the zipper pulled down.
 
-"Hehe... there's someone trying to do naughty things to that princess."
+"Fufu... there's someone trying to do something naughty to this princess."
 
-I teased her, even though I'd been the one begging for it. Yui-san laughed and kissed the back of my hand.
+Having asked for it myself, I said it, teasing, and Yui-san laughed and kissed the back of my hand.
 
-"...What can I say? It's what the princess requested, after all."
+"...Can't be helped, right? Since that's exactly what the princess requested."
 
-It was Christmas, after all. Once in a while was fine. Once in a while, a night like this was okay. Even if there were nights when we forgot all the constraints binding us and just got carried away, surely even God would turn a blind eye just for tonight.
+It's Christmas, after all, and once in a while's fine. A night like this, once in a while, is allowed. Even if, just for tonight, we forget every constraint binding us and let ourselves get swept up in it, surely God would let it slide, just for today.
 
-Surrendering to that uniquely pleasant, fuzzy sensation one feels after drinking alcohol, I gently closed my eyes.
+Giving in to that peculiar, floaty, pleasant feeling alcohol brings, I gently closed my eyes.
 
 ＊＊＊
 
-Her lips pressed against my inner thigh, gently sucking at the skin. Surely the red mark left there yesterday should still be visible, yet Yui always insists on leaving her mark here.
+Her lips pressed against my inner thigh, gently sucking on my skin. There must still be a red mark there from just yesterday, yet Yui-san always insists on leaving a mark here.
 
-Each time we made love, those marks multiplied. Where they appeared depended entirely on Yui-san's mood — sometimes her neck, sometimes her back, sometimes beneath her collarbone. The location was always different, but her thigh was always, without fail, the one place they appeared.
+The number of marks increases every time I have sex with her; depending on her mood, they might be on the nape of my neck, my back, or beneath my collarbone, the location is always different, but my thigh is the one place where she never fails to leave one.
 
-Why, I wonder. Does it mean something? I don't know, but if that's what Yui-san wants, I don't resist. I let her do as she pleases. It's not as if I'm going to show this body to anyone else but her, so she can do as she likes.
+I wonder why. Does it mean anything? I don't know, but if Yui-san wants to, I don't resist and just let her get away with it. It's not as if I'm going to show this body to anyone other than Yui-san, so I reckon she can do whatever she likes.
 
-　Her tongue slid smoothly over the red mark on my left thigh. Occasionally she’d bite it lightly, or lick it like this, and the soft, warm, springy sensation tickled. But somehow, it felt good too.
+Her tongue slid smoothly over the red mark on my left thigh. Because she occasionally bites me lightly or licks me like this, the soft, warm and supple sensation tickles. But somehow, that felt rather nice too.
 
-“You know, Yui-san, you always leave marks… specially on my thighs, don’t you?”
+"You know, Yui-san, you always seem to leave marks… on my thighs, don't you?"
 
-　When I pointed it out, Yui-san kissed my thigh one last time before lifting her face and grinning mischievously.
+When I pointed this out, Yui-san kissed my thigh one last time, then looked up and gave a mischievous smile.
 
-"Oh, you caught me?"
+"Oh, did I give myself away?"
 
-"Well, it's just... always like that..."
+"Well, it's just that you always do it…"
 
-Come to think of it, Yui-san always strokes my thighs, and I realise she touches them with surprising frequency.
+Come to think of it, Yui-san is always stroking my thighs, and I do feel she touches them an unusually high number of times.
 
-The more our bodies entwine, the more I gradually understand Yui-san's little habits.
+The more we're together, the more I gradually come to understand Yui-san's little quirks.
 
-　For instance, when she's genuinely stressed, she becomes quieter. I doubt even Yui herself realises those things about herself.
+For example, when Yui-san's really under pressure, she becomes rather quiet. I suspect she probably isn't even aware of that about herself.
 
-But surely it's mutual; Yui knows many things about me that I don't know myself.\
-In fact, when it comes to my body, I suspect Yui knows it far better than I do.
+But I'm sure it goes both ways; Yui-san knows plenty about me that I don't know myself.\
+In fact, when it comes to my body, I reckon Yui-san probably knows it far better than I do.
 
-Her gentle side, her occasional mischievousness – I adore every part of her, utterly.
+Whether she's gentle or occasionally a bit mischievous, I love everything about her. I simply can't get enough.
 
-　Our sweaty, hot bodies pressed together. Rough breathing and my uncontrollable voice echoed in the room. Her long fingers dominated every part of me.
+*
 
-When she held me tight, as if pinning down my trying-to-escape body, my breathing grew faster and shallower.
+Our hot, sweaty bodies press close together. Our ragged breathing and my uncontrollable moans echo through the room. Her long fingers take complete control of me.
 
-　We both knew there was no room for restraint. My alcohol-fogged mind could only think of how good it felt, and I clung to her back, not caring if my nails dug in.
+As she held me tight, as if to pin down my struggling body, my breathing grew faster and shallower.
 
-I lightly bit her perfectly shaped ear.
+I could tell we were both at our wits' end. With my thoughts clouded by alcohol, I could think of nothing but "it feels so good", and without caring that my nails were digging into her skin, I clung to her back as if clinging for dear life.
 
-　Yui-san, it feels good, more.
+I gently sank my teeth into her beautifully shaped ear.
 
-Between ragged breaths, I managed that in a hoarse voice. Yui-san called my name, "Kanata," over and over, sounding desperate. Just that alone made my chest ache unbearably, filled with a sharp, stabbing pain.
+"Yui-san, it feels so good, do it more."
 
-"More," I was the one who begged for it, yet when cornered by those long fingers, I suddenly wanted to flee. The sweet, inviting scent of perfume wafting from the body clinging to mine made me dizzy.
+When I said that in a raspy voice, between gasps of ragged breath, Yui-san called my name repeatedly, "Kanata", as if on the verge of breaking. Just that alone made my chest feel unbearably tight and my heart ache.
 
-"I can't take it anymore," I murmured softly. Yui-san pulled away abruptly and peered into my face. Her dark eyes, heavy with heat, looked down at me.
+Even though I was the one who'd begged for "more", the moment I was cornered by those long fingers, I suddenly wanted to escape. The alluring, sweet scent of her perfume, wafting from the body I was clinging to, made me feel dizzy.
 
-　I couldn't stop myself from letting out a whimper. Why do Yui-san's fingers feel so good?
+"I can't take any more", I murmured softly, and Yui-san pulled away sharply, peering down at my face. Her feverish black eyes were fixed on me.
 
-For some reason, at a time like this, I remembered her long fingers tracing documents at work and her neatly trimmed, rounded nails, and my body shivered.
+I couldn't stop myself from letting out a whimper. Why do Yui-san's fingers feel so good?
 
-The serious gaze Yui-san showed at work and the fierce, wolf-like stare she was giving me now were completely different.
+For some reason, at a time like this, I found myself remembering Yui-san's long fingers tracing over documents at work, and her smooth, neatly manicured round nails, and my body shivered with a thrill.
 
-　Yet I know linking those impressions will only cause me pain later. Even at work, I'll likely recall this sweet night every time I see her long fingers.
+The serious gaze Yui-san shows whilst working is completely different from the fierce, wolf-like stare she's directing at me right now.
 
-That gaze directed solely at me, that expression devoid of ease – all of it pierces deep into my chest, unlikely to ever leave.
+And yet, I know that if I were to link those two impressions together, I'd only end up suffering in the future. Even whilst she's at work, I feel as though I'll be reminded of this sweet night every time I see her long fingers.
 
-　Something pushed up deep inside me, lifting my hips. Ah, I can't take it anymore. Slowly, physiological tears welled up and spilled over.
+That gaze directed solely at me, that tense expression, everything pierces my heart so deeply that it feels as though it will never come out.
 
-What should I do? I want to bite her. But in my tear-blurred vision, the bite mark I left yesterday still stood out red on Yui-san's shoulder.\
-Perhaps noticing my struggle to hold back, Yui-san suddenly smiled and brought her lips close to my ear.
+I felt a surge deep within me, and my hips lifted off the ground. Oh, I can't take it anymore. Tears welled up slowly, uncontrollably.
 
-"Kanata. ...It's... fine to bite."
+What should I do? I want to bite her. But on Yui-san's shoulder, blurred by my tears, the bite mark I left yesterday still remains, red and clear.\
+Perhaps realising I was trying my best to hold back, Yui-san gave a soft laugh and pressed her lips close to my ear.
 
-"Bu-but..."
+"Kanata. …It's all right to bite me."
 
-"It's alright. Because... it feels better that way, doesn't it?"
+"B-but…"
 
-No, it wasn't like that at first. It started because it felt good, and I was scared, and I didn't know what to do, so I sank my teeth into that shoulder. But now...
+"It's fine. After all, it'll feel better that way, won't it?"
 
-　I know it hurts when I bite. I still see the marks on her shoulder over and over, and I keep, keep regretting it.
+No, that wasn't how it started. It began because it felt so good, and I was scared, and I didn't know what to do, so I sank my teeth into that shoulder. But now—
 
-I know it, but I can't stop. I can't hold back. Because sex with Yui-san is always so good, it makes me want to bite.
+I know it hurts when I bite. I've looked at the marks on her shoulder time and time again, and I've been feeling remorseful ever since.
 
-　When she holds me tight and calls my name, "Kanata," in that voice so full of tenderness... I succumb to desire.\
-I sink my teeth in, overlapping the fresh scar from yesterday. I bite down hard, and Yui-san groans in pain.
+I know it, but I can't stop. I can't hold back. Because sex with Yui-san is always so good that it makes me want to bite her.
 
-A tingling sensation shoots through the back of my head. I hold her tightly, refusing to let go, even as her body stiffens against the pain.
+She held me tight and called my name, "Kanata", in a voice brimming with tenderness… and I succumbed to my desire.\
+I sank my teeth into the spot, overlapping the scar I'd left just yesterday. I bit down so hard that Yui-san groaned in pain.
+
+A tingling sensation spread deep inside my head. I held her body, stiff with pain, tightly, never letting go.

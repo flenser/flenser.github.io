@@ -1,291 +1,294 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
-nav_order: 40
+nav_order: 4
 parent: Second year as a working adult, winter
-sequence: 93
-title: 'Episode 88: Why on earth are you so lecherous, Yui-san?'
+sequence: 92
+title: "Episode Eighty-Eight: Yui-san, Why Are You Such a Pervert?"
 ---
-Episode 88: Why on earth are you so lecherous, Yui-san?
+## Episode Eighty-Eight: Yui-san, Why Are You Such a Pervert?
 
-After weathering a hectic week, Saturday mornings spent nestled close together always find me waking before Yui-san.
+\
+After making it through a hectic week, the Saturday mornings we welcome, skin pressed close together, always find me waking before Yui-san, without fail.
 
-Feeling the faint sunlight seeping through the curtains, I slowly pushed my eyelids open.
+Feeling the faint sunlight leaking in past the curtains, I slowly lifted my eyelids.
 
-December seems to pass far quicker than any other month of the year.\
-　A week passes like the wind, and just when I think the precious weekend we can spend together has arrived, Monday comes and another week of living apart begins.
+December, I always feel, passes faster than any other month of the year.\
+A week slips by like wind, and just as I think, finally, the precious weekend together has arrived — Monday comes, and the week of living apart begins all over again.
 
-She, who dislikes mornings, is always still in my dreams even after I wake.
+Bad with mornings, Yui-san's still deep in her dreams even after I wake.
 
-I gaze at her, breathing softly beside me.
+I gazed at her, breathing evenly beside me, asleep.
 
-I gently brush the silky black hair from her cheek and stroke her smooth, flawless white skin.
+Gently brushing back the smooth black hair falling over her cheek, I traced my fingers along her pale, flawless cheek.
 
-　I adored this time before she wakes.\
-Just gazing at her perfectly composed sleeping face made time melt away in an instant.\
-I longed to see the colour of her eyes behind those tightly closed lids — yet even your breath in deep slumber filled me with such heart-wrenching tenderness.
+I love this stretch of time, waiting for her to wake, unbearably.\
+Just watching that composed, sleeping face, time melts away, before I know it.\
+I do wish I could see the color of her eyes behind those closed lids — but even her breathing, deep in sleep, is enough to squeeze my chest with fondness.
 
-Yui, I wonder what dreams you're having. I hope they're happy ones.
+I wonder what kind of dream Yui-san's having. I hope it's a happy one.
 
-* * *
+Monday — my appointed day with Kitagami-san — was drawing close.
 
-　The promised Monday with Kitakami-san draws near.
+I'd planned to tell Yui-san about all of this only after meeting him once more and settling things myself.
 
-I intended to tell Yui-san about this after meeting him once more to settle things.
+It's not that Kitagami-san doesn't scare me at all.
 
-It's not that I'm not afraid of Kitakami-san.
+Turning down what was probably his biggest possible concession, effectively declaring war on him — I have no idea what he might do in response.
 
-Having rejected what was likely his greatest concession, I don't know what actions he might take against me, who effectively declared war.
+But there are things I can't give up either.
 
-But I too have things I cannot yield.
+The person in front of me right now, for one. Even if this love ends up covered in mud, wounded all over — I can't give up on it over something like this.\
+Even if a day comes when people point fingers at me, I'll go on living with her. That's what I've decided.
 
-　The girl before me is one of them. This love — no matter how mud-splattered and scarred it becomes — is something I cannot abandon over this.\
-Even if the day comes when people point fingers behind my back, I will live with her. That is what I have decided.
+*
 
-Kitakami-san surely doesn't love Yui-san, so what kind of feeling is it to want to be with her? And... doesn't that feel hollow?
+Kitagami-san surely doesn't love Yui-san, and yet still wants to marry her — what kind of feeling is that, even? Doesn't it leave him... hollow?
 
-Perhaps he has never truly loved anyone?
+Maybe he's never once fallen in love with anyone.
 
-　Is status and honour really that important? What is it he truly wants?
+Is status, is honor, really that important a thing? What is it he actually wants?
 
-Even if you had money to burn, could that alone truly make someone happy?
+Even with money to spare, does that alone really make a person happy?
 
-I haven't the foggiest what it is Kitakami-san is so desperate for.
+I have no idea what Kitagami-san's actually after.
 
-If all you want is something like that, then I absolutely cannot give Yui-san to you.\
-She isn't someone to be consumed merely to satisfy such shallow desires.
+If it's just those things he wants — then I absolutely, positively won't hand Yui-san over.\
+She's not someone who should be consumed just to satisfy such a shallow desire.
 
-He surely doesn't know how incredibly delicate and loving she is.
+He surely doesn't know how delicate, how deeply loving a person she really is.
 
-　I gently trace the outline of her perfectly shaped lips with my thumb.
+I traced my thumb gently along the outline of her shapely lips.
 
-I realise now that it simply has to be Yui. My heart and body can no longer be satisfied by anyone but you.\
-I've been spoiled by kindness and affection, and that's what it's done to me.
+I don't think I can be with anyone but Yui-san anymore. Neither my heart nor my body could ever be satisfied by anyone else.\
+Spoiled by her kindness, her love — she's turned me into someone like this.
 
-She's kind yet cruel, making me want to run away yet crave more. Each time she touches me, it feels like an unknown part of myself is being dragged out, and it terrifies me.
+Kind, and yet mean; making me want to run, and yet want more of her at the same time — every time she touches me, some unknown version of myself gets dragged further and further out, and it scares me.
 
-　Being with Yui-san means discovering things for the very first time.
+Being with Yui-san, it's nothing but firsts, one after another.
 
-I recall that piercing, feverish gaze looking down at me in the darkness.\
-The sensation of slightly sweaty, warm skin touching mine, that indescribably sweet pleasure when those long fingers reached deep inside me... Yui-san taught me all of it.
+I remembered that heated, piercing gaze, watching me from above in the dark.\
+The feel of faintly sweat-slicked skin touching mine, the indescribable, sweet pleasure the moment those long fingers reached deep — all of it, every bit, Yui-san taught me.
 
-I understand perfectly why so many women became captivated by her.\
-　Jealousy over the past is pointless, but if only we'd met sooner — could I have kept your heat untouched by anyone else?
+I understand completely, now, why so many women fell captive to this person.\
+No point being jealous of the past, but if only we'd met sooner — could I have kept that heat of hers from anyone else's touch?
 
-I'll never tell her how utterly captivated I am by her. It's too humiliating.
+Too proud to admit it, I'd never tell her directly how completely absorbed in her I've become.
 
-When I pressed my lips to her forehead, her long lashes trembled. I hadn't meant to wake her, but behind her eyelids, those yearning black eyes reflected me.
+Pressing my lips to her forehead, her long lashes trembled. I hadn't meant to wake her, but those black eyes I'd fallen for, behind those lids, opened and found me.
 
-"Mm... Good morning, Kanata..."
+"Mn... morning, Kanata..."
 
-I adore that soft, sleepy voice too. Seeing Yui like this in the morning is a privilege reserved solely for me right now.
+I love that soft, just-woken voice too. Getting to see this Yui-san, this morning face — right now, that's a privilege only I get.
 
 "...Good morning, Yui-san."
 
-Her hand reached out, trying to pull me closer. So I didn't hesitate, nestling into her chest.
+Her hand reached out, meaning to pull me close, so I let myself lean in, unreserved, pressing against her chest.
 
-"A big bed really is nice, isn't it? No need to worry about falling out."
+*
 
-　My apartment bed is single-sized, so it's a bit cramped for two people. Even when Yui-san came over last time, I was constantly worried she might fall out if she rolled over.
+"A wide bed really is nice. No worrying about falling off."
 
-I'm glad Yui-san's bed is double. Honestly, this size is just right for sleeping together.
+My apartment bed's a single, a little cramped for two people sleeping together. Even the last time Yui-san stayed over, I'd been on edge the whole time, worried she'd fall off if she rolled over.
 
-"Hmm, really? I quite like sleeping together in Kanata's bed though."
+Good thing Yui-san's bed is a double. I think this size is just right, for sleeping together.
 
-"But isn't a single bed a bit too narrow, honestly?"
+"Hmm, you think? I actually like sleeping in your bed too, Kanata."
 
-"I know, but... I really like how special Kanata's bed feels when she's asleep too..."
+"But isn't a single a bit too cramped?"
 
-I understood that feeling. After all, I too preferred sleeping in Yui-san's bed over my own — I slept far more soundly there.
+"It is, but... your bed always feels special somehow, so I like it..."
 
-Dozing in her arms, perhaps because I felt so secure, I found myself drifting off again.\
-But I couldn't afford to fall back asleep now. I had plans to go out with Yuri today, so I had to get up.
+I understand that feeling. I like sleeping in Yui-san's bed better too, and I sleep more soundly there.
 
-"...Hey, Yui-san, I'm too cold to get out from under the duvet. Where are my pyjamas?"
+Drowsy in her arms, the sense of security threatened to pull me back toward sleep.\
+But I can't fall back asleep like this. I promised to go out with Yuuri today, so I need to get up.
 
-"Ah, sorry, I might have just flung them somewhere."
+"...Hey, Yui-san, it's cold, I don't want to get out from under the covers. Where's my loungewear?"
 
-The cosy, fluffy pyjamas she'd bought me, with their lovely feel, had been swiftly removed by her hand last night, along with my underwear.
+"Ah... sorry, might've tossed it somewhere over there."
 
-　They've probably fallen under the bed, but Yui-san got too hot and turned off the heating, then flung the aircon remote somewhere, so getting out of this bed to turn the heating back on is just too painful.
+The soft, plush loungewear Yui-san had just bought me had been stripped off me last night, along with my underwear, easily, by her own hands.
 
-"...Since you took it off, you take responsibility for finding it. I don't want to get out of bed because it's cold."
+Probably fallen under the bed somewhere, but at some point last night, saying she was hot, Yui-san had turned the heater off and tossed the AC remote off somewhere too, so turning the heat back on meant having to get out of bed first, and that alone felt genuinely brutal.
 
-"Eh? You're getting dressed already? Your appointment with Yuri-chan is at noon, right? Let's sleep together a little longer."
+"...You're the one who took it off, so it's your responsibility to find it. It's cold, I don't want to leave the bed."
 
-"...But I'll be cold if I don't get dressed."
+"Eh, already getting dressed? You're meeting Yuuri-chan at noon, right? Let's sleep together a little longer."
 
-When I said this sulkily, Yui-san laughed.
+"...Because it's cold without clothes on."
 
-"Cold? I see. Well then, I'll warm you up."
+Said with a pout, Yui-san laughed.
 
-"Eh? Wh-wait a sec, Yui-san?"
+"Cold? I see. Then, let me warm you up."
 
-Yui-san slowly leaned over me, grinning as she brought her lips close to my neck.\
-Her mischievous left hand traced my unguarded thigh beneath the duvet, so I instinctively pushed her shoulder away with my palm – the spot still slightly red and swollen from a bite mark.
+"Eh? Wa— wait, Yui-san?"
 
-"Kanata, that hurts. No touching the wound."
+Slowly moving to hover over me, Yui-san smiled, bright, and brought her lips close to my neck.\
+Under the covers, her mischievous left hand traced along my defenseless thigh, and, startled, I quickly pressed my palm against her shoulder to stop her, careful of the still-red, slightly swollen bite mark there.
 
-Yui-san said, looking sullenly displeased. True, I felt bad about touching the wound.\
-But being pressed like this in this situation was a bit problematic.\
-After all, I wasn't wearing any clothes, so I had no way to defend myself right now.
+"Ow, Kanata. No touching the wound."
 
-"But it's because Yui-san was trying to do something weird..."
+Yui-san said it, faintly displeased. It's true — touching the wound was thoughtless of me, I'll admit.\
+But being pushed this far, in a situation like this, is a bit much.\
+Because, without any clothes on, I have no way at all to defend myself right now.
+
+"Well, that's because you're trying something strange, Yui-san..."
 
 "You said you were cold, so I thought I'd warm you up."
 
-I did say I was cold, but I never asked to be warmed. I only asked her to "find me some clothes".
+I'd said cold, but never asked to be warmed up. I'd only asked her to "find my clothes."
 
-"Is that not allowed?"
+"Not allowed?"
 
-As her hand, caressing my skin, slowly crept upwards, I stopped it by clamping it between my inner thighs. Yui gave a faint smile.
+Her hand, stroking my skin, crept steadily upward, and I pinned it between my thighs to stop it, and Yui-san smiled, thin.
 
-"...Why are you so lecherous, Yui? Lately, you've been like a wolf..."
+"...Yui-san, why are you such a minx? Lately you're genuinely like a wolf..."
 
-It's not like Yui's lechery started just now, but wanting it first thing in the morning? That was unexpected. Living together like this... what on earth will become of us?\
-Being desired this intensely leaves me at a loss. ...Though I suppose it's just me being me to think I don't dislike it.
+Yui-san being a minx isn't exactly new, but wanting it first thing in the morning was unexpected. If we ever actually lived together, what would even happen to me?\
+Wanted this intensely, I don't know what to do with myself anymore. ...Though the part of me that thinks it's not actually unwelcome is its own problem.
 
-"With Kanata lying naked beside me, it'd be impossible not to feel something. Please, I beg you. I'll promise to stop after just once."
+"Can't be helped, with you lying naked beside me. C'mon, please. I'll hold back with just once."
 
-"But you've never actually stopped after just once..."
+"You say that, but it's never actually stopped at once..."
 
-"I promise. Please."
+"I'll properly promise this time. Please."
 
-Her lips brushed my earlobe, sending a shiver down my spine. Pleased by my reaction, Yui-san pulled me close with her right arm.
+Lips pressed to my earlobe, a shiver raced down my spine. Pleased at my involuntary reaction, Yui-san hugged me tight with her right arm.
 
-"...Yui-san, you've always loved having sex with girls, haven't you?"
+"...You've always loved sex with girls, haven't you, Yui-san."
 
-Pouting my lips in feeble resistance, I said this, and Yui-san laughed.
+Pursing my lips in what little resistance I had left, Yui-san laughed.
 
-"I won't deny that... but it's not just any girl I want it with. I want it with you, Kanata."
+"I won't deny that... but it's not girls I want it with. It's you, Kanata."
 
-"Really... just once? Will you promise me...?"
+"Really... will you actually promise, just once...?"
 
-"Yes, of course. I promise."
+"Yeah, of course. I promise."
 
-Her soft tongue traced my neck, gently biting my collarbone. The red mark left yesterday should still be there. My breath caught as her lips touched me, full of tenderness.
+A soft tongue caressed the nape of my neck and gently nibbled my collarbone. The red mark left there yesterday must still be visible, and my breath quickened as her lips touched me tenderly.
 
-　Just a few brushes of her lips ignited heat deep within my stomach, draining the strength from my body.\
-Taking advantage of that, the hand tracing up my thigh reached between my legs.\
-A small gasp escaped me, and my hips trembled.
+After just a few brief touches of our lips, a heat ignited deep within my stomach and all the strength drained from my body.\
+Taking advantage of this, the hand that had been tracing up my thigh reached between my legs.\
+A small "Ah" escaped my lips, and my hips trembled.
 
-Before I could prepare myself mentally, the sensation of her fingers touching that sensitive spot made me shudder. Yui looked down at me and smiled teasingly.
+Before I was even mentally prepared, I shuddered at the sensation of her fingers touching that sensitive spot, and Yui looked down at me with a mischievous smile.
 
-"Fufu, that's quite something..."
+"Hehe, that’s quite something…"
 
-"...Don't say things like that..."
+"…Please don’t say things like that…"
 
-I bit my lip tightly in protest. The smoothness of her fingertip's touch made me realise what state I was in, and I felt mortified.
+I bit my lip tightly in protest. From the smoothness of her fingertips the moment they touched me, I realised for myself exactly what was going on down there, and I felt so embarrassed.
 
-Even as she apologised, "Sorry, sorry," Yui slid her body relentlessly between my legs. I was utterly helpless, so I clasped her back tightly.\
-　Cold air seeped in through the gap in the lifted futon.
+Even as she apologised, saying "Sorry, sorry", Yui-san mercilessly slid her body between my legs, leaving me with no choice but to cling tightly to her back.\
+Cold air seeped in through the gap in the lifted duvet.
 
-"Yui-san, I'm cold..."
+"Yui-san, I’m cold…"
 
-"...You'll warm up soon, it'll be fine."
+"…You’ll warm up in a moment, so it’s fine."
 
-Just hearing my name whispered softly in my ear made me feel dizzy. The sensation of her fingertips touching me was melting my rationality into a gooey mess.
+Just having her call my name gently in my ear made me feel as if I were about to faint. The sensation of her fingertips against my skin was melting my rationality into a gooey mess.
 
-Completely forgetting it was morning, I pressed my lips to the nape of her neck and gently bit down, as if clinging to her.
-
-＊＊＊
-
-I knew this would happen, so why did I agree to Yui-san's request?
-
-I whipped my still-sluggish body into shape and managed to finish getting ready just before our planned departure time, but I was still a little sulky.
-
-"Kanata, your outfit today is lovely. I'm rather envious — I wish I could have gone on a date with you instead."
-
-I shot Yui a glare as she sat on the sofa, sipping her milk tea with such nonchalance.
-
-It was entirely her fault I'd been forced to wear the freshly laundered white high-neck top meant for tomorrow's date — the one that could cover her kiss marks, left on my neck as if to say, "Here, take that."
-
-　And it wasn't just my neck. Her mark was everywhere – my stomach, my thighs, all over. She really has no restraint lately.
-
-Not that I'm one to talk, mind.\
-A fresh bite mark had appeared on the nape of my neck, visible beneath her white sweatshirt. It was brand new, made when I bit her this morning.
-
-　Even when I bite her, Yui doesn't get angry. She groans in pain for a moment when my teeth sink in, but that's all.
-
-Once, when I pointed out a bite mark she'd got from another girl, she said, "That hurt so much, I don't think there'll be a next time." I'd worried about that a little, but so far, there's been plenty of "next times", so I suppose she must forgive me.
-
-　I simply can't resist it. I know it's a bad habit, but I can't stop.
-
-Usually, I apologise every single time for this bad habit, but this time, I had absolutely no intention of apologising.
-
-True, Yui-san did keep the promise of "just once". But that promise led to me having a terrible time.\
-Because — I never imagined that "once" would involve being teased like that.
-
-　No matter how many times I begged her to stop, saying I couldn't take it anymore, Yui-san stubbornly refused to let go, whining that she didn't want to stop yet. By the middle, I was practically in tears.
-
-"...But I'm going on a date with Yui-san tomorrow, aren't I? Today is the day I go on a date with Yuri."
-
-I abruptly looked away and said this curtly. Yui-san's eyes widened in surprise as she peered intently at my face.
-
-"Eh? Kanata, are you still sulking?"
-
-"Not really... I'm not sulking."
-
-"I'm sorry, I said. Cheer up. I kept my promise, didn't I?"
-
-"...I'm going to be late, so I'll be off now."
-
-Just once, I'll never say that again. Swearing that to myself, I grabbed my bag and headed for the front door. Then, from behind, I was pulled back with a tight hug, stopping me in my tracks.
-
-"Kanata. I'll walk you to the meeting spot."
-
-"It's fine. I've already checked the train times."
-
-"Well then, I'll come pick you up on the way back."
-
-"...I won't be late today, so I can take the train home."
-
-"Oh? Well then, I'll make dinner and wait for you."
-
-"Eh... Is that alright?"
-
-　Yui-san really is good at keeping me happy, as always. Even though I should be sulking, I wonder about myself for being so easily lured by food...
-
-"Of course. Shall we have stew for dinner? You said you fancied it yesterday, didn't you?"
-
-Even my casual remarks while staring blankly at the telly, Yui-san picks up on them effortlessly.\
-That makes me happy. It makes me feel she truly loves me.
-
-　I nodded, and Yui's lips touched my cheek.
-
-"Take care. Off you go."
-
-Hearing her say that in that gentle tone made me feel silly for sulking.\
-Somehow, I felt like I'd been neatly wrapped around her little finger... but never mind.
-
-"...Right then, I'm off."
-
-I waved reluctantly, and Yui smiled and waved back at me.
+Having completely forgotten that it was morning, I pressed my lips to the nape of her neck and bit down playfully.
 
 ＊＊＊
 
-The reason I'd asked Yuri to come along today was because I wanted her help choosing a Christmas present for Yui-san.
+Knowing full well this would happen, why did I still give in to Yui-san's request?
 
-I doubt there's anyone else besides Yuri who'd put up with me dragging her around all day without complaining, given how indecisive I am.
+Whipping my still-sluggish body into motion, I'd just barely finished getting ready before our scheduled departure time, but I was still, a little, sulking.
 
-　After agonising over it, I settled on a pair of leather gloves with a cute little logo as the present.\
-The news said this winter was going to be particularly cold, so I chose black ones she could use on business trips too, hoping they'd keep her a bit warmer.\
-When I tried them on, the fingertips were a bit loose on my hands... but I'm sure they'll fit her long fingers perfectly.
+"Kanata, your outfit today's cute. Wish I could've gone on a date with you too."
 
-I'll add a hand cream from the same brand as Yui-san's favourite perfume to the present.
+Sipping milk tea on the sofa, saying that so carefree, I shot her a sharp, sidelong glare.
 
-I recall her perfectly manicured fingertips, not a single hangnail in sight. As the season approaches when we wash our hands more often to avoid catching colds, I reckon one can never have too many tubes of hand cream.
+The white turtleneck I'd bought new, meant for tomorrow's date, I'd had no choice but to wear today instead — entirely because Yui-san had left more than enough hickeys on my neck to necessitate it.
 
-Yuri would occasionally tease me as I agonised over choosing the perfect gift, yet she always smiled, looking rather pleased.
+Not just my neck. My stomach, my thighs, marks of her everywhere. Lately, she's genuinely shown zero restraint.
 
-　After treating her to our company hotel's renowned afternoon tea as a thank-you for accompanying me, Yuri and I parted ways before dinner.
+Though, I suppose, I'm not exactly in a position to talk either.\
+Peeking from my white sweats, a fresh bite mark had joined the one on her neck — the brand new one from this morning, when I'd bitten her myself.
 
-On the train home, I messaged Yui-san: "Heading back now."
+Even when I bite her, Yui-san never gets angry. She groans, briefly, clearly in pain the moment my teeth sink in, but that's all.
 
-Unusually, she replied almost immediately. "It's ready!" came the message, accompanied by a photo of a pot filled with creamy stew. I couldn't help but smile.
+Once, long ago, when I pointed out a bite wound from some other girl, she'd said, "hurt so much there might not be a next time" — I'd worried about that a little, but "next time" has kept coming, without fail, so I think, probably, I've been forgiven.
 
-　Exhaling white breath, I walked briskly towards Yui-san's house, my thoughts drifting to the stew.
+I can never hold back, no matter how hard I try. I know it's a bad habit, and yet I can't stop.
 
-Little by little, the gloomy Monday drew nearer.
+But normally, I always apologize for that bad habit afterward — this time, I had absolutely no intention of apologizing.
 
-But once I got through that, the Christmas I'd waited four years for was just around the corner.
+It's true, Yui-san had kept her promise of "just once." But that promise had left me in a genuinely awful state, one way or another.\
+Because — never in a million years had I expected that "once" to involve being teased that mercilessly.
+
+Begging, over and over, "I can't take it anymore, please stop teasing me," and Yui-san, stubborn, refusing to let go, saying she wasn't done yet — by the end, I'd been half in tears.
+
+"...I'm going on a date with you tomorrow, Yui-san. Today's for Yuuri."
+
+Turning my gaze away, saying it curt, Yui-san blinked, blank, and peered into my face.
+
+"Eh? Kanata, are you maybe still sulking?"
+
+"I'm not... sulking."
+
+"Sorry, really. Come on, cheer up. I kept my promise, didn't I?"
+
+"...I'll be late, so I should get going."
+
+*Just once* — never again, I swore to myself. Grabbing my bag, I headed for the entryway. Then, from behind, an arm caught me, holding me back, and I stopped.
+
+"Kanata. I'll drive you to your meeting spot."
+
+"It's fine, I already checked the train times."
+
+"Then I'll pick you up on the way back."
+
+"...I won't be out late today, I can take the train home."
+
+"Really? Then I'll make dinner and wait for you."
+
+"Eh... is that really okay?"
+
+Yui-san really is skilled at winning back my mood. Sulking, and yet easily won over by food — I have to question myself too, honestly...
+
+"Sure. How about stew for dinner? You said you wanted it yesterday, didn't you?"
+
+Even some offhand comment of mine, made while spacing out watching TV — Yui-san always picks it up, easily.\
+That makes me happy. It makes me feel, genuinely, that I'm truly loved.
+
+Nodding, "yeah," Yui-san's lips brushed my cheek.
+
+"Take care. Have a good time."
+
+Said in that gentle voice, my own sulking suddenly felt ridiculous.\
+Somehow I feel like I've been smoothly talked around, but — never mind, it's fine.
+
+"...Alright, I'm off."
+
+Waving, reluctant, Yui-san laughed and waved back at me too.
+
+＊＊＊
+
+The reason I'd invited Yuuri out today was because I wanted her company picking out a Christmas present for Yui-san.
+
+Dragging her around all day, no complaint at all about my indecisiveness — I don't think anyone but Yuuri could put up with that.
+
+After agonizing and agonizing, I settled on a pair of leather gloves, cute with a single-point logo.\
+Since the news kept saying this winter would be especially cold, I picked black — something she could use even on business trips, to keep her at least a little warmer.\
+Trying them on myself, my fingers left the tips empty — but with her long fingers, I think they'd fit perfectly.
+
+I'll add a hand cream from the same brand as her favorite perfume, and give her that too.
+
+I remembered her smooth, hangnail-free fingertips. This season means more hand-washing to avoid catching a cold, so a hand cream can never hurt.
+
+Yuuri watched me agonize seriously, back and forth, over the gift, occasionally teasing me, but smiling, somehow, genuinely happy the whole time too.
+
+As thanks for keeping me company, I treated her to our company hotel's celebrated afternoon tea, and we parted ways before dinner.
+
+On the train home, I messaged Yui-san: "heading back now."
+
+Unusually, a reply came back right away. "Made it~" along with a photo of a pot full of cream stew attached, and I couldn't help but smile.
+
+Breathing white breath into the cold air, thinking of that stew, I hurried my steps toward Yui-san's house.
+
+Little by little, that dreaded Monday drew closer.
+
+But if I could just get past that, our four-years-overdue Christmas was right there, waiting.
