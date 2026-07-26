@@ -84,7 +84,7 @@ Watching me, apparently entertained, Yui-san smiled, mischievous.
 
 Meaning to take off the shirt she was wearing, I slid my hand up under the hem and touched her smooth side. Yui-san laughed, ticklish, and, with the mood not building at all, I puffed my cheeks out.
 
-What do I do. What did she always do to me, again? I tried hard to remember all the nights we'd spent together, but, unpracticed, I fumbled, clumsy.\
+What do I do? What did she always do to me, again? I tried hard to remember all the nights we'd spent together, but, unpracticed, I fumbled, clumsy.\
 Slowly pushing the shirt up to her chest, her pure white skin and navy underwear came into view. I'd already seen it earlier, at the hot spring, and yet — for some reason it felt unbearably alluring now, and my heart lurched, sharp.\
 Flustered, I pushed the shirt back down without meaning to.
 
@@ -200,10 +200,10 @@ Embarrassed, I looked down.
 My whole body felt like it had caught fire, heat pooling, gathering, unbearable. Something felt like it might give out.\
 Is this what Yui-san always feels, whenever she does this to me? My body ached, restless, almost enough to make me cry.
 
-What do I do, I want to be touched. Once I thought that, there was no going back.
+What do I do? I want to be touched. Once I thought that, there was no going back.
 
 Trying to settle myself, I buried my face against her neck, breathing in her scent. But that scent, instead of calming me, only made the heat in my body worse.\
-Backfired, completely. What do I do now. This wasn't supposed to happen.
+Backfired, completely. What do I do now? This wasn't supposed to happen.
 
 "Yui-san..."
 

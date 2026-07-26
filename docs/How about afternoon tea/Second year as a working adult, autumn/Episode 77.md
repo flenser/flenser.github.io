@@ -66,7 +66,7 @@ But I hadn't known exactly how much.
 
 Seeing the price tag on the same earrings displayed in the case, currently sitting in my own ears, I caught my breath, unbidden.\
 I'd known Yui-san was the type who didn't spare a single yen once she'd decided on something — but I never imagined it had been this expensive.\
-I see. So that's how sharp-eyed Seno-san managed to guess my partner was rich.
+I see. So that's how the sharp-eyed Seno-san managed to guess my partner was rich.
 
 And back then, Yui-san had still only been a college student—
 
@@ -186,7 +186,7 @@ Her fingertips finally reached my waist, and, startled, I looked at Yui-san. The
 
 "If you hold back your voice, it'll be fine."
 
-*Didn't you say you wanted to keep work and personal life separate* — the words you say and the things you do are completely different, I wanted to point out.\
+*Didn't you say you wanted to keep work and personal life separate?* — the words you say and the things you do are completely different, I wanted to point out.\
 Impossible, absolutely impossible. Maybe it's fine for Yui-san, since she's the one doing the touching, but if she actually did something like that to me right now, I'd be useless for the rest of the day.
 
 "Hey, Yui-san... I'll make it up to you plenty on your birthday, isn't that enough? If you hold back now, I'll do whatever you ask on your birthday...!"

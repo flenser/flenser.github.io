@@ -132,7 +132,7 @@ I'd turned my face away, but her left hand pulled it firmly back, and my lips we
 
 A faint hint of grapefruit, tasted through our tangled tongues. My heartbeat, already racing from the alcohol, sped up further still. Her left hand, hitching up my skirt, gently stroked my thigh.
 
-Never imagining she'd want me this forcefully, my head went into a full panic. What do I do, I need to resist. At this rate, I'll get swept along entirely.
+Never imagining she'd want me this forcefully, my head went into a full panic. What do I do? I need to resist. At this rate, I'll get swept along entirely.
 
 Even thinking that, some part of me, somewhere, didn't want her to stop either. Feeling like I might give in completely if this kept going, I steeled myself and pushed at her shoulder.\
 Maybe noticing the resistance was stronger than usual, Yui-san pulled her body back.\
