@@ -311,7 +311,7 @@ Not sulking. Just, remembering yesterday, a little too embarrassed to look at he
 
 "...I don't know."
 
-Told that, I was startled. What do I do...? how did she figure that out? I'd thought she hadn't noticed, that my body reacts, for some reason, every time she's mean to me.
+Told that, I was startled. What do I do... how did she figure that out? I'd thought she hadn't noticed, that my body reacts, for some reason, every time she's mean to me.
 
 But all of this, every bit of it, is Yui-san's fault. Whatever "frigid" body I used to have — she's the one who changed that, no one else.
 
