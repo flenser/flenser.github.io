@@ -3,7 +3,7 @@ grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 14
 parent: Second year as a working adult, winter
-sequence: 102
+sequence: 103
 title: "Episode Ninety-Eight: I Might Never Beat You, Even If It Takes My Whole Life"
 ---
 ## Episode Ninety-Eight: I Might Never Beat You, Even If It Takes My Whole Life

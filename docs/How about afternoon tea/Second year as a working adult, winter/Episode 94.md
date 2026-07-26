@@ -3,7 +3,7 @@ grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 10
 parent: Second year as a working adult, winter
-sequence: 98
+sequence: 99
 title: "Episode Ninety-Four: Better Behave Tonight, Then"
 ---
 ## Episode Ninety-Four: Better Behave Tonight, Then

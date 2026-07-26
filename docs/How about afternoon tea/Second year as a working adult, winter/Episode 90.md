@@ -3,7 +3,7 @@ grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 6
 parent: Second year as a working adult, winter
-sequence: 94
+sequence: 95
 title: "Episode Ninety: I Won't Get Angry. Whatever You Say"
 ---
 ## Episode Ninety: I Won't Get Angry. Whatever You Say

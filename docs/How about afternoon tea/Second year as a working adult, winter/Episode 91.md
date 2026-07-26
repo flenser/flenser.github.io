@@ -3,7 +3,7 @@ grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 7
 parent: Second year as a working adult, winter
-sequence: 95
+sequence: 96
 title: "Episode Ninety-One: You're Cute in Everything, Kanata, So I Can Never Decide"
 ---
 ## Episode Ninety-One: You're Cute in Everything, Kanata, So I Can Never Decide

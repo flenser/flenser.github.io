@@ -3,7 +3,7 @@ grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 12
 parent: Second year as a working adult, winter
-sequence: 100
+sequence: 101
 title: "Episode Ninety-Six: I Love You Enough That Even That Would Be Fine"
 ---
 ## Episode Ninety-Six: I Love You Enough That Even That Would Be Fine

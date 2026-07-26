@@ -3,7 +3,7 @@ grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 15
 parent: Second year as a working adult, winter
-sequence: 103
+sequence: 104
 title: "Episode Ninety-Nine: It's All This Face's Fault. You Idiot, Yui-san"
 ---
 ## Episode Ninety-Nine: It's All This Face's Fault. You Idiot, Yui-san

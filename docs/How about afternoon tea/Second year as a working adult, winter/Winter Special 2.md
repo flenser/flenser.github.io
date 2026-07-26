@@ -3,7 +3,7 @@ grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 18
 parent: Second year as a working adult, winter
-sequence: 106
+sequence: 107
 title: "Winter Bonus Chapter Two: There Was Dad, There Was Me, and There Was Yui."
 ---
 ## Winter Bonus Chapter Two: There Was Dad, There Was Me, and There Was Yui.

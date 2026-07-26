@@ -3,7 +3,7 @@ grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 16
 parent: Second year as a working adult, winter
-sequence: 104
+sequence: 105
 title: "Episode One Hundred: I'll Give You Everything. Everything I Have, I'll Give to You"
 ---
 ## Episode One Hundred: I'll Give You Everything. Everything I Have, I'll Give to You

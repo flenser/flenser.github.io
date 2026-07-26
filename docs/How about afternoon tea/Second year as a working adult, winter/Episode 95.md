@@ -3,7 +3,7 @@ grand_parent: How About Some Afternoon Tea?
 layout: episode
 nav_order: 11
 parent: Second year as a working adult, winter
-sequence: 99
+sequence: 100
 title: "Episode Ninety-Five: Just Because You're Lonely Doesn't Mean You Get to Cheat"
 ---
 ## Episode Ninety-Five: Just Because You're Lonely Doesn't Mean You Get to Cheat
