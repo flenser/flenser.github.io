@@ -90,7 +90,7 @@ Kanata's eyes flickered with flustered emotion, and her cheeks turned a soft ros
 
 I won't let her say she forgot that incident.
 
-That day, Kanata had suddenly asked me, "Please let me groom your nails."
+That day, Kanata had suddenly asked me, "Please let me do your nails."
 
 Telling me to hold out my hand without room for argument, she started filing my nails, only to nonchalantly ask me which fingers I used when holding a woman.\
 I remember being shocked to my core, almost taking my breath away.
