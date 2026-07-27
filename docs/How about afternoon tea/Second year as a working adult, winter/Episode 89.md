@@ -112,7 +112,7 @@ Enduring pain isn't love, Yui-san had told me, plainly. How much did that save n
 
 The thought of her held by someone like this made me shudder. I don't even want to imagine it.
 
-"Let me just say it plainly, then. I don't think being with you does Yui any good at all. Besides, you already ran off once before, didn't you. Give up. Even if Yui likes you, that has nothing to do with our marriage. If you step aside, everything settles neatly."
+"Let me just say it plainly, then. I don't think being with you does Yui any good at all. Besides, you already ran off once before, didn't you? Give up. Even if Yui likes you, that has nothing to do with our marriage. If you step aside, everything settles neatly."
 
 "...Who said she likes me? At the very least, I don't know anything about that."
 

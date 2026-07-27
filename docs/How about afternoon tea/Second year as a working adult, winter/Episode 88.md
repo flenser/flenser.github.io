@@ -23,7 +23,7 @@ I gazed at her, breathing evenly beside me, asleep.
 Gently brushing back the smooth black hair falling over her cheek, I traced my fingers along her pale, flawless cheek.
 
 I love this stretch of time, waiting for her to wake, unbearably.\
-Just watching that composed, sleeping face, time melts away, before I know it.\
+Just watching that composed, sleeping face, time melts away before I know it.\
 I do wish I could see the color of her eyes behind those closed lids — but even her breathing, deep in sleep, is enough to squeeze my chest with fondness.
 
 I wonder what kind of dream Yui-san's having. I hope it's a happy one.
@@ -206,7 +206,7 @@ The white turtleneck I'd bought new, meant for tomorrow's date, I'd had no choic
 Not just my neck. My stomach, my thighs, marks of her everywhere. Lately, she's genuinely shown zero restraint.
 
 Though, I suppose, I'm not exactly in a position to talk either.\
-Peeking from my white sweats, a fresh bite mark had joined the one on her neck — the brand new one from this morning, when I'd bitten her myself.
+Peeking from her white sweats, a fresh bite mark had joined the one on her neck — the brand new one from this morning, when I'd bitten her myself.
 
 Even when I bite her, Yui-san never gets angry. She groans, briefly, clearly in pain the moment my teeth sink in, but that's all.
 
