@@ -202,7 +202,7 @@ Her black eyes, catching the dim orange room light, narrowed, sly.
 
 "Hmm... do you want to sleep already, Kanata?"
 
-Unbelievable. After everything we just did, where does she get this much stamina.
+Unbelievable. After everything we just did, where does she get this much stamina?
 
 *Yui-san, pervert* — I nearly said, but, remembering how I'd wanted her myself, just a while ago, I decided to swallow that particular word, just for tonight.
 

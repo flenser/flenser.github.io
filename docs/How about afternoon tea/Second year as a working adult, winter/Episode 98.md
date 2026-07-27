@@ -204,7 +204,7 @@ Cigarette still between her lips, Mitsuya-san grinned, and I shrugged.
 
 "She's just on edge, trying not to get compared to you. Seems pretty conscious of it."
 
-"Huh... is that right."
+"Huh... is that right?"
 
 No real harm done, I suppose it's fine.\
 More important than that, there's something I actually want to ask. Shifting gears, I brought it up — "come to think of it."
@@ -222,7 +222,7 @@ I'd always thought these two were bitter rivals.
 
 "...I think so. Budget management's an important department, after all."
 
-"Ahh, what should I do..."
+"Ahh, what should I do...?"
 
 Mitsuya-san watched the smoke drift, vacant, up into the cold sky, dissolving.
 
