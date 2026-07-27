@@ -46,7 +46,7 @@ The time spent lying to my family was quietly, steadily wearing thin.\
 "...Why."\
 Why did I keep saying nothing to my family. It felt like something they could understand, if I just explained it.\
 I pulled myself back from the edge of that thought and put some distance between myself and the danger of it. This isn't a room for thinking difficult things, I decided, and let the thought go.\
-Leaning back against the sofa, I let the night sea outside pull in both sound and attention. Kai had mentioned once that opening the window let the sound of waves reach all the way into the room. Was that what the genius novelist wanted, exactly.\
+Leaning back against the sofa, I let the night sea outside pull in both sound and attention. Kai had mentioned once that opening the window let the sound of waves reach all the way into the room. Was that what the genius novelist was after, exactly?\
 A view with no connection at all to the family I loved, the particular scent and air of a hotel.\
 The sea I saw every day, somehow made entirely unfamiliar. A space outside reality.\
 It felt, somehow, like it represented exactly what my involvement with Kai actually was.\
