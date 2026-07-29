@@ -2,7 +2,7 @@
 grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
-sequence: 116
+sequence: 115
 title: "Episode 108: The Place Where the Stars Look Beautiful"
 ---
 ## Episode 108: "The Place Where the Stars Look Beautiful"

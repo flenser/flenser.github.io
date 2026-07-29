@@ -2,7 +2,7 @@
 grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
-sequence: 110
+sequence: 109
 title: "Episode 102: I Can't Stay Pathetic Forever"
 ---
 ## Episode 102: "I Can't Stay Pathetic Forever"

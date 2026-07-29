@@ -2,7 +2,7 @@
 grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
-sequence: 113
+sequence: 112
 title: "Episode 105: Yui-san, Please, Don't Cry"
 ---
 ## Episode 105: "Yui-san, Please, Don't Cry"

@@ -2,7 +2,7 @@
 grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
-sequence: 112
+sequence: 111
 title: "Episode 104: Because I Wanted to Take So Many Pictures of You, Yui-san"
 ---
 ## Episode 104: "Because I Wanted to Take So Many Pictures of You, Yui-san"

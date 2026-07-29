@@ -2,7 +2,7 @@
 grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
-sequence: 109
+sequence: 108
 title: "Episode 101: Kanata, Where's My Welcome-Home Kiss?"
 ---
 ## Episode 101: "Kanata, Where's My Welcome-Home Kiss?"

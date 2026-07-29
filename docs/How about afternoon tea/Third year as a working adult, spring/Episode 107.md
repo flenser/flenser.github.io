@@ -2,7 +2,7 @@
 grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
-sequence: 115
+sequence: 114
 title: "Episode 107: Who Loves Who, Exactly?"
 ---
 ## Episode 107: "Who Loves Who, Exactly?"

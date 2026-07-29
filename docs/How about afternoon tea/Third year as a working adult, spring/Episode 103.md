@@ -2,7 +2,7 @@
 grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
-sequence: 111
+sequence: 110
 title: "Episode 103: Isn't That Kind of Like a Proposal?"
 ---
 ## Episode 103: "Isn't That Kind of Like a Proposal?"

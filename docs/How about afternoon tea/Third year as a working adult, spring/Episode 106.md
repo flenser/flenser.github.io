@@ -2,7 +2,7 @@
 grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
-sequence: 114
+sequence: 113
 title: "Episode 106: It's Okay If It Hurts, Just Hold Me"
 ---
 ## Episode 106: "It's Okay If It Hurts, Just Hold Me"
