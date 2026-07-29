@@ -1,5 +1,13 @@
+---
+layout: episode-flat
+nav_order: 30
+parent: 'The Introvert Whose Only Redeeming Feature Is Her Face Somehow Built a Yuri Harem ~A Former Young Lady Becomes a "Maid" in Akihabara~'
+sequence: 30
+title: "Episode 30: What You're Supposed to Answer Malice With"
+---
 ## Episode 30: What You're Supposed to Answer Malice With
 
+\
 I finished my "Ruri" makeup right before morning homeroom was about to start.\
 Any longer lounging around in the student council room and I'd be late. I couldn't cause trouble for Maria, of all people — she's never once been late or absent in her life.
 
