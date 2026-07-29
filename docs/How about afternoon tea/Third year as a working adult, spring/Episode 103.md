@@ -1,258 +1,263 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
-sequence: 110
-title: "Episode 103: That sort of thing feels like a proposal, doesn't it?"
+sequence: 111
+title: "Episode 103: Isn't That Kind of Like a Proposal?"
 ---
-Episode 103: That sort of thing feels like a proposal, doesn't it?
+## Episode 103: "Isn't That Kind of Like a Proposal?"
 
-And so Thursday arrived.\
-Tomorrow was the day of the 'Presidents' Meeting' — after which Yui-san had a dinner meeting scheduled with Yukiyasu-san and her father.
+\
+And then Thursday arrived.\
+Tomorrow was the day of the "presidents' meeting" — and after that, Yui-san had the dinner planned with Yukiya-san and their father waiting for her.
 
-I quietly observed Yui-san sitting at her desk.\
-The materials for the Presidents' Meeting had been completed yesterday, and the data had already been shared with the parent company. She had no appointments scheduled for today. Therefore, it should be a relatively relaxed day.
+I quietly watched Yui-san at her desk.\
+The materials for the presidents' meeting had been finished as of yesterday, and the data had already been shared with the parent company. There was nothing else scheduled for today. It should have been a relatively easy day, comparatively.
 
-　Yet Yui-san seemed restless, occasionally sighing or twirling her pen deftly with a gloomy expression.
+And yet Yui-san seemed somehow unsettled — sighing occasionally, spinning her pen absently between her fingers with a distracted expression.
 
-Well, that makes sense. Even someone like Yui-san couldn't help but feel nervous.
+Of course she would be. No matter how composed Yui-san usually is, there's no way she wouldn't be nervous about this.
 
-We'd already demonstrated through results that we could manage without Kitakami-san.\
-But that was merely one piece of evidence to help convey Yui-san's wish to break off the engagement and gain understanding.\
-　I understand all too well the weight of telling one's father the fundamental fact of being homosexual, having come out to my own family just the other day.
+She'd already proven with real results that things would be fine without Kitagami-san.\
+But that was only one piece of the material needed to convey her wish to break the engagement and get her father to understand it.\
+The sheer weight of telling her father the underlying fact — that she's gay — I understood that pain acutely myself, having come out to my own family recently.
 
-I cannot be present at this family-only dinner.\
-But it's unbearably frustrating. That I cannot be there to hold your hand, the hand that must be trembling with nerves.
+I couldn't be there for the family dinner, just the three of them.\
+But it was unbearably frustrating. Not being able to take that hand of yours, trembling with nerves, and hold it right there in the moment.
 
 "...Yui-san."
 
-"...Hmm? What is it, Kanata?"
+"...Hm? What is it, Kanata?"
 
-　Yui looked up from her monitor and gazed at me gently.
+She looked up from her monitor and gazed at me gently.
 
-"It's just the right time. How about some afternoon tea?"
+"It's about the right time — how about some afternoon tea?"
 
-When I suggested this, Yui smiled softly and nodded.
+At the suggestion, Yui-san smiled softly and nodded.
 
-I opened the cupboard in the kitchenette – now thoroughly transformed into my personal teapot storage – and took out the teapot. As I opened the small tin holding the tea leaves, I heard footsteps and turned around.
+*
 
-"Oh, it's Aosawa-san. Good work today."
+I opened the cabinet in the break room that had by now become entirely my personal teapot storage, and took out the teapot. When I opened the small tin holding the tea leaves, I heard footsteps and turned around.
 
-"Ah, Seno-san, good work today."
+"Oh, Aozawa-san. Hard at work, huh~"
 
-Seno-san, who seemed to have returned from lunch, was carrying a cute floral-patterned lunch tote. She placed her empty lunchbox on the sink and picked up a sponge with practised ease.
+"Ah, Seno-san, hard at work."
 
-"You had a late lunch today, didn't you?"
+Seno-san, apparently just back from lunch, was carrying a lunch tote with a cute floral print. She set her empty bento box down in the sink and picked up the sponge with practiced ease.
 
-"Yeah, been busy lately. Aosawa-san, having tea with the president?"
+"Late lunch today?"
 
-"Yes. Thought we'd take a little break."
+"Yeah, been busy lately~ Is it teatime with the president, Aozawa-san?"
+
+"Yes. Thought I'd take a little break."
 
 I put the tea leaves and hot water into the teapot and set the timer.\
-Seno-san, humming thoughtfully as she washed the lunchbox with the lathered sponge, said in a calm voice.
+"Hmm, I see," Seno-san said, her tone calm as she scrubbed the bento box with soap suds.
 
-"...I'm relieved to see you're alright, Aosawa-san. I was a bit worried, you know."
+"...I'm relieved you seem to be doing okay, Aozawa-san. I was a little worried about you."
 
-"Eh?"
+"Huh?"
 
-Tilting my head, unsure what she meant, Seno-san curved her full lips into a thin smile and whispered in a voice so soft it seemed meant for no one else.
+Not understanding what she meant, I tilted my head, and Seno-san curved her full lips into a thin smile, dropping her voice to a whisper no one else could hear.
 
-"Because, Aosawa-san's girlfriend is... the president, right?"
+"I mean, your boyfriend — sorry, girlfriend — is the president, right~?"
 
-My eyes widened in shock. My heart leapt as if seized, and I stared intently into her eyes.\
-As I froze, unable to say either YES or NO, Seno-san continued, "Don't worry."
+My eyes went wide with shock. My heart jumped as if someone had seized it, and I stared straight at her eyes.\
+Frozen, unable to say yes or no, Seno-san continued, "Don't worry."
 
-"I haven't told anyone, and I don't intend to. Kaori hasn't noticed at all either. I just thought it must have been tough for you. Things have calmed down recently, but all sorts of rumours were flying around. Still, Aosawa-san you're a strong girl, aren't you?"
+"I haven't told anyone, and I don't plan to. Kaori has no idea at all. I just figured it must have been rough for you. Things have calmed down lately, but there was so much gossip flying around for a while. Still, you really are a strong one, Aozawa-san."
 
-The rinsed-off foam flowed down the drain. Realising she was speaking without any malice, I gradually regained my composure.
+The rinsed suds swirled down the drain. Realizing she didn't mean anything malicious by it, I gradually felt myself calming down.
 
 "Seno-san... how did you notice?"
 
-"Well, you see, that necklace the president had been wearing since she arrived? Aosawa-san suddenly started wearing it too... And that necklace with the same motif as those earrings? The president wears that one as well."
+"Well, I mean — that necklace the president's been wearing ever since she transferred here, you suddenly started wearing it too... and those earrings of yours match the necklace's motif, and the president wears one just like it."
 
-Ah... So, people who notice, do notice. I slumped, shoulders dropping. As I did, the timer rang, and I hurriedly poured tea into the cup.
+Ah... so people who pay attention really do notice. My shoulders slumped; I'd thought we were keeping it hidden well enough. Just then the timer went off, and I hurried to pour the tea into the cups.
 
-"The president didn't seem to like that person at all, did she? ...Well, I suppose being with someone you like is best after all."
+"The president never seemed to like that guy at all, huh. ...In the end, being with someone you actually love is the best, isn't it."
 
-Seno-san let that slip out quietly. I looked at her in surprise. I never imagined Seno-san would say something like that.\
-　She gave an awkward smile, tucked the washed lunchbox into her tote bag, and waved at me as she fluttered away.\
-I could only stare blankly after her retreating figure.
+Seno-san said it quietly, almost to herself. I looked at her in surprise. I never would have imagined her saying something like that.\
+She gave a wry smile, tucked the washed bento box into her tote bag, and gave me a little wave before walking off.\
+I could only stand there, watching her back in stunned silence.
 
-I didn't know what had changed in her heart – she was the one who'd said she wanted to marry a rich man. But... people do change, don't they?
+I have no idea what change of heart led her there, considering she used to say she wanted to marry rich. But — people really do change, huh.
 
-With those thoughts, I carried the tray back to the president's office.
+Thinking that over, I carried the tray and headed back to the president's office.
 
-＊＊＊
+***
 
-We sat side by side on the black leather sofa, our shoulders pressed together. The refreshing aroma of the afternoon blend, a Ceylon tea, soothed my heart.
+Sitting side by side on the black leather sofa, our shoulders pressed close together. The bright, refreshing Ceylon scent of the afternoon blend has a way of calming the heart.
 
-"Your tea really is the best, Kanata."
+"The tea you make really is the best, Kanata."
 
 "Of course it is. There's a secret ingredient."
 
 "A secret ingredient?"
 
-"Plenty of love. Just for you, Yui-san."
+"Lots of love. Just for you, Yui-san."
 
-Saying this with pride, Yui-san smiled and wrapped her arm around my waist, pulling me closer. Rubbing her cheek against my neck, she was far more clingy than usual, utterly adorable.
+I said it proudly, and Yui-san laughed, wrapping an arm around my waist and pulling me close. Nuzzling into my neck, she was clingier than usual — sweetly so.
 
-"I'm so glad you became my secretary. Being able to touch like this even during work is the best."
+"I'm so glad you became my secretary, Kanata. Being able to touch you like this even during work hours is the best."
 
-"You say that a lot. You were so reluctant at first."
+"You say that now. You were so reluctant about it at the time."
 
-"Sorry, sorry. I didn't want you to force yourself. Back then."
+"Sorry, sorry. I just didn't want to force you into it. Back then."
 
-"For someone you care about, strangely enough, you can do anything. It doesn't feel like a burden at all."
+"For someone you love, you can somehow do anything, you know. It never feels like a burden at all."
 
-"I understand that. I feel the same way."
+"I know exactly what you mean. Same for me."
 
-I met her gaze as she stared intently at me. Somehow, her eyes seemed more unsettled than usual, and I couldn't help but be troubled by it.
+I gazed back into the eyes fixed on mine. They seemed to be wavering with more unease than usual, and I couldn't help but worry about it.
 
-"...Yui, are you alright?"
+"...Yui-san, are you okay?"
 
-"Eh?"
+"Huh?"
 
-"You've been fidgeting since this morning. Is there anything I can do...?"
+"You've been restless all morning. Is there anything I can do...?"
 
-I gently took her hand and stroked the smooth back of her palm. I wanted so badly to ease that unease, even just a little. But how? I was tormented by my own helplessness.\
-Yui-san kept her eyes lowered to our joined hands and murmured softly.
+I took her hand gently, stroking the smooth back of it. I wanted so badly to wipe away even a little of her anxiety. What could I do? A helpless feeling gnawed at me.\
+Yui-san, eyes still cast down on our joined hands, murmured quietly.
 
-"Hey, Kanata. ...Would it be a bother if I asked you to stay over tonight?"
+"Hey, Kanata. ...If I asked you to stay over tonight, would that be a problem?"
 
-Her voice, so meek, so vulnerable, tinged with a hint of sweetness, made my heart tremble violently.
+Her voice, meek and vulnerable, carrying just the faintest sweetness — it shook something deep in me.
 
-"...I want you to be with me tonight. Is that too much to ask?"
+"...I want you with me tonight. Is that okay?"
 
-Seeing her, usually so confident, looking so fragile, felt like my heart was being crushed. It made me want to think seriously about how I could possibly heal that heart.
+Seeing her, always so confident, looking this fragile made my heart clench like it had been crushed in a fist. I found myself seriously wracking my brain for some way to soothe her heart.
 
-"...Of course it's not too much. I'll stay with you. All night long."
+"...Of course it's okay. I'll stay with you. All night, until morning."
 
-I held Yui-san close as she nestled against my shoulder. To soothe her tense body, rising and falling with shallow breaths, I kept stroking her back with my palm.
+I held her close as she nestled sweetly against my shoulder. I kept stroking her back, gently, trying to soothe the tension in her body as it rose and fell with shallow breaths.
 
-Even after returning home, Yui-san seemed distant, speaking less than usual. As if dreading even the slightest separation, she clung to me, refusing to let go.
+Even after we got home, Yui-san seemed somewhere far away, quieter than usual. She hated even the smallest distance between us, holding on to me the whole time and refusing to let go.
 
-Sitting on the sofa, we pressed our bodies together as close as possible.\
-She pressed her lips against my cheek, my neck, again and again, clinging to me tightly. Yet in those arms, there was none of the passionate desire I usually felt. Only a direct, unadulterated touch that conveyed she simply didn't want to let me go.
+Sitting on the sofa, we pressed our bodies together as close as we could get.\
+Sweetly, she pressed her lips again and again to my cheek, my neck, holding me tightly in her arms — but there was none of the usual passionate desire in it. It was just touch after touch that seemed to say, plainly, that she didn't want to let me go.
 
 "...I might not be able to sleep tonight."
 
-Confiding a secret takes courage. It's only natural to feel afraid. Having been through it myself, I understand Yui-san's feelings all too well right now.\
-I'm sure all sorts of thoughts are racing through her mind at this moment.\
-Is there any way to help? Something to take her mind off it.
+Confessing a secret takes courage. There's no way it isn't frightening. I've been through it myself, so right now, I understood Yui-san's feelings acutely, painfully well.\
+I'm sure all kinds of thoughts were racing through her mind right now.\
+Was there something, anything, that could help take her mind off it?
 
-"...In that case, why not skip trying to force yourself to sleep? How about staying up late with me tonight?"
+"...Then instead of forcing yourself to sleep, why don't we just stay up together tonight?"
 
-"Staying up late?"
+"Stay up together?"
 
-"Don't you remember, Yui? Right after I first came to this house?"
+"Yui-san, do you remember? Back when I'd just come to live in this house."
 
-When I was spending sleepless nights, homesick and filled with loneliness and anxiety, Yui made me sweet hot milk with honey in it — and invited me to stay up late together, saying, "If you can't sleep, let's stay up together."
+Back then, homesick and lonely, unable to sleep through nights full of anxiety, Yui-san made me sweet hot milk with honey — and invited me to stay up together if I couldn't sleep.
 
-How much that kindness dispelled my unease. It's still an unforgettable, precious memory.
+I can't forget how much that kindness dissolved my anxiety. It's a precious memory I still hold onto, even now.
 
-"You often stayed up late with me, didn't you?"
+"You used to stay up with me all the time."
 
-Then, as if remembering, Yui-san smiled.
+At that, Yui-san laughed as if remembering.
 
-"Come to think of it, we did that. How nostalgic."
+"Oh, that's right, we did do that. Brings back memories."
 
-"If you can't sleep, I'll stay up with you too. What shall we do tonight?"
+"If you can't sleep, I'll stay up with you too. What should we do tonight?"
 
-I clasped Yui-san's hands tightly with both of mine. Yui-san, who had looked so preoccupied just moments ago, suddenly smiled, then said as if she'd thought of something.
+I took Yui-san's hand and held it tightly with both of mine. The troubled look that had been on her face until a moment ago softened into a smile, and then, as if something had occurred to her, she spoke.
 
-"Well then... fancy joining me for a drive to take our minds off things?"
+"Well then... want to keep me company on a little drive, to clear my head?"
 
-I'd been the one to suggest staying up late, but I was genuinely surprised she'd suggest going to see the Rainbow Bridge.
+*
 
-Yui's beloved car glided smoothly along the Metropolitan Expressway, weaving through the night city.
+I was the one who'd suggested staying up together, but I never expected her to suggest going to see the Rainbow Bridge — it caught me completely off guard.
 
-"Before I met you again, I used to drive alone a lot. Being home alone sometimes got me down. Driving means I don't have to think about anything, and it just feels refreshing."
+Yui-san's car glided smoothly along the expressway, weaving between the buildings of the nighttime city.
 
-The Rainbow Bridge came into view. We sped past the glittering, illuminated bridge like the wind.\
-Seeing how familiar she was with it, I wondered if this might be Yui-san's regular driving route.
+"Before you and I met again, I used to go on drives alone a lot. Being home by myself sometimes got me down. When I'm driving, I don't have to think about anything, and it clears my head somehow."
 
-I want to remember this night. From tomorrow, our relationship would change. I couldn't begin to describe how much I'd longed for this day to come.
+The Rainbow Bridge came into view. We sped past it like the wind, the bridge lit up and sparkling.\
+The ease with which she navigated it made me wonder if this might have been Yui-san's regular driving route.
 
-Perhaps there had been crushingly difficult nights leading up to this moment. How many times had Yui-san driven along this road during those times?
+I wanted to remember this night. Starting tomorrow, our relationship would change. I couldn't count how long I'd waited for this day to come.
 
-I mustn't forget. The days of blood, sweat and tears you've poured into building this for me, the foundation upon which our happiness now stands — I absolutely will not forget.
+There might have been nights of despair along the way to this point too. How many times, each time, had Yui-san driven down this very road?
 
-　After crossing the Rainbow Bridge, Yui-san parked the car in a lot right near the seaside park.
+I wanted to hold onto it — never forget the blood, sweat, and tireless effort you poured in for my sake, and that this happiness now stands on top of all of it. I will never, ever forget it.
 
-"Since we're here, let's explore a bit."
+Past the Rainbow Bridge, Yui-san parked in a lot right near the seaside park.
 
-Stepping out, I caught the scent of the sea in the still-chilly spring night breeze.\
-Hand in hand, we walked along the coast towards the sandy shore. In the distance, the Rainbow Bridge we'd just crossed was visible. The city lights reflected on the water, sparkling and shimmering.
+"Since we're already here, let's explore a bit."
 
-"It is a bit chilly, isn't it?"
+Stepping out of the car, I caught the smell of salt on the still-chilly spring night air.\
+We walked hand in hand along the coastline toward the beach. In the distance, we could see the Rainbow Bridge we'd just driven past. The city lights reflected off the water's surface, glittering.
 
-"Well, it is the sea."
+"It's still a bit cold, huh."
 
-"Kanata, are you cold? Shall we go back?"
+"Well, it's the ocean."
 
-"No. I'd like to stay here a little longer."
+"Are you cold, Kanata? Should we head back?"
 
-At that, Yui-san embraced me from behind, as if to warm me. I gently squeezed her arms.
+"No. I want to stay here a little longer."
 
-"...Hey, Yui. What do you want to do from now on?"
+At that, Yui-san hugged me from behind as if to warm me. I gently held onto the arms wrapped around me.
 
-What future did Yui envision? Right now, I wanted to talk about the future. Not just tomorrow, but a brighter future further ahead.
+"...Hey, Yui-san. What kind of things do you want to do, going forward?"
 
-"From now on? Hmm... I'd like to travel. I want us to go to lots of places together. Is there somewhere you'd like to go, Kanata?"
+I wondered what future Yui-san pictured for herself. Right now, I wanted to talk about the future. Not tomorrow, but further ahead — a brighter, more distant future.
 
-"Of course I do. I want to visit every single place in Japan."
+"Going forward? Let's see... I want to travel. I want to go all kinds of places, together. Is there anywhere you want to go, Kanata?"
 
-"Everywhere? Well then, why not buy a camper van and go on a trip to conquer every aquarium in Japan?"
+"Of course there is. I want to go everywhere in Japan. All of it."
 
-"That sounds brilliant. Let's buy a map of Japan and colour in each place as we go."
+"All of it? Then maybe we should buy an RV and do a trip to hit every aquarium in Japan?"
 
-"What will we do after conquering all forty-seven prefectures?"
+"That sounds great. Let's buy a map of Japan and fill it in, one prefecture at a time."
 
-"Then next, let's go travelling overseas. If it's an English-speaking country, leave it to me."
+"And after we've conquered all forty-seven prefectures, what then?"
 
-"You're so dependable. Thinking about it like this... the future is full of nothing but things to look forward to. Being with you, Kanata, makes me feel like anything could come true."
+"Then next, let's go abroad. Anywhere English-speaking, leave it to me."
 
-We had finally reached the point where we could talk about the future like this.\
-From that spring day when I first met Yui-san at the airport — six years were about to pass.
+"As expected, so reassuring. Thinking about it like this... there's really nothing but things to look forward to from here, isn't there. Being with you, Kanata, it feels like anything could come true."
+
+We'd finally reached the point where we could talk about the future like this, the two of us.\
+Since that spring day I first met Yui-san at the airport — six years had nearly passed.
 
 "...Hey, Yui-san."
 
-"Hmm?"
+"Yeah?"
 
-"...I never knew happiness could feel like this."
+"...I didn't know happiness like this could exist."
 
-"It's true. It still feels like a dream. When we first met, I never imagined Kanata would ever like me."
+"I know. It's still like I'm dreaming. When we first met, I never dreamed, even in my wildest dreams, that you'd come to love me."
 
-"I never imagined I'd meet someone I could like this much either. It's because it's you, Yui-san, that I feel this way."
+"I never thought I'd meet someone I could love this much either. It's because you're you, Yui-san, that I fell this deeply in love."
 
-"It's the same for me. It's because it's you, Kanata, that I feel this way. I'm so glad I didn't give up."
+"Same here. It's because you're you, Kanata, that I fell this deeply. I'm so glad I never gave up."
 
-I turned to look into her eyes.
+I turned to face her, looking into her eyes.
 
-"Yui-san. From now on, please rely on me more. No matter what happens, I'll always be by your side."
+"Yui-san. From now on, please rely on me more. No matter what happens, I'll be right here beside you."
 
-I clasped her left hand tightly in both of mine. Please let my feelings reach you straight and true.
+I took Yui-san's left hand and held it tightly in both of mine. Please, let this feeling of mine reach you, straight and true.
 
-"I want to live with you, Yui-san, for the rest of my life."
+"I want to keep living my life together with you, Yui-san. From now on, forever."
 
-　I gazed into her deep, dark eyes, like a calm night sea. Then Yui smiled happily.
+I gazed into eyes as deep and dark as a calm night sea. Yui-san smiled, looking happy.
 
-"...Kanata, that kinda sounds like a proposal, doesn't it? My heart just skipped a beat."
+"...Kanata, isn't that kind of like a proposal? My heart's racing right now."
 
-"Eh?"
+"Huh?"
 
-I hadn't meant it that way, but hearing her say that suddenly made me feel embarrassed. Seeing my reaction, Yui laughed, took my left hand, and kissed my ring finger.
+I hadn't meant it that way at all, but hearing her say it, I suddenly felt embarrassed. Yui-san laughed at my reaction, took my left hand, and pressed a kiss to my ring finger.
 
-"I-I didn't mean it like that..."
+"T-that's not what I meant by it..."
 
-"Thank you, Kanata. I feel the same way. But I'd like to be the one to propose. Wait for me, and expect it."
+"Thank you, Kanata. I feel exactly the same way. But I want to be the one to propose. So look forward to it, and wait for me."
 
-Saying that, Yui peered into my eyes and smiled defiantly. Flustered, I pushed her shoulder away as she drew near.
+Saying that, Yui-san looked into my eyes with a bold, confident smile. Flustered, I shoved her shoulder back as she leaned in close.
 
-"Now, that's not it. That just now wasn't a proposal, I tell you!"
+"That's not — I mean it, that wasn't a proposal!"
 
-As if to brush it off, Yui laughed out loud, ahaha. In her eyes, there wasn't a shred of anxiety left.
+I said it trying to brush it off, and Yui-san burst out laughing. In her eyes, there wasn't a trace of anxiety left — not even a single fragment.
 
-With the sound of the waves as our background music, we pressed our chilled lips together in a kiss that was nothing more than a touch.
+With the sound of the waves as our backdrop, we leaned in, lips cooled by the sea breeze, and shared a light, chaste kiss.
 
-Then we looked at each other and laughed, clasping each other's hands tightly, firmly, and strongly.
+Then we looked at each other and laughed, gripping each other's hands tightly, firmly.

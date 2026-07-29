@@ -1,255 +1,258 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
-sequence: 112
-title: "Episode 105: Yui, Please, Don't Cry"
+sequence: 113
+title: "Episode 105: Yui-san, Please, Don't Cry"
 ---
-Episode 105: Yui, Please, Don't Cry
+## Episode 105: "Yui-san, Please, Don't Cry"
 
+\
 I had a dream.
 
-In a pitch-black cinema with no entrances or exits, I sat alone before a colossal screen.
+Inside a movie theater with no doors, no exits at all, cast in pitch darkness, I sat alone in front of an enormous screen.
 
-Gazing at the pure white screen, devoid of any image, a figure gradually emerged.
+Staring at the blank white screen, showing nothing, a silhouette gradually began to surface.
 
-Long black hair. Swaying in the spring breeze. She gazed at me and smiled, looking slightly younger than she does now, still the image of the schoolgirl I first fell in love with.
+Long black hair. Swaying in a spring breeze. She looked at me and smiled, a little younger than she is now — still the girl I fell in love with for the first time back in our school days.
 
-　Fragmented images, as if pieced together, were projected one after another, only to vanish.
+Fragmented images, stitched together, projected one after another, then faded away.
 
-So this is my memory, then—
+Ah, I see. These are my memories.
 
-The day I first met Yui-san at the airport. I found myself captivated by her beauty as she spotted me and smiled.
+The day I first met Yui-san at the airport. Catching sight of her smile the moment she found me, I found myself entranced by her beauty.
 
-　Seated in the passenger seat of a sleek, shiny black luxury car, I gazed at her perfectly chiselled profile throughout the journey home.\
-Her mesmerising dark eyes, her straight, refined nose, her soft, beautifully shaped lips, and the delicate line of her jaw were all terrifyingly captivating.
+Riding in the passenger seat of her glossy black luxury car on the way to her house, I kept staring at her perfect profile.\
+Her dark eyes, drawing me in; the clean line of her nose; her soft, well-shaped lips; the delicate line of her jaw — every part of her caught my eye with an almost frightening intensity.
 
-It was so striking, it remains seared into my mind even now. That's how profoundly impactful that encounter was.
+Vivid, still burned into my mind even now, refusing to fade. That's how overwhelming meeting her was.
 
-　The nights you stayed up with me, when homesickness kept me awake.\
-The gentle taste of sweet, honeyed hot milk.
+*
 
-When I felt lonely, you always held me gently.
+The night she stayed up with me, homesick and unable to sleep.\
+The gentle taste of sweet hot milk with honey.
 
-Whenever I said I was hungry, you'd smile and make me a late-night snack.\
-I loved watching your profile as you stood in the kitchen, a highball in hand.
+Whenever I was lonely, she always held me gently.
 
-　Our first kiss, tasting of grapefruit.
+Whenever I said I was hungry, she'd always laugh and make me a late-night snack.\
+I loved watching her profile as she stood in the kitchen, highball in hand.
 
-The night after we argued, that first ache in my chest, that heart-wrenching loneliness.
+Our first kiss, tasting faintly of grapefruit.
 
-The huge orca at the aquarium. The sparkling spray reflecting the summer sunlight. The taste of seawater.
+The night after we fought, the first time I ever felt that tight, aching loneliness in my chest.
 
-The fireworks we saw from the hotel on a summer night. The scent of your perfume as you held me close.
+The huge orca we saw at the aquarium. Water droplets glittering, catching the summer sunlight. The taste of sea spray.
 
-　The day I stopped you from leaving home, leaving me behind, and said "Don't go" for the first time.
+Fireworks we watched from the hotel one summer night. The scent of her perfume as she held me.
 
-Christmas when you gave me the necklace Yui-san had treasured.\
-At the planetarium we watched side by side, we promised to go somewhere together someday where the stars would look beautiful.
+The day I stopped her from walking out and leaving me behind, and finally managed to say "don't go" for the first time.
 
-That sweet yet aching night we first became one.
+Christmas, when Yui-san gave me the necklace she'd always treasured.\
+The planetarium we watched side by side, promising each other that someday we'd go somewhere with a beautiful view of the stars.
 
-　Then — the look of utter despair on your face the moment I screamed, "I hate you!"
+The bittersweet night we first shared our bodies together—
 
-The strength of your arms holding me the day before we parted, and the feel of those cold tears — more eloquent than words in their sorrow — I remember them still, always.
+And then — the devastated look on your face, the moment I screamed "I hate you."
 
-Memories flashed by like a digest, projected onto a screen only to vanish. These were the fragments of memories I had carefully tucked away.
+The day before we broke up, the strength of the arms that held me, and the feel of your cold tears, speaking of your sorrow more eloquently than any words ever could — I still remember it, even now.
 
-　Somehow it felt like a life review, I thought, caught between dream and reality.
+The memories raced past like a highlight reel, projected onto the screen one after another before fading out. These were the fragments of memory I'd carefully tucked away.
 
-It was the love of a lifetime, the kind that made me forget how to breathe.\
-It was the kind of love that left me crying, screaming, covered in wounds.
+*It's kind of like a life flashing before my eyes,* I thought, somewhere in that hazy space between dream and reality.
 
-Even so — meeting you was the greatest fortune of my life.
+It had been a once-in-a-lifetime love, the kind that made you forget how to breathe.\
+A love that left you crying, screaming, covered in wounds.
 
-Then, abruptly, the images on the screen cut off.
+And still — meeting you was the single greatest stroke of luck in my whole life.
 
-　Wait. Please, don't end here. This story still has more to tell. We're still chasing what comes next, even now.
+Right then, the image on the screen cut off abruptly.
 
-I wanted to see more of the continuation, but someone was calling me.
+Wait. Please, don't end here. This story still has more to it. We're still chasing after what comes next, even now.
 
-Just as the screen's light faded and I was about to sink into darkness, someone gripped my hand tightly, so tightly.
+I wanted to keep watching, but someone was calling my name.
 
-＊＊＊
+Just as even the screen's light was going out, and I felt myself sinking into darkness, someone gripped my hand — tight, tightly.
 
-An unfamiliar, stark white ceiling flooded my vision, and I instantly realised I wasn't at home.
+***
 
-A moment later, sharp pain shot through my head and then my entire body, making me groan involuntarily.
+An unfamiliar white ceiling filled my vision, and I realized immediately this wasn't my own home.
+
+A moment later, a sharp pain hit my head, then my whole body, and I let out an involuntary groan.
 
 "Kanata...!"
 
-Still unsure what had happened, I turned my gaze towards the voice.
+Not understanding what had happened, I turned only my eyes toward the voice.
 
 "Yui-san...?"
 
-Softly, she called my name. Her voice cracked, failing to form words.\
-I noticed her left hand was warm, gripping mine tightly. How long had she been holding my hand like this? Her palm was damp with sweat.
+I said her name, quietly. It came out too hoarse to really be a voice.\
+I noticed my left hand was warm, held tightly. How long had she been holding my hand like this? Her palm was damp with sweat.
 
-Yui-san stood there, her eyes bloodshot.
+Yui-san was there, her eyes red.
 
-　Though she must have left this morning wearing a suit without a single crease, the white blouse peeking from her rolled-up sleeves was rumpled, damp and translucent from repeated wiping of tears.
+She'd left that morning in a suit without a single wrinkle, but the white blouse peeking out from her rolled-up sleeves was crumpled, soaked through and gone translucent — from wiping away tears again and again, it seemed.
 
-With each blink, large tears overflowed, streaming down her pale cheeks, tracing her slender jawline before plopping to the floor.
+Every time she blinked, fat tears welled up and spilled over, running down her pale cheeks, tracing the line of her slender jaw, dripping down.
 
-　Why was she crying? I wanted to wipe her tears and reached out to her cheek, but my arm felt astonishingly heavy, and my elbow ached terribly. Unable to bear it, I grimaced in pain. My hand flopped back onto the futon.
+Why was she crying? I wanted to reach up and wipe her tears away, but my arm was shockingly heavy, and my elbow ached so badly I couldn't bear it, my face twisting with the pain. My hand flopped back down onto the blanket.
 
 "Yui-san, the meeting... what happened?"
 
-When I asked, Yui-san shook her head from side to side.
+I asked, and Yui-san shook her head side to side.
 
-"That doesn't matter. I heard Kanata fell down the stairs... and was taken away in an ambulance, so..."
+"None of that matters. I heard you fell down the stairs... that you were taken away in an ambulance, so..."
 
-I clearly remembered talking to Kitakami-san on the emergency staircase.\
-When he shook off my hand as I tried to stop him, I lost my balance — so that's it, I fell down the stairs.
+I clearly remembered up until the point I'd been talking with Kitagami-san on the emergency stairs.\
+He'd shaken off the hand I'd reached out to stop him with, and I'd lost my balance — right, I'd fallen down the stairs.
 
-Beyond that, my memories were only fragments here and there... vague.
+Everything after that was only fragmented, scattered pieces of memory... hazy.
 
-　Looking out the window, the sun was already beginning to set, casting a crimson glow into the hospital room.
+Looking out the window, the sun was already starting to set, amber evening light spilling into the hospital room.
 
-Could it be... she snuck out to come here...?\
-She had an important meeting today, surely.
+Had she really — slipped away to come here?\
+Today was supposed to be that important meeting.
 
 Yui-san kept wiping her tears with her sleeve, crying.
 
-"Your eyes are bright red. Have you been crying this whole time...?"
+"Your eyes are so red. Have you been crying this whole time...?"
 
-"But... I was scared. The doctor said there was no need to worry, but still..."
+"Because... I was scared. The doctor said there's nothing to worry about, but still..."
 
-"Yui, please, don't cry."
+"Yui-san, please, don't cry."
 
-Yui knew better than anyone the grief of losing someone dear.\
-And yet, how much anxiety had my careless injury caused her?
+Yui-san understands the grief of losing someone precious better than anyone.\
+And here I'd caused her this much anxiety, just from carelessly getting hurt.
 
-My chest ached as if being squeezed, and I felt like crying myself.
+My chest tightened painfully, and I felt like I might start crying too.
 
-　I wanted to hold her, but it seemed I’d hit and scraped various places besides my head when I fell down the stairs, and my body wouldn’t move as I wished.
+I wanted to hold her, but from the fall down the stairs, it seemed I'd hit and scraped myself in various places besides just my head, and my body wouldn't move the way I wanted it to.
 
-"I’m sorry for causing trouble on such an important day..."
+"I'm sorry... for causing trouble on such an important day."
 
-"No. I’m just glad you’re safe, Kanata. I’m truly relieved... You were with Shinji, weren’t you? If he’d done anything to you, we’d have gone straight to the police..."
+"No. I'm just glad you're okay. Really, so relieved... You were with Shinji, weren't you? If he did anything to you, I'll go straight to the police—"
 
-"No, it's not like that. Kitakami-san isn't to blame."
+"It's not like that. It's not Kitagami-san's fault."
 
-I wasn't covering for him; it was the truth. Kitakami-san had merely pushed my arm away; he hadn't shoved me down. I'd just lost my balance.
+I wasn't covering for him — it was the truth. He'd only shaken off my arm; he hadn't pushed me. I'd simply lost my footing.
 
-I remembered him reaching out to stop me as I fell. It absolutely wasn't deliberate. This was an accident that happened by chance.
+I remembered him reaching out, trying to catch me as I fell. It absolutely wasn't intentional. This had been a pure accident.
 
-"More importantly, are you really alright? You just walked out of the meeting midway..."
+"More importantly, are you really all right? You walked out on the meeting halfway through..."
 
-"I'm fine. I told Father I was going home because Kanata got hurt. I've contacted Yuki-nii too."
+"It's fine. I told Dad I was leaving because you'd gotten hurt. I've already contacted Yuki-nii too."
 
 "I see..."
 
-Oh dear, I've done it now. It was such a rare chance for a family dinner together, and I've ruined it.
+Ah, I really messed up. It had been such a precious chance for a family dinner, just the three of them, and I'd ruined it.
 
-Right, I must tell Yui-san what Kitakami-san said. Just as I tried to sit up, Yui-san hurriedly pressed my shoulder to stop me.
+Right, I needed to tell Yui-san what Kitagami-san had said. Thinking that, I tried to sit up, but Yui-san hurriedly pressed my shoulder down to stop me.
 
-"Kanata. You mustn't sit up. You're being admitted to hospital today."
+"Kanata. Don't sit up. You're being admitted starting today."
 
-"Eh? Hospital? But it's just a minor injury..."
+"What, admitted? It was just a minor injury..."
 
-"It's not just a little. You'll be shocked when you look in the mirror later. Your whole body's covered in bruises. Lucky none of your bones were broken though..."
+"It's not minor. Just wait until you see yourself in a mirror later, you'll be shocked. You're covered in bruises head to toe. We're lucky nothing was broken, but..."
 
-Hearing that, I touched my head where I'd been hit. I'd only thought I'd got a bump, but apparently the injury was worse than I'd realised.
+Hearing that, I reached up to touch where I'd hit my head. I'd thought I'd just gotten a bump, but apparently the injury was worse than I'd realized.
 
-"Is that so? I'm sorry to trouble you when you're so busy. But more importantly... Yui, about Kitakami-san..."
+"I see. I'm sorry, when you're so busy... more importantly — Yui-san, about Kitagami-san, there's something—"
 
-The moment I said that, a knock sounded and the hospital door swung open. Realising someone had entered, I turned my neck, which creaked as if it might snap, towards the door.
+Right as I said that, there was a knock, and the hospital room door opened at the same moment. Realizing someone had come in, I turned my aching, creaking neck toward the door.
 
-There stood a tall man, clad in an expensive-looking black pinstripe suit.\
-The Ichinose Group company emblem gleamed on his lapel. His brows were sharply defined, his glossy black hair slicked back in an all-back style. His rugged features were almost Doberman-like.
+Standing there was a tall man, dressed in an expensive-looking black pinstripe suit.\
+The Ichinose Group's company pin gleamed on his chest. Sharp, well-groomed eyebrows, glossy black hair swept back. A sharp, refined face, almost like a Doberman.
 
-"Father..."
+"Dad..."
 
-"Eh..."
+"Oh..."
 
-He quietly closed the door with a soft click and stared intently at me. His eyes were the same colour as Yui-san's.\
-I recalled an old photograph Father had shown me long ago.
+He quietly closed the door behind him and looked steadily at me. His eyes were the same color as Yui-san's.\
+I remembered the old photograph her father had shown me once before.
 
-　This man — Yui-san's father.
+This person — was Yui-san's father.
 
-Feeling it was hardly appropriate to remain lying down, I tried to sit up again, only to be stopped once more by Yui-san pressing down on my shoulders.
+Feeling it would be rude to stay lying down, I tried to sit up again, only to be stopped once more by Yui-san's hand on my shoulder.
 
-"Kanata, I told you not to sit up!"
+"Kanata, I said don't sit up."
 
-"Bu-but... I'm sorry for staying down, President Ichinose..."
+"B-but... please excuse me for staying like this, President Ichinose..."
 
-"Don't worry about that. More than anything, I'm truly sorry for injuring you during work. To injure your precious daughter... I can't even face Aosawa."
+"Please, don't worry about that. More importantly, I'm truly sorry you were injured while at work. To think my own daughter's important person got hurt like this... I can hardly face Aozawa's family."
 
-"...No, it was my carelessness."
+"...No, it was my own carelessness."
 
-His features were so well-defined that at first glance he'd seemed almost intimidating, like a hunting dog. But speaking with him, his manner was incredibly gentle.\
-He really was Yui-san and Yukiyasu-san's father. Realising that, I felt a little relieved.
+With such sharp, well-defined features, my first impression of him had an intimidating quality, almost like a hunting dog — but once he actually spoke, his manner was remarkably gentle.\
+He really is Yui-san and Yukiya-san's father, I thought, and that realization put me a little more at ease.
 
-　President Ichinose glanced suddenly at Yui. Noticing her eyes, red from crying, he smiled wryly and ruffled her hair.
+President Ichinose's gaze drifted to Yui-san. Noticing her eyes, red from crying, he let out a helpless laugh and ruffled her hair.
 
-"What's that face for? It's rather unbecoming. Yui, if you look so helpless, Kanata-chan will only worry more. Pull yourself together."
+"What's with that face, it's unbecoming. Yui, if you're this unreliable, Kanata-chan here is going to worry too. Pull yourself together."
 
 "...Stop it, Dad."
 
-　Yui-san pushed his hand away, clearly annoyed. Seeing this glimpse of the father-daughter dynamic in the Ichinose household, I couldn't help but smile.
+Yui-san swatted his hand away, looking annoyed. Getting a glimpse of this father-daughter exchange between the Ichinoses, I couldn't help but relax a little, a smile tugging at my cheeks.
 
-"Um, President Ichinose. I'm terribly sorry for ruining today's meeting and the dinner gathering, which was such a special occasion..."
+"Um, President Ichinose. I'm so sorry — because of me, today's meeting and the dinner you had planned both fell through..."
 
-Please, I begged silently, staring into his eyes, hoping he wouldn't scold her.
+Please, don't scold Yui-san. I looked up at him, my eyes pleading with that hope.
 
-　I know full well how crucial the presidents' meeting is. Moreover, this one was the culmination of a year's work. I understand perfectly well what it means for the president to skip it on the day itself.
+I knew how important the presidents' meeting was. And this time especially, being the meeting that capped off the whole year's results — I wasn't unaware of what it meant for the president to walk out on it on the very day.
 
-"...True, as the president entrusted with the company, there are inevitably times when work must take precedence over private matters. But regarding this occasion, I have no intention of blaming Yui. Please rest assured. Everyone has things more important than work. That... I understand all too well."
+"...Certainly, as long as she's entrusted with running the company as president, there will always be times she has to prioritize work over her personal life. But as for this particular case, I have no intention of blaming Yui, so please don't worry. Everyone has something more important to them than work. That... I think I understand that more painfully than most."
 
-My chest ached sharply. I recalled a story Yui had told me before. About when her mother passed away.
+A sharp ache ran through my chest. I remembered what Yui-san had told me before — about the day her mother passed away.
 
-That day, Yui's father had an important meeting. So he couldn't return to his unwell family. As a result, on the way to the hospital, the car driven by Yui's mother was involved in an accident.
+That day, Yui-san's father had had an important meeting. So he hadn't been able to go home to a family member who wasn't feeling well, and as a result, on the way to the hospital, the car Yui-san's mother had been driving got into an accident.
 
-The fact that Yui's father couldn't return home wasn't the direct cause of the accident. Objectively speaking, I believe it was pure coincidence.\
-Even so, it's human nature to feel regret over one's actions. How deeply must Yui's father have regretted prioritising his work?
+Her father's inability to come home wasn't the direct cause of the accident. Objectively, it really was just a coincidence.\
+And yet, humans are the kind of creatures who can't help but regret their own actions regardless. How much must Yui-san's father have regretted prioritizing work that day.
 
-That's why I thought – surely Yui's father wouldn't blame her.
+That's why — I thought — Yui-san's father probably wouldn't blame Yui-san for this.
 
-"And actually... after the directors' meeting ended, Shinji came to see me. He told me everything about the two of you. To be honest, I'm bewildered. Part of me finds it hard to believe."
+"And actually... after the presidents' meeting ended, Shinji-kun came to see me. He told me everything, about the two of you. Honestly, I'm still processing it. Part of me finds it hard to believe."
 
-A sensation like the blood draining from my face washed over me.\
-I'd been beaten to the punch. Realising this, I clenched my teeth in frustration.
+I felt the blood drain from my face all at once.\
+He'd gotten there first. Realizing he'd beaten us to it, I bit my lip in frustration.
 
-　Kitakami-san clearly has no grasp of how deeply sinful it is to betray someone's sexual orientation.
+Kitagami-san had no idea how deeply wrong it was to out someone else's sexual orientation without their consent.
 
-Anger welled up inside me, staining my vision crimson.
+Rising anger flooded my vision with red.
 
-Yui remained bowed, her face still lowered.
+Yui-san kept her head down, not lifting her face.
 
-I didn't know how Kitakami-san had relayed our situation to President Ichinose.
+I didn't know exactly how Kitagami-san had presented things to President Ichinose.
 
-But I wanted Yui to be the one to tell him.
+But I'd wanted it to be Yui-san's own words that told him.
 
-　As if to reassure us in our silence, President Ichinose continued in a low, steady voice.
+As if trying to reassure the two of us, now fallen silent, President Ichinose continued in a low, composed voice.
 
-"...Of course, I have no intention of making a judgement based on just one side's account. Kanata-chan, once your injury has healed, we'll discuss this again then. Yui, is that alright with you too?"
+"...Of course, I have no intention of making a judgment based on hearing only one side of the story. Kanata-chan, once your injuries have healed, let's talk about this properly again. Yui, that works for you too, right?"
 
-"Father."
+"Dad."
 
-Yui-san squeezed my hand tightly. Then she lifted her face from its lowered position.
+Yui-san gripped my hand tightly. And lifted her bowed head.
 
-"...I'm serious."
+"...I'm serious about this."
 
-At those words, President Ichinose said nothing, merely staring intently into Yui's eyes. I couldn't tell if that gaze was affirmative or negative.
+At those words, President Ichinose said nothing, only looking steadily into Yui-san's eyes. Whether that look held approval or disapproval, I couldn't tell.
 
-"I understand. Yui, we'll talk about that another time. More importantly, let's let her rest now. And have you properly contacted Aosawa? He must be terribly worried. An employee was injured during work. As president, you must fulfil your responsibilities properly."
+"I understand. Yui, we'll talk about that another time. For now, let's let her rest. And — have you properly let Aozawa's family know? They must be worried. An employee got injured while on the job. Make sure you fulfill your responsibilities as president properly."
 
-Yui-san, addressed in that calm, admonishing tone, nodded obediently.
+Said in that calm, admonishing tone, Yui-san nodded obediently.
 
-"And... after hearing from Shinji-kun today, I also spoke with Yukiyasu. He bowed his head and asked me to listen to both of their sides before making a judgement."
+"And also... after hearing everything from Shinji-kun today, I spoke with Yukiya too. He bowed his head to me, asking that I hear the two of you out first before making any judgment."
 
-Yui-san looked up, startled.\
-　Yukiyasu-san, for our sake — he went that far. A warmth spread deep within her chest.
+Yui-san's head snapped up.\
+Yukiya-san had gone that far, for our sake. Something warm welled up deep in my chest.
 
-"...How many years had it been since I last spoke with Yukiyasu? I was delighted. Your father was also skilled at connecting people, but you two are truly alike. Kanata-chan, it's all thanks to you. Thank you."
+"...I wonder how many years it's been since I last talked with Yukiya. It made me happy. Your mother was always good at bringing people together too, but you two are truly so alike, aren't you, father and daughter. Kanata-chan, this is thanks to you. Thank you."
 
-"No, I didn't do anything..."
+"Oh, no, I didn't do anything..."
 
-As she protested, President Ichinose gave a soft, gentle smile. I’d always thought Yui-san took after her mother, but that smile was remarkably like hers.
+As I denied it, President Ichinose gave a soft, gentle smile. I'd always thought Yui-san took after her mother, but that smile of his was remarkably like Yui-san's own.
 
-“Right then, I shouldn’t overstay my welcome. I’d best get back to the office. Yui, I’m counting on you for Kanata-chan.”
+"Well, I shouldn't overstay my welcome, I should get back to the office. Yui, I'm counting on you to look after Kanata-chan."
 
-“…Yes, I understand.”
+"...Yeah, I know."
 
-Yui-san held my hand tightly and gave a single, firm nod.
+Still gripping my hand, Yui-san nodded, just once.

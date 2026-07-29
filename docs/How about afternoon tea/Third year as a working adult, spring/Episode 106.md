@@ -1,226 +1,229 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
-sequence: 113
-title: 'Episode 106: Even if it hurts, hold me tight'
+sequence: 114
+title: "Episode 106: It's Okay If It Hurts, Just Hold Me"
 ---
-Episode 106: Even if it hurts, hold me tight
+## Episode 106: "It's Okay If It Hurts, Just Hold Me"
 
-"Ouch..."
+\
+"Ow, ow..."
 
-"Are you alright?"
+"You okay?"
 
-Yui peered at my face with concern as she slowly peeled off the plaster stuck to my elbow.
+Yui-san peeled the bandage off my elbow slowly, peering at my face with a worried look.
 
-　Having safely completed my five-day hospital stay without incident, I'd been staying at Yui's place for the past few days.
+I'd made it through five days in the hospital without any trouble, and for the past few days I'd been staying at Yui-san's place.
 
-Since I'd hit my head, I needed to be monitored for a while. Worried about me living alone, Yui suggested I stay at her house.
+Since I'd hit my head, they said I needed to be monitored for a while, and Yui-san, worried about me living alone, had suggested I stay with her.
 
-Even though I'd insisted I was fine to go back to work, Yui wouldn't allow it. As a result, I ended up using my paid leave to take an extra week off work.
+I'd told her I was fine to go back to work, but she wouldn't allow it, and in the end I used my paid leave to take an extra week off.
 
-　When I stared intently at my injured body in the mirror, I was genuinely shocked.\
-I have no recollection whatsoever of how I fell, but my body was covered in bruises and grazes. At first, even turning over in bed was excruciatingly painful.
+The first time I got a good look at my own injured body in the mirror, I was genuinely shocked.\
+I don't remember at all how I actually fell, but bruises and scrapes covered nearly every inch of my body — bad enough at first that even rolling over in bed was unbearably painful.
 
-My left arm was particularly badly swollen from the impact, and for a while I couldn't even lift it. I was so relieved it wasn't broken.
+My left arm especially had swollen badly from the impact, and I couldn't lift it for a while. I'm so glad nothing was broken.
 
-"It hurt terribly at first, but it seems the bleeding has stopped and the swelling's going down now, thank goodness."
+"It really hurt at first, but there's no more bleeding, and I'm glad the swelling's gone down."
 
-"That's good. Your wounds heal quickly, don't they, Kanata? ...I hope it heals nicely."
+"Good. You heal fast, huh, Kanata. ...I really hope it heals without leaving a scar."
 
-After changing my plaster, Yui-san took my arm and gently pressed her lips against the still-healing bruise mark on my left arm, as if cherishing it.
+After putting a fresh bandage on, Yui-san took my arm and pressed her lips gently against the still-healing bruise on my left arm, almost reverently.
 
-"It's fine. I've never had a scar left behind from an injury. Not yet, anyway."
+"It's fine. I've never had a scar stick around from an injury before. Not so far, anyway."
 
-"It's true, your skin is so pale and smooth, truly beautiful. ...That's probably why I feel so compelled to leave a mark. It's a bit like the urge to leave footprints in fresh snow. An impulse to mark you, I suppose."
+"That's true, your skin is so pale and smooth, really beautiful. ...Maybe that's why I want to leave marks on it so badly. Kind of like wanting to leave footprints in fresh snow. Like some impulse to mark you, I guess."
 
-Staring intently at my bruise with such a serious expression, she said this, making me want to laugh.\
-　Marking... Yui-san, you really must have been a wolf in a past life. That possessive streak of yours is something I find utterly irresistible, too.
+She said it with a completely serious face, staring intently at my bruises, and I nearly burst out laughing.\
+*Marking*, seriously... Yui-san must have been a wolf in a past life. Although, honestly, I can't help but love that possessive streak of hers.
 
-"...Yui-san, even back in school, you'd leave love bites on me whenever you got the chance, didn't you? Did you do the same to everyone? To mark them?"
+"...You know, back in school, you'd leave hickeys on me the second you got the chance. Were you doing the same thing to everyone else? For marking purposes?"
 
-When I asked teasingly, Yui-san flushed, looked up hurriedly, and shook her head.
+I asked it teasingly, and Yui-san's head snapped up, shaking side to side in a panic.
 
-"Of course not. I wouldn't do that."
+"No way. I never did that."
 
-"So, only me?"
+"So just me, then?"
 
-"Only you, Kanata. Because I didn't want anyone else to have you."
+"Just you. Because I never wanted anyone else to have you."
 
-"Hmm, I see. Even though you wouldn't make me your girlfriend back then, you had no qualms about giving me hope like that. I was constantly being toyed with by you, Yui-san, the whole time."
+"Hmm, is that so. You wouldn't even make me your girlfriend back then, and yet you kept doing things like that, leading me on — I was completely at your mercy the whole time, you know."
 
-　When I pouted my lips accusingly, Yui-san said, "Just forget about it," trying to brush it off, and gave a wry smile.
+I pouted, saying it accusingly, and Yui-san said "just forget about that already," dodging the subject with an awkward laugh.
 
-Even though it was in the past, Yui-san noticed I was starting to feel a little annoyed at the memory of her hanging out with other girls. She gently stroked my cheek and peered into my face.
+Noticing I was starting to sour a little, remembering that she'd fooled around with other girls back then even if it was ancient history, Yui-san gently stroked my cheek, peering into my face.
 
-"Right. Kanata, are you thirsty? Fancy something to drink?"
+"Oh, right. Kanata, are you thirsty? Want something to drink?"
 
-　Whenever I started to get moody, Yui-san always sensed it keenly and pre-emptively tried to cheer me up before things got worse.
+Whenever my mood was about to turn, Yui-san always caught onto it instantly and got ahead of it, working to win me back over before things got worse.
 
-Being simple-minded, I adored Yui-san for spoiling me like this, so I always cheered up easily.
+I'm simple enough that I always fall for it easily, because I love how she spoils me like this.
 
-"Is that alright? Then, hot milk..."
+"Is that okay? Then, some hot milk..."
 
-"Mm, understood."
+"Mm, got it."
 
-As nimble as ever, Yui-san immediately stood up and headed for the kitchen.
+Light on her feet as ever, Yui-san got right up and headed to the kitchen.
 
-After I was discharged from hospital, Yui-san took such good care of me. She cooked meals, washed my hair, dried it for me... though perhaps that wasn't much different from what she always does.
+Ever since I'd left the hospital, Yui-san had been fussing over me devotedly. Making meals, washing my hair, drying it for me afterward... though honestly, that's not too different from what she usually does anyway.
 
-Still, whether it was worry over my injury or not, I felt a little dissatisfied that she didn't hug me, not even when we slept together, nor now as we sat here in the living room.
+Still, worried about my injuries, she hadn't been holding me — not when we slept together, not even now, here in the living room — and that left me a little dissatisfied.
 
-　Just now, I tried subtly rubbing against her arm and pinching her left hand to hint at it, but Yui just smiled and looked away, not pulling me close like she usually does.
+I'd tried subtly rubbing against her arm and pinching her left hand earlier to make my case, but Yui-san just laughed and looked away, not pulling me in the way she usually would.
 
-Sure, some places still hurt, but I’m fine — she doesn’t need to fuss over me so much.
+I mean, sure, some parts still hurt, but she really doesn't have to be this careful with me.
 
-I tucked the elbow with the plaster into my clothes.
+I tucked my newly bandaged elbow back inside my sleeve.
 
-　While dangling my feet and waiting for hot milk, I suddenly reached for the box sitting on the coffee table.
+Swinging my legs while I waited for the hot milk, I remembered something and reached for a box sitting on the coffee table.
 
-Truth be told, I’d turned twenty-five while hospitalised.\
-Yui-san seemed terribly disappointed we couldn’t celebrate properly, but the birthday present I’d begged for was delivered to me by her own hands on the day itself.
+Actually, I'd turned twenty-five while I was in the hospital.\
+Yui-san had seemed so disappointed we couldn't properly celebrate, but the birthday present I'd asked for had still made it into my hands, delivered by Yui-san herself, right on the day.
 
-　When asked what kind of camera I wanted, I replied, "One that's cute, compact, and takes good pictures."\
-Despite such a vague request, the camera Yui gave me fulfilled every single one of my wishes.
+When she asked what kind of camera I wanted, I'd told her: "something cute, compact, and that takes good pictures."\
+Even though that request had been incredibly vague, the camera Yui-san gave me turned out to fulfill every single thing I'd hoped for.
 
-I take the small camera out of its box. A compact body, a large lens.\
-The black leather fits comfortably in my hand. It's simple, with a somewhat retro feel, and the red, round logo is really cute.
+I took the small camera out of the box. A compact body, with a large lens.\
+The black leather felt good in my hand, simple, with a somewhat retro feel, and the round red logo was so cute.
 
-　Yui-san is amazing. It's as if she knew exactly what I'd like without me even saying a word.\
-With this camera, I'll take lots of photos of Yui-san. I wonder what kind of wonderful pictures I'll be able to capture. My heart flutters with anticipation.
+Yui-san really is amazing. Even without me saying much, she always seems to know exactly what I'll love.\
+I'll take so many pictures of Yui-san with this camera. I wonder what kind of wonderful photos I'll end up with. My chest fluttered with anticipation.
 
-The microwave beeped, and Yui-san returned from the kitchen. I'd been waiting for this moment. Peering through the viewfinder, I framed her figure and clicked the shutter.
+The microwave beeped, and Yui-san came back from the kitchen. Waiting for exactly that moment, I peered through the viewfinder, caught her in frame, and clicked the shutter.
 
 "...What are you doing?"
 
-I smiled slightly at Yui, who tilted her head, still holding two mugs in her hands.
+She tilted her head, still holding a mug in each hand, and I laughed a little.
 
-"Test shots."
+"Test shot."
 
-After placing the two mugs of hot milk on the coffee table, Yui sat down beside me.
+She set the two mugs of hot milk down on the coffee table and sat down beside me.
 
-"Hey, Kanata. Since we couldn't properly celebrate your birthday, let's go on a trip sometime soon. Like we promised, take a long holiday."
+"Hey, Kanata. Since we couldn't properly celebrate your birthday, let's go on a trip sometime, to make up for it. Like we promised — take a long stretch of leave."
 
-"Sounds good. Since you've gone to the trouble of buying me a camera, I want to take loads of photos. Where shall we go?"
+"That sounds great. Since I've got this camera now, I want to take tons of pictures. Where should we go?"
 
-"There's somewhere I'd like to go. With you, Kanata."
+"There's somewhere I want to go. With you, Kanata."
 
-"Somewhere you'd like to go? Where is it?"
+"Somewhere you want to go? Where?"
 
-"That's still a secret. But I'm sure you'll love it, so will you let me choose the destination?"
+"That's still a secret. But I'm sure you'll love it, so can you leave the destination up to me?"
 
-"Alright. I'll look forward to it."
+"Okay. I'll look forward to it."
 
-I'm so excited. I need to get the hang of this camera properly before then.\
-As I peered intently at the LCD monitor, Yui gently pressed her lips to my temple.\
-When I looked up, Yui was gazing at me with such affection, smiling.
+I can't wait. I need to get good with this camera before then.\
+While I was earnestly peering into the LCD screen, Yui-san gently pressed her lips to my temple.\
+When I looked up, Yui-san was gazing at me with such fondness, smiling.
 
 "...Yui-san."
 
-"Hmm?"
+"Hm?"
 
 "Not there. Here."
 
-I tugged gently at the waistband of her sweatshirt and drew my face closer.\
-Yui-san looked slightly startled, but she seemed to realise my request immediately and gave me a kiss that merely touched my lips softly.
+I gave a light tug on the hem of her sweatshirt and leaned my face in close.\
+Yui-san looked a little surprised at first, but quickly seemed to catch onto what I was asking for, and gave me a soft, barely-there kiss on the lips.
 
-Her arms, which had gently wrapped around my waist, were clearly holding back for my sake, merely resting there without embracing me.
+The arm that wrapped gently around my waist was clearly holding back, resting there lightly instead of actually pulling me in.
 
-I simply couldn't bear it any longer. Still clutching her sweatshirt as she tried to pull away, I licked her lips with a soft smack.
+That alone wasn't nearly enough for me, so as she started to pull away, I kept a grip on her sweatshirt and, refusing to let her go, gave her lips a quick lick.
 
-Yui jerked her face away from me as though she'd been startled. See? She's holding back after all.\
-If I'd gone this far, the usual Yui would've beamed happily, grinning from ear to ear, and then cheerfully started undressing me.
+Yui-san jerked her face back from mine like something had sprung loose. See, she really is holding back.\
+If it had been the usual Yui-san, going this far should have had her grinning happily and eagerly stripping my clothes off by now.
 
-"...Yui-san, you've been acting strange ever since I got discharged."
+"...Something's been off about you ever since I got out of the hospital."
 
-"Eh? Really?"
+"Huh, you think so?"
 
-"You're usually all over me straight away. Where's that wolf-like Yui-san gone?"
+"You're always jumping me the second you get the chance — where'd that wolf version of you go?"
 
-"Wolf... Am I usually that aggressive?"
+"A wolf... am I really that aggressive, usually?"
 
-Seeing Yui-san give a wry smile, I couldn't help but laugh. She hadn't realised.
+Seeing her laugh awkwardly, clearly not even aware of it herself, I couldn't help but laugh too.
 
-"Well, you did say before that 'two weeks of waiting is impossible'."
+"I mean, you told me before, 'there's no way I could wait two whole weeks.'"
 
-"I'm not that shameless as to lay a hand on an injured person, you know!"
+"Even I'm not so shameless I'd make a move on someone who's injured!"
 
-"Hehe, I know. But... you could at least hug me, couldn't you? It makes me feel lonely when you keep such a distance."
+"Heh, I know. But... you could at least hold me, couldn't you? Keeping this much distance makes me lonely."
 
-"I want to hug you too. But I worry your body might still hurt..."
+"I want to hold you too. But I keep thinking your body might still hurt..."
 
-"...Even if it hurts, hold me."
+"...It's okay if it hurts. Just hold me."
 
-Saying that, I reached out both hands towards her. I could tell Yui-san took a slight gasp.\
-Her arms gently wrapped around my back, as if handling something fragile. After making sure I wasn't in pain, her embrace gradually tightened, until she held me firmly.
+I said it, holding both hands out toward her, and I could tell Yui-san caught her breath, just slightly.\
+Gently, as if handling something fragile, her arms came around my back. Once she'd confirmed I wasn't in pain, her arms gradually grew firmer, until finally she was holding me tightly.
 
-　I nestled my face against Yui-san's neck and closed my eyes.\
-My side where her arms touched actually hurt a little, but it didn't matter at all.
+I nestled into the curve of Yui-san's neck and closed my eyes.\
+My side ached a little where her arm pressed against it, honestly, but none of that mattered.
 
-I felt happy, my heart filling up.
+Happiness filled my heart completely.
 
-On the day I got injured, after Yui-san's father had left — I told Yui-san everything Kitakami-san had said to me.
+*
 
-Kitakami-san seemed unwilling to give up on marrying Yui-san. However, he proposed tacitly accepting our relationship instead, offering to be our cover.\
-And if we didn't conform to his desired form, he threatened to expose our relationship.\
-He already had evidence in his grasp.
+On the day I got hurt, after Yui-san's father had left — I'd told Yui-san everything Kitagami-san had said to me.
 
-A photo of us simply walking side by side would have been bearable.\
-But we gazed at each other with such obvious tenderness; that photograph captured us exactly as we were, our affection overflowing from our eyes. Anyone could see we were something special.
+Kitagami-san apparently has no intention of giving up on marrying Yui-san. Instead, he'd offered to turn a blind eye to our relationship and serve as our cover.\
+And if things didn't go the way he wanted, he'd threatened to expose us.\
+He already had evidence in hand, too.
 
-His proposal might not be such a bad deal. Perhaps it really is the choice that leaves no one unhappy.
+If it had just been photos of the two of us walking side by side, that would have been one thing.\
+But we'd been looking at each other with such obvious affection that the photos captured, exactly as they were, eyes practically overflowing with love. Anyone looking at them would understand immediately that this was no ordinary relationship.
 
-If I could just let go of my pride and swallow his demands, we could live quietly together, hidden from society, without having to hold back for anyone.
+His proposal might not actually be a bad deal. It might genuinely be the option that leaves no one unhappy.
 
-Marriage, without substance, is nothing but a piece of paper.
+If I just let go of my own stubbornness and accepted his terms, we could go on living quietly together, hidden from society, without owing anyone any explanations.
 
-　I know that.
+A marriage without any real substance to it is nothing more than a piece of paper, in the end.
 
-What Kitakami-san wants is just that 'piece of paper', not Yui-san herself. So it's obvious that once he gets that outward relationship, he won't say anything more.
+I know that.
 
-But it's not logic; my heart strongly rejects it. No matter how many angles I try to consider it from, the answer I reach is always the same.
+All Kitagami-san wants is that "piece of paper" — not Yui-san herself. So it's obvious that once he secures the appearance of a relationship, he won't say anything more.
 
-I absolutely cannot accept such a proposal.
+But logic aside, my heart rejects it completely. No matter how many different angles I try looking at it from, I always arrive at the same answer.
 
-　Just imagining Yui wearing the ring Kitakami-san gave her on her left ring finger makes my heart burn with jealousy.
+There's absolutely no way I could accept a proposal like that.
 
-I never wanted our relationship to be public. I don't need it recognised by the masses.
+Just imagining Yui-san wearing a ring Kitagami-san gave her, on her left ring finger, is enough to make my chest burn with jealousy.
 
-Even so, I don't want a third party intruding on my relationship with her. I don't need a fig leaf.
+It's not that I want to make our relationship public. I don't need everyone, indiscriminately, to accept us either.
 
-I trembled with fear at how Yui-san might react when I relayed Kitakami-san's proposal, but she merely snorted derisively and dismissed it outright.
+Even so, I don't want some third party inserting themselves into what's between me and her. I don't need a cover. I don't want one.
 
-Hearing those words, I felt profound relief. It was such a relief that she felt the same way—
+Nervous about how she'd react, I told Yui-san about Kitagami-san's proposal, and she scoffed, dismissing it outright with a "there's no way that's happening."
 
-　Closing my eyes, I felt her steady, rhythmic heartbeat throughout my body as I called out Yui-san's name.
+Hearing that, I felt real relief wash over me. I'm so glad we feel exactly the same way about this—
 
-"Hey, Yui-san. I'll be returning to work next week too. How about we go see your father soon? I'm sure he's waiting to hear from us."
+Eyes closed, feeling her heartbeat, steady and even, through my whole body, I said Yui-san's name.
 
-"I'm fine anytime, but are you really alright, Kanata? Not pushing yourself too hard?"
+"Hey, Yui-san. I'm going back to work starting next week, so — should we go see your father soon? I'm sure he's waiting to hear from us."
 
-"I'm fine. Let's finish everything and travel together without any worries."
+"I'm free whenever, but are you really okay now, Kanata? You're not pushing yourself?"
 
-"...Right. But before that, make sure you rest properly and let your injury heal, Kanata?"
+"I'm fine. Let's get everything settled, and then travel together without a worry in the world."
 
-I nodded.
+"...Yeah. But before that, make sure you actually rest and let your injuries heal properly, okay?"
 
-I'll make sure Yui-san's father properly recognises me.
+I nodded, yeah.
 
-And if possible, I hope we can find a mutually acceptable compromise with Kitakami-san too.
+I'm going to make sure Yui-san's father truly accepts us.
 
-　Even if that doesn't happen, our feelings won't change.
+And if possible, I hope we can find some resolution with Kitagami-san too — one we can both live with.
 
-I fell for someone who had an engagement.
+Even if that doesn't turn out to be possible, our feelings won't change.
 
-The feelings that built up over those four years apart were simply too immense. I couldn't wait even a single year for the engagement to be broken off.\
-I did something unreasonable. But I don't regret it.
+I fell in love with someone who already had a fiancé.
 
-　The memories we built together after connecting with Yui-san were an irreplaceably happy time.
+Four years of feelings, built up during the time we were apart, had grown so overwhelming that I couldn't wait the one remaining year until the engagement was broken off.\
+What I did wasn't right, by any reasonable standard. But I don't regret it.
 
-I am prepared to pay for my sins. I will neither run nor hide.
+The memories we've built up since our feelings for each other became mutual have been happier than anything else could ever replace.
 
-I cannot give Yui-san to Kitakami-san. Absolutely not.
+I'm prepared to pay whatever price this costs. I won't run, and I won't hide.
 
-So this time, let us settle this once and for all.
+I won't hand Yui-san over to Kitagami-san. Never.
 
-To gain the days where, no matter our age, we can walk hand in hand without caring what others think.
+So this time, for real, let's settle this.
+
+To finally win the days where, no matter how old we get, we can walk hand in hand without a care for anyone watching.
