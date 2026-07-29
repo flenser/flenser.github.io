@@ -146,7 +146,7 @@ Amid the taut, strained air, President Ichinose suddenly let out a short laugh. 
 
 Exasperated, but with something that looked genuinely happy underneath it, President Ichinose narrowed his eyes. It was the look of a father, filled with deep affection.
 
-"...It's only natural that Shinji-kun would be angry. For eight years, you've devoted yourself entirely to this company. I won't forget that debt."
+"...It's only natural that you would be angry, Shinji-kun. For eight years, you've devoted yourself entirely to this company. I won't forget that debt."
 
 Kitagami-san, who'd been staring blankly at Yui-san, slowly turned back to face President Ichinose. I couldn't tell what he was feeling, but his shoulders trembled faintly.
 
@@ -229,7 +229,7 @@ Yui-san gave a single nod.
 
 At President Ichinose's words, Kitagami-san looked up, startled.
 
-"See, good for you, Shinji. Well, case closed then. Congratulations, you two."
+"See? Good for you, Shinji. Well, case closed then. Congratulations, you two."
 
 Yukiya-san turned to face us, smiling with genuine happiness.
 

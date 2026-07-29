@@ -151,7 +151,7 @@ I hadn't intended to sit down and have a proper conversation anyway, so in a way
 
 At that, he released my arm, shoving it away roughly. I gently rubbed my upper arm, where the sensation of his grip still lingered.
 
-"I heard it from President Ichinose. That you two are inviting him and Yukiya to dinner after the presidents' meeting. You're planning to tell him today. Aren't you."
+"I heard it from President Ichinose. That you two are inviting him and Yukiya to dinner after the presidents' meeting. You're planning to tell him today. Aren't you?"
 
 "I'm not sure what you mean."
 
