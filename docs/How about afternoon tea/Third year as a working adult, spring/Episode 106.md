@@ -48,7 +48,7 @@ I asked it teasingly, and Yui-san's head snapped up, shaking side to side in a p
 
 "Just you. Because I never wanted anyone else to have you."
 
-"Hmm, is that so. You wouldn't even make me your girlfriend back then, and yet you kept doing things like that, leading me on — I was completely at your mercy the whole time, you know."
+"Hmm, is that so? You wouldn't even make me your girlfriend back then, and yet you kept doing things like that, leading me on — I was completely at your mercy the whole time, you know?"
 
 I pouted, saying it accusingly, and Yui-san said "just forget about that already," dodging the subject with an awkward laugh.
 
