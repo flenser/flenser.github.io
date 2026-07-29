@@ -10,7 +10,7 @@ title: 'Episode 9: Even a "Bathe Together" Flag Is Just Too Convenient!'
 
 \
 It's hot. Just relentlessly hot.\
-Why does summer in Japan have to be like this.
+Why does summer in Japan have to be like this?
 
 The living room, AC running.\
 I'm sprawled out on the sofa, staring up at the ceiling, completely wiped out.\
