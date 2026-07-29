@@ -125,7 +125,7 @@ Makina compares pork and beef with a dead-serious expression.
 "In that case, wouldn't cubed stew meat be even better? Big chunky pieces?"
 
 Despite going back and forth in this perfectly peaceful little debate, what ends up in the basket in the end is the beef short rib Makina grabs with a "yeah, this one" — decided entirely on her own.\
-Where did my opinion go.\
+Where did my opinion go?\
 ...Well. Whatever meat Makina picks is fine with me, honestly.
 
 ...Anyway.\
