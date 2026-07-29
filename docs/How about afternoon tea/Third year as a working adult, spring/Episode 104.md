@@ -1,243 +1,250 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
 sequence: 111
-title: "Episode 104: Because I thought I'd like to take loads of photos of Yui-san"
+title: "Episode 104: Because I Wanted to Take So Many Pictures of You, Yui-san"
 ---
-Episode 104: Because I thought I'd like to take loads of photos of Yui-san
+## Episode 104: "Because I Wanted to Take So Many Pictures of You, Yui-san"
 
+\
 The next morning.
 
-I awoke to Yui-san shaking my shoulder — someone who normally wouldn’t rise before me.
+I woke to Yui-san shaking my shoulder — someone who normally never wakes before me.
 
-“Kanata, good morning. It’s morning already.”
+"Kanata, morning. It's already morning."
 
-Her voice held a special sweetness reserved only for lovers, and the gentle press of her lips against my forehead made me slowly lift my eyelids.
+Her voice carried that special kind of sweetness reserved only for a lover, and the sensation of her soft lips pressed against my forehead had me slowly cracking my eyes open.
 
-After several blinks, I brought my focus to Yui-san looking down at me.\
-　The Yui captured in my vision was smiling — not a trace of yesterday's unease remained, her expression utterly cloudless.
+Blinking a few times, I brought Yui-san, looking down at me, into focus.\
+She was smiling, caught in my sight — yesterday's anxiety gone as if it had never existed, not a single cloud left on her expression.
 
-Rubbing my eyes, I headed to the living room. Breakfast was already laid out on the dining table.\
-I'd wanted to prepare it for her on a day like this, but I'd been a step too slow. I felt a pang of regret.
+Rubbing my eyes, I headed to the living room to find breakfast already laid out on the dining table.\
+I'd wanted to be the one to prepare it, on a day like today of all days, but I was a step too late — I noted the failure to myself.
 
-We sat facing each other and said, "Let's eat." Gentle spring sunlight filtered softly through the lace curtains.
+We sat facing each other, said "itadakimasu," and ate. Gentle spring sunlight filtered softly through the lace curtains.
 
-"Come to think of it, Kanata, your birthday's coming up soon. Is there anything you'd like this year?"
+"Oh, by the way, Kanata, your birthday's coming up soon, isn't it. Is there anything you want this year?"
 
-Nibbling on freshly toasted bread, generously soaked in butter, I looked up at Yui-san across from me.
+I glanced up at Yui-san across from me as I bit into freshly toasted bread soaked through with butter.
 
-As ever, Yui-san switches gears so quickly and effortlessly. Smiling brightly, she seemed completely back to her usual self, as if yesterday's shadow had been a lie.\
-　Yesterday's Yui-san was demure and utterly adorable, but honestly, I always want you to be smiling.
+As always, Yui-san shifts gears fast and clean. Smiling brightly, she'd fully returned to her usual self, as if yesterday's shadow had never touched her.\
+Yui-san yesterday, fragile and vulnerable, had been so endearing too, but still — I always want you smiling, no matter what.
 
-I swallowed the bread and gazed at Yui-san.
+I swallowed my bite of bread and looked at her.
 
-"...This year, I do. Just yesterday, I thought of something I'd really like."
+"...There is, actually, this year. There's something I happened to want, just yesterday."
 
 "Oh, really? What is it?"
 
-"I'd like a camera."
+"I want a camera."
 
 "A camera?"
 
-"Yes. When we go travelling together, I want to take loads of photos of you."
+"Yeah. Because when we go traveling together, I thought I'd want to take so many pictures of you, Yui-san."
 
-I wanted to capture and preserve countless everyday moments from now on. And I wanted to fill this living room with photos, filling it to the brim with countless memories.
+I wanted to capture and hold onto so much of our everyday life going forward. And fill this living room with photos, packed with more memories than I could ever count.
 
-"I see, a camera. That's nice. It sounds like it could be a lovely hobby."
+"I see, a camera, huh. That's nice — sounds like it could turn into a wonderful hobby."
 
-Yui-san said that and smiled happily.
+Yui-san said it, smiling happily.
 
-I wanted to capture that gentle gaze she gave me in a photograph.\
-　Whether a complete amateur could handle a camera well — well, I'd think about that after she bought it for me.
+I wanted to capture that gentle look in her eyes, the one fixed on me, inside a photograph.\
+Whether a total amateur like me could actually handle a camera well was a problem for after she'd bought me one.
 
-I saw Yui off to the front door, dressed in her immaculate, wrinkle-free suit.\
-With the directors' meeting today, Yui was heading straight to the parent company's building, so I couldn't go with her.\
-Yet, strangely, my heart felt calm. Because I knew there was no more hesitation in her eyes.
+*
 
-"I'll be late today... Go home first and wait here,"
+I saw Yui-san off at the door, dressed in a suit without a single wrinkle.\
+Today, with the presidents' meeting, Yui-san would be heading straight to the parent company's building, so I wouldn't be going with her.\
+But strangely, my heart felt calm. Because I could see, in her eyes, that there was no hesitation left in her anymore.
 
-Yui said as she put on her shoes. I nodded vigorously.
+"I'll be late today... so go on home ahead of me, and wait for me there."
 
-"Right then, I'll be off."
+Yui-san said it as she put on her shoes. I nodded firmly, yes.
 
-"Yes... Take care, Yui."
+"Well then, I'm off."
 
-No more words were needed.
+"Okay... have a good day, Yui-san."
 
-Simply, as if layering our feelings, I pressed my lips to hers, laden with tenderness.\
-　A kiss that lasted far longer than usual, simply touching.
+No more words were needed beyond that.
 
-Leaving home a little after Yui-san, I too set out.\
-Alighting at the station nearest my office, I walked my commute with a brightened heart.\
-The leaves of the verdant street trees shimmered, swaying in the soft spring breeze.
+Just, layering our feelings together, we pressed our lips together with all the affection we held.\
+We kissed, just touching, much longer than usual.
 
-It would soon be a year since joining Yui-san's company. So many things have happened since then. Listing them all would be endless.
+*
 
-Who could have imagined such a reunion, which felt like nothing short of divine mischief?
+A little after Yui-san, I left the house too.\
+Getting off at the station nearest the office, I walked my commute route with a light, sunny feeling in my chest.\
+The green leaves of the roadside trees swayed and shimmered in the soft spring breeze.
 
-No one knows what the future holds.
+It had been nearly a year now since I started working at Yui-san's company. So much had happened, truly. If I tried to list it all, there'd be no end to it.
 
-But no matter how dire the circumstances, simply being together, side by side, made us incredibly, immeasurably happy.
+Who could have possibly imagined a reunion that felt like nothing short of some divine mischief?
 
-So it'll be alright. Tonight, Yui will surely come home with a smile.
+No one can know what the future holds.
 
-I shall wait for her at that house. And when she returns, I resolved to hold her as tightly as I possibly could today.
+But even in the middle of whatever hardship we faced, just being there, close beside each other, had always, always made us happy.
 
-＊＊＊
+So it would be fine. Tonight, surely, Yui-san would come home smiling.
 
-The president's office, empty. I trace Yui-san's desk gently with my fingertips.
+I'd wait for her at that house. And when she came home, I decided, today I'd hold her as tightly as I possibly could.
 
-The board meeting starts at ten. Afterwards, Yui-san is scheduled to have a meal with her father and Yukiyasu-san.
+***
 
-　Given it was the day all the group's subsidiary presidents gathered, today should have been a peaceful one.
+The president's office, empty of anyone. I traced my fingertip gently along Yui-san's desk.
 
-Naturally, I hadn't scheduled anything, so no one should have come here.\
-All employees should know today is the 'Presidents' Meeting', so the internal line in this room shouldn't ring.
+The presidents' meeting would start at ten. After that, Yui-san had the dinner planned — just the three of them, with her father and Yukiya-san.
 
-Yet, when the familiar ringtone suddenly sounded, I startled and looked up.
+With it being the day all the Group's subsidiary presidents gathered together, today of all days should have been a quiet one.
 
-　The red light on the landline phone flashed intermittently.
+Naturally, I had nothing scheduled, so there was no reason for anyone to come by here.\
+Every employee in the company knew today was "the presidents' meeting" day, so there was no reason for this room's extension line to ring either.
 
-I immediately realised what that extension call meant. Swallowing hard, I gently picked up the receiver from my own desk.
+And yet, when the familiar ringtone suddenly sounded, I looked up with a start.
 
-"...Yes, this is Aosawa, the secretary."
+The red light on the landline blinked, flashing.
 
-If there was anyone who might have business here today — there could only be one person.
+I understood immediately what that extension meant. Swallowing hard, I quietly picked up the receiver at my own desk.
 
-　When I went to reception, he was waiting for me, his eyes bloodshot and sweat beading on his forehead.\
-Wada-san at reception looked troubled, flustered as she glanced back and forth between us.
+"...Hello, this is Aozawa, secretary."
 
-　I looked straight at Kitakami-san. His expression was desperate, showing no sign of composure; his hair was dishevelled, as if he'd rushed here.\
-The mask that usually clung to his face had already fallen away, leaving no trace.
+If there was one person today who might have business coming here — there was surely only one person it could be.
 
-"Kitakami-san, thank you for your continued support. The president is unavailable today, however."
+*
 
-I delivered the standard phrase. He spat out, "I know that."
+When I went out to the reception desk, he was waiting for me, his eyes bloodshot red, sweat beading on his forehead.\
+Wada-san at the front desk kept glancing anxiously between the two of us, clearly at a loss.
 
-"I came to see you, not Yui. I have business with you."
+I looked straight at Kitagami-san. His expression was desperate, with no composure left in him at all — his hair disheveled, as if he'd rushed here.\
+The mask that always sat fixed on his face had already peeled away, leaving no trace of it.
 
-"I see. I'm afraid I'm rather busy today. Might you please take your leave?"
+"Kitagami-san, thank you for your continued patronage. The president is out of the office today."
 
-When I stated it plainly, Kitakami-san narrowed his eyes and glared at me.
+I recited the line like a stock phrase. He spat back, "I know that already."
 
-I have no need to speak with you. Besides, the directors' meeting should have started by now. Once that begins, he won't be able to interfere.
+"I'm not here for Yui. I'm here for you. We need to talk."
 
-　The gears had begun turning.
+"I see. I'm terribly sorry, but my schedule happens to be full today, so I'd ask that you take your leave for now."
 
-Kitakami-san was a close aide to Yui's father. Perhaps — perhaps he'd heard from Yui's father today that he was going out to dinner with Yukiyasu.\
-That must be why he'd rushed over here, to me.
+I said it flatly, and Kitagami-san's eyes narrowed into a glare, sharp with anger.
 
-"This won't take long. It's urgent. It has to be today."
+I have no reason to talk with you. And besides, the presidents' meeting should already be underway. Once that's started, there's nothing more he can do.
 
-Grabbing my arm forcefully, Kitakami-san yanked me towards him. His large, powerful hands pulled me so forcefully my body swayed.
+The gears had already begun turning.
 
-I frowned, thinking he was being rather pushy.
+Kitagami-san is Yui-san's father's right-hand man. Maybe — maybe he'd heard from Yui-san's father today that she was going to dinner with him and Yukiya-san.\
+That must be why he'd come rushing here, to find me.
 
-I glanced at Wada-san, who looked troubled.\
-Judging by the situation, Kitakami-san seemed quite angry — arguing here probably wasn't wise. Thinking this, I reluctantly let him pull my arm and followed him in silence.
+"This won't take long. It has to be today. It's important."
 
-　Where are we going? I wondered, only to be practically shoved onto the landing of the fire escape. I sighed.\
-Not that I'd intended to sit down and talk properly, so it suited me, I suppose.
+He grabbed my arm forcefully and yanked my body toward him. Pulled hard by his large hand, my body swayed unsteadily.
 
-"...Kitakami-san, that hurts."
+*He's being awfully forceful,* I thought, frowning.
 
-At that, he abruptly let go of my arm, as if brushing me off. I gently rubbed my upper arm, where the sensation of being grabbed lingered.
+I glanced over at Wada-san, still looking troubled.\
+Watching him, Kitagami-san seemed genuinely furious — arguing with him here probably wasn't the wisest move. Thinking that, I had no choice but to let him pull me along, following him in silence.
 
-"I heard from President Ichinose. After the board meeting, he said he'd invited Yukiyasu and Yui out for dinner. She is going to tell them today, isn't she?"
+I wondered where he was taking me, only to be shoved into the landing of the emergency stairwell — I let out a sigh.\
+I hadn't intended to sit down and have a proper conversation anyway, so in a way, this suited the situation just fine.
 
-"What are you talking about?"
+"...Kitagami-san, that hurts."
 
-"Don't play dumb. Stop Yui right now. Do you really understand what you're trying to do!?"
+At that, he released my arm, shoving it away roughly. I gently rubbed my upper arm, where the sensation of his grip still lingered.
 
-With veins bulging on his forehead, he shouted so loudly that I instinctively took a step back. My heel touched the edge of the staircase.
+"I heard it from President Ichinose. That you two are inviting him and Yukiya to dinner after the presidents' meeting. You're planning to tell him today. Aren't you."
 
-Just because hardly anyone uses the emergency staircase, shouting like that here meant Kitakami-san must be extremely panicked.
+"I'm not sure what you mean."
 
-"...Yui admitted to her relationship with you that day. She said she'd pay whatever compensation I demanded. But in return, she made it crystal clear I was to have nothing more to do with her."
+"Don't play dumb. Stop Yui, right now. Do you even understand what the two of you are about to do!?"
 
-That day — Valentine's Day, then.
+He shouted it, veins bulging on his forehead, and I instinctively took a step back. My heel touched the edge of the stairs.
 
-I bit my lip to stifle the urge to ask why he was here now. There was no point arguing with someone this worked up.
+Since almost no one ever uses the emergency stairwell, the fact that he was shouting this loudly here at all told me just how desperate Kitagami-san really was.
 
-"But I won't accept that. Running a company isn't child's play. If your father weren't President Ichinose's close friend, I'd have sued you long ago."
+"...Yui admitted it, that day. Admitted the relationship with you. She said she'd pay whatever amount in compensation I named. In exchange, she made it very clear I was never to have anything to do with you again."
 
-I simply stared back at those burnt-brown eyes, clouded with anger, with a cold detachment.
+*That day* — he meant Valentine's Day.
 
-"Still, if you insist you cannot step aside... let's call it a trade-off."
+Then why are you here right now, I wanted to say, but I bit my lip and held it back. There was no point arguing with someone whose blood had already rushed to his head.
 
-"A trade-off?"
+"But I won't accept that. Running a company isn't some children's game. If your father weren't President Ichinose's close friend, I'd have already sued you."
 
-"...I could serve as your cover. That should smooth things over. There'd be no need to inform President Ichinose about you two specifically."
+I looked, coldly, at his dark brown eyes, clouded with anger.
 
-"...What exactly does that mean?"
+"Still — if you absolutely refuse to step aside, then... let's call it a trade."
 
-"It means I'll turn a blind eye to your relationship. However, I'll marry Yui. That's the condition. I won't budge on this."
+"A trade?"
 
-I recalled what Yukiyasu-san had said.
+"...I could be your cover. That would settle everything neatly. There'd be no need to go out of your way to tell President Ichinose about the two of you at all."
 
-This man couldn't believe in his own efforts, striving only to be what his father wanted him to be. He had no self. He could only become a puppet, a pitiful man.
+"...What do you mean by that?"
 
-"...Kitakami-san, are you truly content with that? A life spent merely running along a predetermined track, without a single ounce of your own effort being acknowledged?"
+"I mean I'll turn a blind eye to your relationship. On one condition: I marry Yui. That's the deal. That's the one thing I won't budge on."
 
-His face contorted as if struck. I knew full well it was something he didn't want to hear, yet I couldn't refrain from saying it.
+I remembered what Yukiya-san had said.
 
-"Don't you realise deep down, Kitakami-san? That nothing more needs to be said. If you wish to sue me, be my guest. I'm prepared to accept any punishment if it means being with Yui-san."
+This man can't believe in his own effort, and just keeps trying to be the person his father wants him to be. He has no self of his own. He had no choice but to become like a puppet — a pitiable person.
 
-"...I see. I understand. You have no intention of accepting the terms, then."
+"...Are you really all right with that, Kitagami-san? Living a life where none of your own effort is ever acknowledged, just running along the tracks laid out for you?"
 
-I could see his clenched fist trembling violently with rage. Being intimidated by a man much larger than myself, I wasn't entirely without fear instinctively... but I said nothing, just stared back at him.
+His face twisted, as if I'd struck him. I'd said it knowing full well it was the one thing he didn't want to hear. But I couldn't stop myself from saying it.
 
-　With trembling fingers, he pulled a white envelope from his coat pocket. Then, without a word, he handed it to me.
+"Don't you actually already realize that too, Kitagami-san? That nothing you say will change anything now. If you want to sue me, go right ahead. I'm prepared to accept whatever punishment comes, if it means being with Yui-san."
+
+"...I see. So you have no intention of accepting the terms."
+
+I could see his clenched fist trembling with fury. Being loomed over by a man so much larger than me, I won't pretend some instinctive fear didn't flicker in me — but I just kept looking at him in silence, saying nothing.
+
+With fingers trembling in anger, he pulled a white envelope out from inside his jacket. He held it out to me without a word.
 
 "...What is this?"
 
-I took it and opened the envelope. Inside were several photographs. At first glance, I froze in shock.
+I took it and opened the envelope. Inside were — several photographs. I froze in shock at first glance.
 
 They showed me and Yui-san.
 
-　A photo of us walking hand in hand, gazing at the illuminations. A photo of us laughing together over a meal in a hotel.\
-In each, we were looking at each other, and it was immediately clear we shared a special bond.
+A photo of us walking hand in hand, gazing at illumination lights. A photo of us laughing together over dinner at a hotel.\
+Every single one showed the two of us gazing at each other, unmistakably conveying that this was no ordinary relationship.
 
-These were from Christmas...
+These were — from Christmas...
 
-"...This is my final warning. If you have no intention of stopping Yui, then so be it. I don't know how President Ichinose will judge this, but if I don't get a satisfactory answer, I won't just quietly back down. I'll expose your relationship with Yui. This is no empty threat."
+"...Consider this the final notice. If you have no intention of stopping Yui, that's fine too. I don't know how President Ichinose will judge it, but if I don't get an answer I can accept, I have no intention of quietly stepping back. I'll expose your relationship with Yui. This isn't a threat."
 
-His voice was low, almost a growl, and I lifted my gaze from the photographs.\
-His gaze was like a snake's – relentless, clinging, viscous. I gasped. It felt like something was coiling around my ankles, slowly tightening its grip. A suffocating, sickening sensation washed over me.
+His voice, low and crawling along the ground, made me lift my face from the photos.\
+I caught my breath at the sticky, persistent gaze, like some venomous snake. A wave of suffocating dread and revulsion crept up from my feet, like something slowly coiling around me, tightening.
 
-Now that my engagement to Yui is public knowledge, what do you think will happen if your relationship comes to light...? You understand, don't you? You might be alright. You could just resign from this company and that would be that. But what about Yui, who'll be thrown into the firing line? Having a fiancé yet committing adultery with your same-sex secretary. A major scandal. Naturally, it would cause a huge uproar.
+"Now that my engagement to her is public knowledge, do you understand what happens if your relationship comes to light too...? You might be fine. You could just quit this company and be done with it. But what about Yui, standing in the line of fire? Infidelity with her female secretary, while engaged. A massive scandal. It'll cause an uproar, obviously."
 
 My breathing grew shallow.
 
-　Kitakami-san is serious. What should I do? I can't decide on the spot. I could feel cold sweat trickling down my back.
+Kitagami-san was serious. I couldn't decide, in the moment, what I should do. I felt cold sweat trickle down my back.
 
-Should I contact Yui-san first? But she's in a meeting. So should I contact Yukiyasu-san instead?
+Should I contact Yui-san first? But she was in the meeting. Should I try Yukiya-san instead?
 
-But what good would stopping Yui-san do now? It's true Kitakami-san has leverage over me, but am I just going to keep obeying him, held hostage by his threats forever?
+But what would stopping Yui-san right now even accomplish? Yes, Kitagami-san had leverage over me now — but was I supposed to just keep obeying him, threatened, forever?
 
-"You need only tell Yui to marry me. Then everything will continue as before, as if nothing ever happened."
+"All you have to do is tell Yui to marry me. Then everything goes back to how it was, and you two can go on living as if none of this ever happened."
 
-No. I couldn't possibly stand by and watch Kitakami-san and Yui-san marry. I absolutely couldn't.
+No. I couldn't do it — I couldn't possibly stand by and watch Kitagami-san and Yui-san get married. There was no way.
 
-I couldn't possibly accept the conditions Kitakami-san was offering. Absolutely not!
+I could never accept the terms Kitagami-san was laying out. Absolutely not. Never—!
 
-Kitakami-san gave a faint, mocking laugh at my stunned silence.
+Kitagami-san let out a mocking laugh at me, standing there stunned.
 
-"Such conditions... I can't accept them. There's no way I could."
+"...I can't accept those terms. There's no way I could."
 
 "...Then there's only one thing left for me to do."
 
-He turned on his heel. Could I really let Kitakami-san leave like this? No. I had to stop him.
+He turned to walk away. Could I really just let Kitagami-san leave like this? No. I had to stop him.
 
-"Kitakami-san, please wait—"
+"Kitagami-san, please wait—"
 
-My frantically graping arm was pushed away. The momentum sent me off balance, and I fell backwards. Staggering, my foot that should have pulled back — failed to find the floor, kicking at thin air.
+I grabbed his arm in a panic, and he shook it off. The force of it threw off my balance, and I stumbled backward. Reeling, the foot I'd stepped back with — failed to find the floor, cutting through empty air.
 
-The instant I thought, "Eh?", my vision swayed. Only now did I remember. That I was standing on the edge of the stairs.
+*Oh*, I thought, and in that instant my vision tilted sideways. Only then did it come back to me — that I'd been standing right at the edge of the stairs.
 
-　Everything slowed, like slow motion. I saw Kitakami-san's eyes widen in shock. Instinctively, he reached out for me, but it was too late.
+The scene slowed, like watching it in slow motion. I saw Kitagami-san's eyes go wide with shock. He reached out for me instinctively, but it was too late.
 
-My body fell, head first.
+My body plunged straight down, headfirst.
 
-Before I could comprehend what had happened, a fierce impact shook my body — and my consciousness snapped cleanly away.
+Not understanding what was happening, I felt a sharp impact against my body — and then my consciousness cut off, abruptly, right there.

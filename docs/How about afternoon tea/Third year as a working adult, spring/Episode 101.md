@@ -1,216 +1,223 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Third year as a working adult, spring
 sequence: 108
-title: 'Episode 101: Kanata, What About the Welcome Home Kiss?'
+title: "Episode 101: Kanata, Where's My Welcome-Home Kiss?"
 ---
-Episode 101: Kanata, What About the Welcome Home Kiss?
+## Episode 101: "Kanata, Where's My Welcome-Home Kiss?"
 
-Rumours are a funny thing, as they say. Time has passed since that shocking Valentine's Day, and the gossip within the company about Yui-san's 'engagement' — which had been the talk of the office — was gradually dying down. It was April.
+\
+They say people's gossip only lasts so long, and it's true — since that shocking Valentine's Day, time has passed, and the whispers around the office about Yui-san's "engagement" have gradually started to fade. It's April now.
 
-The bitter cold of winter, said to be one of the harshest in years, had somehow vanished without notice, and the street trees were now adorned with lush green leaves.
+The cold snap this winter, said to be the worst in years, has vanished somewhere without my noticing, and the roadside trees have started putting out their green leaves.
 
-　After closing March's accounts, when we checked the profit and loss statement shared as a flash report from Accounting, Yui and I embraced in delight.
+When we closed out March and checked the preliminary profit and loss statement shared from accounting, Yui-san and I hugged each other in celebration.
 
-Though final adjustments were still pending and the exact figures weren't yet set in stone — it was clear we'd significantly exceeded the target Yui had promised her father.
+There will still be year-end adjustments to come, so the exact numbers aren't finalized yet, but it was clear the results would far exceed the target Yui-san had promised her father.
 
-And now, mid-April approached, bringing with it the quarterly "Group Joint Presidents' Meeting".
+And now, coming in mid-April, there's the quarterly "Group Joint Presidents' Meeting" waiting for us.
 
-　This is a meeting where all the presidents of subsidiaries under Ichinose Holdings gather, serving as a final report to the parent company on the current term's business performance.
+It's a gathering of the presidents of all the subsidiary companies under Ichinose Holdings, essentially a final report meeting on this term's business performance, directed at the parent company.
 
-It remains unclear whether Yui-san will continue as president of this company for a fourth year.\
-However, with April already here and the new fiscal year underway, there was no time to catch our breath. The tasks were piling up.
+Whether Yui-san will remain president of this company into her fourth year is still unknown.\
+But with April here and a new fiscal year already underway, there's no time to catch our breath. The work just keeps piling up.
 
-　Today is Friday.\
-Yui has been swamped preparing materials for the presidents' meeting.
+*
 
-Since she didn't want to take work home and had told me to go ahead and wait for her, I clocked off at the regular time and headed towards her place.
+Today is Friday.\
+Yui-san has been buried in preparing materials for the presidents' meeting.
 
-I'd considered killing time at a café, but Yui had said she'd be back by nine, so I decided to take her at her word.
+She said she didn't want to bring work home, so she told me to go on ahead and wait for her, and I left work right on time and headed to her place.
 
-　I passed through the ticket gates at the station nearest Yui's house, one I'd walked past countless times during my student days. The surroundings were a little dim, but I thought the days had grown considerably longer compared to winter.
+I thought about killing time at a café while I waited, but Yui-san said she'd be home by nine, so I decided to just take her at her word.
 
-A pleasant spring evening breeze caressed my cheek. Cherry blossom petals, blown in from who knows where, fluttered and danced on the whirlwind.
+I passed through the ticket gate at the station nearest Yui-san's place — the one I walked through more times than I can count back in our school days. It was a little dim out, but the days are much longer now than in winter.
 
-Spring really is here, isn't it.
+A pleasant spring night breeze brushed my cheek. Cherry blossom petals, blown in from who knows where, danced and spun on the wind.
 
-　I stopped by the supermarket we used to walk to together during our student days, located between the station and her house.
+It's really spring now, huh.
 
-Blending in with the housewives doing their shopping, I wandered around the unfamiliar food aisles, smartphone in hand.\
-Checking the ingredients needed for tonight's dinner, I carefully placed each item into my shopping basket.
+On the way from the station to her house, I stopped by the supermarket we used to walk to together as students.
 
-　Minced beef and pork, onions, shimeji mushrooms, tinned tomatoes. The seasonings should be at Yui's place, so no need to buy those.
+Mixed in among the housewives doing their evening shopping, phone in hand, I wandered the unfamiliar food aisles.
 
-Since starting to live alone, I've tried to cook for myself when I have time – but honestly, I'm not confident I can make anything good enough to serve to someone else.
+Checking what I'd need to make tonight's dinner, I placed each ingredient into the basket one by one, double-checking as I went.
 
-　Housework isn't my forte. That hasn't changed since my student days. But even if I'm unsure how well I'll manage, the only way forward is to try.\
-I'll start with beginner-friendly recipes that are less likely to fail, and learn slowly.\
-Even if it doesn't turn out delicious, Yui-san will surely praise my effort.
+Ground beef and pork mix, onion, shimeji mushrooms, canned tomatoes. I was pretty sure Yui-san already had seasonings at home, so I didn't need to buy those.
 
-With these thoughts, I walked home carrying the shopping bag in one hand.
+Since I started living on my own, I've made an effort to cook for myself when I have the time — but honestly, I don't have much confidence that what I make is good enough to serve someone else.
 
-　I inserted the key Yui-san gave me at Christmas into the door's keyhole and turned it. With a satisfying click, the door swung open.\
-Just this simple action made my heart feel warm and fuzzy, as if bathed in spring sunshine.
+I've never been good at housework. That hasn't changed since my school days. But even if I'm not sure I can do it well, the only way forward is to try.\
+I'll just start with menus that even a beginner can't mess up too badly, and work my way up slowly from there.\
+Even if it doesn't taste great, surely Yui-san will praise the effort I put in.
 
-　Just before the clock's hour hand pointed to twenty-one, a clattering sound came from the entrance hall.\
-Yui-san had come home. I hurriedly turned off the stove and, unable to stay put, trotted towards the entrance.
+Thinking about that, grocery bag in one hand, I walked the rest of the way home.
 
-Opening the door connecting the living room and hallway, Yui-san saw me and smiled happily.\
-Unable to contain myself, I ran over and threw my whole weight into hugging her.
+I slid the key Yui-san gave me for Christmas into the lock and turned it. With a satisfying *click*, the door opened.
 
-"Welcome home, Yui."
+It's such a small thing, and yet my heart warms up like it's been touched by spring sunlight.
 
-"I'm back, Kanata. Sorry I kept you waiting."
+*
 
-Still clinging to her, I rubbed my cheek against her soft hair. I drew in the sweet scent of her perfume, filling my chest, and pressed my body tightly against hers.
+Just before the short hand on the clock hit nine, I heard a clatter from the entryway.\
+Yui-san was home. I hurried to turn off the stove and, unable to sit still, trotted over to the entrance.
 
-　Back in my student days, I never liked waiting for Yui-san to come home.\
-Just waiting endlessly for her return, never knowing where she'd wandered off to, made my chest ache with a stinging pain.
+When I opened the door connecting the living room to the hallway, Yui-san looked at me and smiled happily.\
+Unable to hold back my feelings, I ran over and threw my full weight against her, hugging her.
 
-But now it's different. How utterly happy it makes me to wait for her return in this house, as her lover. The feelings welling up inside me are impossible to put into words.
+"Yui-san, welcome home."
 
-　Yui smiled at me, reluctant to let go, and pressed her lips — still slightly cool from her return — gently against my cheek.
+"I'm home, Kanata. Sorry for keeping you waiting."
 
-Then she pulled me firmly towards her waist, so I stopped those lips, now nearing my mouth, with the palm of my hand.\
-Having already learnt that allowing a kiss here would mean a bath before dinner, I placed my hand on her shoulder, pushed Yui back, and swiftly created some distance.
+Still clinging to her, I nuzzled my cheek against her soft hair. I breathed in her sweet perfume, chest full, pressing our bodies close together.
 
-"...Kanata, what about the welcome-home kiss?"
+Back in our school days, I never liked waiting for Yui-san to come home.\
+Waiting endlessly for her to return from wherever she'd wandered off to, never knowing where — it made something deep in my chest sting, and it hurt.
 
-Ignoring Yui-san's discontented tone, I shook my head from side to side.
+But it's different now. Waiting for her to come home to this house, as her girlfriend — I can't put into words how happy that makes me. The feeling welling up in my chest is beyond anything language can capture.
 
-"I'm cooking right now. I need to get back to the kitchen immediately."
+Since I wouldn't let go, Yui-san laughed and pressed her lips, still a little cold from outside, gently against my cheek.
 
-"Eh?"
+Then she pulled my waist in tight, so when her lips came close to mine, I blocked them with my palm and stopped her.\
+I'd already learned that if I let her kiss me here, I'd end up taking a bath before dinner instead of after, so I put a hand on her shoulder, pushed her back, and quickly put some distance between us.
 
-"Today's stewed hamburger steak. Tomato flavour."
+"...Kanata, where's my welcome-home kiss?"
 
-As I declared this with confidence, puffing out my chest, she seemed to notice I was wearing the yellow apron I'd bought recently, matching hers in colour. She looked at me, surprised.
+Ignoring her pouting complaint, I shook my head side to side.
 
-"It'll be ready soon, you know."
+"I'm cooking right now. I need to get back to the kitchen."
 
-Yui-san followed behind me as I headed back to the kitchen, the patter of her slippers echoing.
+"Huh?"
 
-"Oh, really? It smells absolutely delicious... Kanata, did you make dinner?"
+"Tonight is hamburger steak simmered in tomato sauce."
 
-I stood before the frying pan once more and turned on the heat.
+I said it puffing my chest out with confidence, and she seemed to notice I was wearing the yellow apron we'd bought in matching colors the other day, looking at me in surprise.
 
-"Well, it doesn't look too great, I know... It's my first time, so please be kind."
+"It should be about ready soon."
 
-The recipe site said stewed hamburgers were beginner-friendly, but to be honest, I wasn't entirely satisfied with the result.
+Yui-san followed behind me back to the kitchen, her slippers making little pattering sounds.
 
-　I measured the ingredients and seasonings properly, so the flavour should be fine, but shaping the hamburgers neatly proved too difficult for my clumsy hands.
+"Wow, it really does smell amazing... Kanata, you made dinner for me?"
 
-Strange. The hamburgers Yui-san made for me before were so beautifully shaped, but mine are clearly misshapen.
+I stood back in front of the frying pan and turned the heat on again.
 
-But then, Yui-san is naturally dexterous, unlike me, so comparing myself to her is pointless. She's good at cooking, her handwriting's beautiful, and at night too — stopping myself before that thought finishes.
+"Well, it doesn't look that great... it's my first time, so go easy on me."
 
-What am I thinking? Lately, I feel like I've been getting influenced by that lewd Yui-san.
+The cooking site said hamburg steak was beginner-friendly, but honestly, the result wasn't quite what I'd hoped for.
 
-Yui-san, who probably wouldn't dream I was thinking such things, hugged me tightly from behind and peered over my shoulder into the frying pan, where the contents continued to simmer away.
+I measured the ingredients and seasonings carefully, so I think the taste is fine, but shaping the patties neatly turned out to be surprisingly difficult for someone as clumsy with her hands as me.
 
-"Wow, that looks delicious. I'm getting really hungry."
+It's strange. When Yui-san made hamburg steak before, hers came out so neat, but mine are clearly lopsided.
 
-"Cooking is difficult, isn't it? I couldn't manage washing dishes while cooking like you do, Yui-san."
+But then, Yui-san's always been more dexterous than me, so there's no point comparing. She's good at cooking, her handwriting is neat, and at night she's — I stopped myself right there.
 
-My gaze drifted to the sink piled high with cooking utensils.
+What am I even thinking. Lately I feel like I've been picking up bad habits from a certain naughty someone.
 
-Even while cooking, Yui-san always efficiently washes the dishes and utensils she uses at the same time, so the sink stays clean even after cooking is finished.\
-　But right now, the kitchen had been reduced to a pitiful state.
+Yui-san, with apparently not the faintest idea what I'd just been thinking, wrapped her arms around me from behind and peered over my shoulder into the pan, still bubbling away.
 
-"Don't worry about that. I'll tidy up later, so let's eat together quickly."
+"Wow, that looks delicious. I'm getting really hungry now."
 
-Yui-san, seemingly not bothered at all, said this cheerfully as she planted a kiss on my cheek, and I breathed a sigh of relief.
+"Cooking is hard. I couldn't wash dishes while I cooked, the way you do, Yui-san."
 
-Sitting opposite each other at the dining table, Yui-san happily clasped her hands together and said, "Let's eat."
+I glanced at the sink, piled high with cookware.
 
-I was so curious about Yui-san's reaction to the first bite of hamburger steak that I stared at her as if I could bore a hole through her.
+Even while cooking, Yui-san always briskly washes whatever dishes and tools she's used along the way, so her sink stays clean even after she's done.\
+But right now, the kitchen had transformed into a scene of utter devastation.
 
-"Um, how is it?"
+"Don't worry about that. I'll clean up later, so let's eat together while it's hot."
 
-"Mmm, it's absolutely delicious."
+Yui-san, seemingly not bothered in the slightest, kissed my cheek happily as she said it, and I breathed a sigh of relief.
+
+We sat down facing each other at the dining table, and Yui-san pressed her hands together with a happy "itadakimasu."
+
+I watched her, practically boring a hole through her, anxious for her reaction as she took her first bite of the hamburg steak.
+
+"So? How is it?"
+
+"Mm, it's really good."
 
 "Really?"
 
-"Really. You should try some too, Kanata."
+"Really. Try it yourself and you'll see."
 
-I couldn't rule out the possibility she was just being polite. What if it was awful? Thinking that, I took a bite of the hamburger steak I'd put on my own plate.
+There was still a chance she was just being kind. What if it actually tasted bad? Worried about that, I took a bite of my own portion.
 
-　The taste was... well, since I followed the recipe, it didn't seem too bad. If I could just overlook the slightly crumbly shape, I thought it was quite good for a first attempt.
+The flavor, well — I'd followed the recipe, so it wasn't bad at all. If I just closed my eyes to the slightly misshapen patty, I thought it was pretty good for a first attempt.
 
-Throughout the meal, Yui-san kept smiling happily. Seeing that made me feel warm inside too.\
-Seeing her so pleased, I felt just a tiny bit of regret that I hadn't tried making it sooner.
+All through dinner, Yui-san kept smiling happily at me. Watching her, I felt warm inside too.\
+Seeing her so pleased, I found myself thinking, just a little regretfully, that I should have tried cooking for her sooner.
 
-＊＊＊
+***
 
-The room echoed with the sound of the dishwasher's water flow.
+The sound of the dishwasher's water hummed through the room.
 
-After my bath, I settled between Yui-san's legs as she sat on the sofa.\
-Switching on the projector, I leaned my back against her and gently tugged her hands, encouraging her to hold me close. As I'd hoped, her arms wrapped softly around my body.
+After finishing our baths, I claimed the spot between Yui-san's legs on the sofa.\
+I turned on the projector and leaned back against her, pulling her arms around me so she'd hold me. Just as I'd hoped, her arms wrapped gently around my body.
 
-　Tonight, we had promised to watch a film together. A moment to soothe our work-weary hearts after a week; a private film viewing for just the two of us.\
-I always have hot milk, while Yui-san drinks a highball. That too has remained unchanged since our student days.
+Tonight we'd promised to watch a movie together. A little time to heal our hearts after a tiring week of work — just the two of us, watching a film.\
+I always have hot milk, and Yui-san drinks a highball. That hasn't changed since our school days either.
 
 "Hey, Kanata."
 
-Less than ten minutes into the film, Yui suddenly called my name.
+Less than ten minutes into the movie, Yui-san suddenly said my name.
 
 "What is it?"
 
-"Next weekend, there's the directors' meeting, right? Actually... I was planning to tell him afterwards. ...My father. About breaking off the engagement."
+"The presidents' meeting is next weekend, right? Actually, I'm planning to tell him after that. ...My father. About calling off the engagement."
 
-Holding me tightly, Yui murmured this softly.
+She murmured it while holding me tightly in her arms.
 
-"And... I was thinking of consulting Yukiyo beforehand. He's helped me so much until now, and I think he's realised I like you... I was wondering if it would be alright to properly tell him in words again."
+"And... I'm thinking of talking to Yuki-nii about it beforehand. He's helped me so much already, and I think he already knows I like you, but... I was wondering if it's okay to actually put it into words and tell him properly."
 
-Without thinking, I spun around completely. Startled by my sudden movement, Yui-san's eyes widened slightly.
+Without meaning to, I turned my whole body around to face her. Startled by my sudden movement, Yui-san's eyes went wide.
 
-"Yui-san, didn't you know that Yukiyo-san realised about us!? I just assumed..."
+"Yui-san, you knew Yukiya-san already noticed about us!? I thought—"
 
-I stopped mid-sentence and hastily covered my mouth. Oh dear, that was a slip of the tongue.\
-I thought it, but it was too late. Yui-san narrowed her eyes slightly and grabbed my arm firmly, preventing me from escaping.
+I clapped a hand over my own mouth partway through. Oh no, that was a slip.\
+But it was too late. Yui-san's eyes narrowed, and she gripped my arm firmly so I couldn't get away.
 
-"...Kanata, how did you know Yuki-nii noticed us?"
+"...Kanata, how do you know that Yuki-nii noticed?"
 
-"Er, well, that's..."
+"Um, well, that's..."
 
-"...You're not... keeping in touch, are you? Could it be when you delivered the minutes?"
+"...Don't tell me you two have been in contact? Was it when you went to deliver the meeting minutes?"
 
-I averted my gaze. I couldn't say it. That I'd known his contact details for much longer...
+I looked away. I couldn't say it. That I'd actually known how to reach him for much longer than that...
 
-"Well... you know, with everything that happened with Kitakami-san, I needed to talk things through. But that's all! We don't keep in touch normally."
+"It's just — you know, with everything going on with Kitagami-san, I asked him for a little advice. But that's all! It's not like we're in regular contact or anything."
 
-When I said that much, Yui frowned, looking thoroughly displeased.\
-Oh dear, I'd done it. Yui absolutely hated me having anything to do with Yukiyasu-san.\
-I knew it stemmed from jealousy, but still.
+At that, Yui-san's brow furrowed into an unhappy scowl.\
+Ah, I'd done it now. Yui-san really hates it when I have anything to do with Yukiya-san.\
+I know it comes from jealousy, but still.
 
-"Kanata—"
+"Kanata."
 
-"...I'm sorry for keeping quiet..."
+"...I'm sorry for not telling you..."
 
-When I apologised honestly, Yui sighed deeply, deeply, then pulled me tightly into a hug from the front.
+I apologized honestly, and Yui-san let out a long, deep sigh before pulling me into a tight hug from the front.
 
-"I know it's impossible to avoid him entirely... but please, I beg you, don't ever fall for Yuki-nii."
+"I know it's impossible for you to have nothing to do with him... but please, I'm begging you, never fall for Yuki-nii."
 
-"That's impossible, isn't it? He's your brother, after all?"
+"That's never going to happen. He's your brother, Yui-san."
 
-"But I'm genuinely worried, you see. Yuki-nii is like me, isn't he? Unlike me, Kanata was straight to begin with... I just worry she might prefer men."
+"Because I'm genuinely worried, okay? Yuki-nii is a lot like me. You're not like me — you were originally straight, so... if you ever thought you preferred men after all..."
 
-She nuzzled her cheek against my neck, pouting as she spoke. What? She'd been fretting over that? I couldn't help but laugh.
+She nuzzled her face into my neck, sulking as she spoke. Honestly, realizing that was what she'd been worrying about, I couldn't help but laugh.
 
-　Still pouting, lips turned down, I gently stroked her cheek as if cherishing it, peering into her dark eyes.
+I gently stroked her cheek, still pouting, and looked into her dark eyes with affection.
 
-"Yui-san, you've got it all wrong. I like you just as you are, Yui-san. I like you completely, including your gender."
+"You've got it wrong, Yui-san. I love you as a woman. All of you, gender included — I love every part of you."
 
-Her eyes, sulking unhappily, softened with relief at my words.
+The sulky irritation in her eyes softened at my words, relief settling in.
 
-　I kissed her, my apology embedded in the gesture, and Yui seemed to forgive me. She gently stroked my back and pulled me close.
+I kissed her, putting all my apology into it, and she seemed to forgive me, gently stroking my back and holding me close.
 
-"...When you consult Yukiyasu-san, may I be present too?"
+"...When you talk to Yukiya-san, can I be there too?"
 
-"Yes, of course. Let's go together. When it comes to Shinji, Yukiyasu-san knows far more than I do, and we need to be prepared in case things get messy. The more allies we have, the better."
+"Yeah, of course. Let's go together. When it comes to Shinji, Yuki-nii knows him far better than I do, and we need to think about what to do if things get messy. The more allies we have, the better."
 
-She nodded.\
-Kitakami-san is a man with the tenacity of a snake. We don't know him very well, but Yukiyasu-san does.
+I nodded firmly.\
+Kitagami-san is like a persistent, venomous snake. We don't know him all that well, but Yukiya-san does.
 
-The day when we will be free is steadily drawing nearer. To achieve that, we must take every possible measure.
+Step by step, the day we'll finally be free is getting closer. To make sure of it, we should use every card we have.
