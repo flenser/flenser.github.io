@@ -4,7 +4,7 @@ layout: episode
 nav_order: 9
 parent: 'Chapter Two: Living Together'
 sequence: 9
-title: "Episode 9: Even a "Bathe Together" Flag Is Just Too Convenient!"
+title: 'Episode 9: Even a "Bathe Together" Flag Is Just Too Convenient!'
 ---
 ## Episode 9: Even a "Bathe Together" Flag Is Just Too Convenient!
 
