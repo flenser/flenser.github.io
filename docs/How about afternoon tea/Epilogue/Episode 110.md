@@ -1,256 +1,264 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Epilogue
 sequence: 117
-title: 'Episode 110: Yui, Look This Way'
+title: 'Episode 110: Yui-san, Look This Way'
 ---
-Episode 110: Yui, Look This Way
+## Episode 110: "Yui-san, Look This Way"
 
-My first experience of first class was a dazzling space that far exceeded my imagination.
+\
+Riding first class for the first time turned out to be a far more dazzling experience than I'd ever imagined.
 
-Unlike economy, you could stretch your legs, or even lie down.\
-I was genuinely moved by this air journey that was almost too comfortable.\
-The only drawback, perhaps, was that the seats were so spacious it made the distance between me and Yui-san feel a little greater.
+Unlike economy, you can stretch your legs out fully, and even lie all the way down if you want.\
+The flight was so comfortable it left me genuinely moved.\
+If there was one downside, it was only that the seats were so spacious, it left a little extra distance between me and Yui-san.
 
-　The aeroplane carrying us was heading for Colombo Airport in Sri Lanka, our stopover en route to our final destination.\
-We could have flown via Singapore, but Sri Lanka is famous for its tea, so I'd always wanted to visit.\
-I'd already decided to buy some Ceylon tea at the airport on the way back.
+Our plane was headed toward Colombo Airport in Sri Lanka, our layover point on the way to our final destination.\
+We could have gone through Singapore instead, but Sri Lanka is famous for its tea, and I'd always wanted to visit at least once.\
+I'd already decided we'd pick up some Ceylon tea at the airport on the way home.
 
-　The nine-hour flight was comfortable. Having endured half-day journeys in economy class every time I returned to London, I thoroughly enjoyed the spaciousness of first class.
+The nine-hour flight was comfortable — and for someone who's endured the roughly half-day journey back to London in economy every time, being able to stretch out fully in first class was something I genuinely savored.
 
-Yui-san, however, seemed unaccustomed to such long journeys and was utterly exhausted by the time we arrived in Sri Lanka.
+Yui-san, though, apparently isn't used to long-haul travel, and by the time we landed in Sri Lanka she was thoroughly worn out.
 
-　Sad news for the utterly exhausted Yui, but to reach the Maldives, we needed to transfer here to another flight bound for Male, the Maldivian capital.
+Unfortunate news for an exhausted Yui-san — but to actually reach the Maldives, we still needed to transfer to another flight bound for Malé, the capital.
 
-We planned to stay there overnight today – then take a seaplane the next day to the resort on South Ari Atoll where we would be staying.
+We'd spend the night there, and the next day take a seaplane to the resort in South Ari Atoll where we'd be staying.
 
-　The Maldives International Airport, where we landed for the first time, had a strange, exotic scent that I had never experienced before.
+*
 
-It was night when we arrived, so it was a shame we couldn't see the sea from the plane window, but tomorrow we would surely see the vivid emerald green sea.
+Stepping off the plane into the Maldives' international airport for the first time, I caught a strange, foreign scent I'd never experienced before.
 
-As soon as we arrived at the airport, I was surprised by the heat.\
-Coming from winter in Japan, the temperature exceeding thirty degrees was quite unbearable.\
-　We quickly shed our jackets and were down to short sleeves, but we couldn't adjust to the temperature difference immediately and boarded the car heading for the hotel, wiping away the sweat pouring off us.\
-By the time we'd checked into the hotel and reached the air-conditioned room, we were both drenched in sweat.
+We'd arrived at night, so I was disappointed not to catch a glimpse of the ocean from the plane window — but tomorrow, surely, we'd finally see that vivid emerald-green sea.
 
-"Phew... It's not humid, but it's still hot, isn't it?"
+The moment we stepped off the plane, the heat caught me off guard\
+Coming straight from winter in Japan, temperatures pushing past thirty degrees hit us hard.\
+We quickly shed our jackets down to short sleeves, but still couldn't adjust to the sudden temperature shift, wiping away sweat the whole ride to the hotel.\
+By the time we finished checking in and made it into the air-conditioned room, both of us were drenched in sweat.
 
-Yui-san placed her suitcase on the luggage rack and stretched her body. Her toned abs peeked out from beneath her white shirt, and I hastily averted my gaze.
+"Whew... even without the humidity, it's still hot, huh."
 
-"Well, it is a tropical country, after all."
+Yui-san set her suitcase on the baggage rack and stretched her whole body out with a groan. Her white shirt rode up, revealing a glimpse of toned abs, and I hurriedly looked away.
 
-Diving onto the bed drenched in sweat wasn't an option, so I sat down on the sofa, grabbed the collar of my shirt, and flapped it to let the cool air inside.
+"It's a year-round summer country, after all."
 
-"I really need to freshen up. Oh, Kanata, you go ahead and take a shower first."
+Not exactly in a state to dive straight into bed, drenched in sweat as we were, I sat down on the sofa and fanned cool air down my shirt collar, tugging at it.
 
-"Aren't you more tired, Yui-san? It's fine, I'll go later."
+"I really want to feel clean already. Oh, Kanata, you can go shower first if you want."
 
-I'm used to long journeys, but Yui-san isn't, so she must be exhausted.\
-She always puts me first, but at times like this, I wanted to let her go first, so I suggested it.
+"Aren't you more tired than me, Yui-san? It's fine, I'll go after."
 
-Then Yui-san seemed to ponder for a moment before clapping her hands as if struck by inspiration.
+I'm used to long-distance travel, but Yui-san isn't, so she must be more exhausted than me.\
+She's always the one putting me first, so at a time like this, I wanted to give her the priority instead — that's why I suggested it.
 
-"Hmm... Well then, since we're here, let's have a shower together."
+Yui-san thought about it for a moment, then suddenly perked up, clapping her palm as if something had occurred to her.
 
-"Eh? Yui-san, you're not planning anything strange, are you? You must be exhausted from travelling today, surely...?"
+"Hmm... well, since we're here anyway, why don't we just shower together?"
 
-I reckon she's fine, but just to be safe. Better to confirm her intentions. I gave her a suspicious, lingering look.
+"Huh? Yui-san, you're not planning anything weird, are you? We're both worn out from traveling today, aren't we...?"
 
-"If it's what Kanata desires, then no matter how tired I am, I'm always ready for you."
+I was pretty sure it'd be fine, but just in case. Better to confirm her intentions ahead of time than assume. I gave her a suspicious, narrow-eyed look.
 
-Yui peered into my eyes and grinned. I couldn't tell if she was joking or serious, so to protect myself from her, I hastily pushed her shoulder away — but in the end, she overpowered me, and we ended up showering together.
+"If it's something you want, Kanata, I'm always up for it, no matter how tired I am."
 
-　As we splashed about under the showerhead mounted on the wall, its water pressure not particularly strong, her mischievous palm predictably tried to touch my body. I smacked the back of her hand sharply and glared at her, causing Yui to pout and sulk.
+Yui-san peered into my eyes and grinned. I genuinely couldn't tell if she was joking or serious, and hurriedly pushed her back by the shoulder to protect myself — but in the end, I got talked into it, and we ended up showering together after all.
 
-We hadn't even reached our destination yet, and keeping up with Yui was draining my energy.
+Standing under the not-especially-strong water pressure from the wall-mounted showerhead, laughing and messing around together, her mischievous hand predictably tried to wander over my body, so I smacked the back of it and glared at her — Yui-san pouted, sulking.
 
-　That night, I managed to escape Yui's clutches, and we massaged each other to relieve the fatigue of travelling, then fell asleep in each other's arms.
+We hadn't even reached our actual destination yet — there's no way my stamina would survive keeping up with Yui-san this early.
 
-　Then the next day.
+That night, I managed to escape Yui-san's wandering hands, and instead we soothed our travel-worn bodies by massaging each other, then fell asleep wrapped in each other's arms.
 
-Early in the morning, we headed to the seaplane airport, enjoyed a light meal in the lounge, and then followed the staff to the boarding area.
+*
 
-Above the emerald green sea, several small seaplanes floated along the wooden pier.
+The next day.
 
-　Seaplanes can take off and land anywhere there is sea, even without a runway, making them a useful means of transport in countries surrounded by water.\
-The aircraft, with its propeller-equipped wings and gleaming white body adorned with red lines, had floats attached underneath, allowing it to float gracefully on the crystal-clear surface of the water.
+We headed out early to the seaplane terminal, enjoyed a light meal in the lounge, and were guided by staff toward the boarding area.
 
-It was a tiny little plane, with a capacity of less than twenty people.
+Over the emerald-green sea, several small seaplanes floated moored along a wooden dock.
 
-"Wow, this is my first time on such a tiny plane. I wonder how high this propeller can take us?"
+Since seaplanes can take off and land on water without needing a runway, they seem to be an invaluable mode of transport for a country made up of ocean.\
+Propellers mounted on both wings, a gleaming white body striped in red, with floats fitted underneath, bobbing gently on the crystal-clear water's surface.
 
-"Yes, it is. This is my first time on a small plane too."
+It was a tiny, tiny plane, seating fewer than twenty people.
 
-It felt less like a mode of transport and more like an amusement park ride.
+"Wow, I've never ridden a plane this small before. I wonder how high it can even climb with propellers like these."
 
-Perhaps unable to withstand the sunlight stinging her eyes, Yui-san slipped on the sunglasses she'd hooked onto her shirt collar.
+"Yeah. This is my first time on a small plane too."
 
-　The sight was so picturesque that, before putting on the sunglasses I'd bought for this very day for the first time in my life, I peered through the viewfinder of the camera hanging around my neck and snapped a shot of the seaplane and Yui-san.
+It felt less like a mode of transportation and more like an amusement park ride.
 
-Once aboard the plane, the cockpit was right in front of us, being such a small aircraft.\
-I stared intently as the pilot, wearing teardrop-shaped black sunglasses, operated unfamiliar switches with practised ease.
+Unable to bear the sharp glare of the sun stinging her eyes, Yui-san put on the sunglasses she'd had hooked onto her shirt collar.
 
-　When the engine roared to life, I pressed the small earplugs I'd been given firmly into my ears and gazed out of the window as if I were biting into it.
+The sight of her was so picture-perfect that before putting on the sunglasses I'd bought for the very first time in my life just for this trip, I peered through my camera's viewfinder and snapped a shot of the seaplane and Yui-san together.
 
-The propellers on both wings began to spin round and round.
+Once we boarded, being such a small plane, the cockpit was visible right in front of us.\
+I found myself staring, captivated, at the pilot in teardrop-shaped black sunglasses handling a row of unfamiliar switches with practiced ease.
 
-　The aircraft pulled away from the jetty and headed out to sea. Gaining speed rapidly, the seaplane glided across the emerald green water.
+Once the engine roared to life, I pushed the small earplugs we'd been given firmly into my ears and pressed myself against the window, drinking in the view outside.
 
-Just as I felt the sensation of being pulled away from the surface, the plane lifted off in an instant.\
-I looked down from the plane window at the townscape of Male and the sea. The aircraft headed for the resort island where we were staying, raising its nose as if heading for the sky.
+The propellers on both wings began spinning, faster and faster.
 
-　I think we were only in the air for a few tens of minutes. Gliding smoothly across the water's surface, the plane touched down and taxied alongside a large raft-like structure floating in the sea.\
-Right next to it, moored, was a small boat, presumably the means of transport for getting ashore on the island.\
-Visible to the naked eye, just there, was an island with water villas strung along the coast.
+The aircraft pulled away from the dock, heading out to open water. Picking up speed rapidly, the seaplane skimmed across the emerald-green surface.
 
-　It seemed this was a sort of stopover point.\
-Not all passengers disembarked; the plane appeared to be heading for the next island with some passengers on board.
+I felt a sudden sensation like being wrenched free from the water, and in an instant, the plane lifted into the air.\
+Through the window, we looked down at the cityscape of Malé and the surrounding sea. The aircraft angled its nose upward, climbing toward the sky, bound for the resort island where we'd be staying.
 
-Before boarding the small boat, we exchanged greetings with the male concierge assigned to us.\
-There were no staff who spoke Japanese, but as the official language across the entire island was English, it posed no problem.
+*
+
+We were only airborne for a few dozen minutes, I think. Gliding smoothly, the plane touched down on the water's surface and pulled up alongside what looked like a large floating platform out on the sea.\
+Moored close by was a small boat, presumably our transport for actually landing on the island.\
+Close enough to make out clearly with the naked eye, I could see an island lined with overwater villas along its shore.
+
+This place seemed to function as a kind of transfer point.\
+Not all the passengers disembarked here — the plane would apparently go on carrying the remaining passengers to the next island.
+
+Before boarding the small boat, we exchanged greetings with the male concierge staff member assigned to look after us.\
+None of the staff spoke Japanese, but since the island's official language is uniformly English, that wasn't a problem.
 
 "Kanata, what did he just say?"
 
-Yui whispered the question in my ear.
+Yui-san asked quietly, close to my ear.
 
-"He's our assigned concierge. He said he'd explain everything properly once we reached the island."
+"He's our assigned concierge. He said he'll explain everything properly once we reach the island."
 
-　I could be useful to Yui here. I proudly volunteered to interpret.
+Here, at least, I could actually be useful to Yui-san. I proudly volunteered as translator.
 
-We disembarked from the small boat and stepped onto the long wooden pier of the resort island.
+We stepped off the small boat and onto the long wooden dock of the resort island.
 
-The horizon stretched endlessly, and white clouds floated in the cobalt blue sky. The emerald green sea was so beautiful that it was easy to lose sight of the boundary between sky and sea, sparkling as it reflected the sunlight.
+An endless horizon stretching in every direction, white clouds floating in a cobalt-blue sky. The emerald-green sea, so beautiful it nearly blurred the line between sky and ocean, sparkled under the reflected sunlight.
 
-　It was unlike any sea I had ever seen before. The waves were calm, and the seawater was as clear as fresh water, yet I could smell the sea, which I found strangely fascinating.
+It was unlike any ocean I'd ever seen. The waves were gentle, and the seawater was as clear as fresh water, and yet, strangely, I could still smell the salt of the tide.
 
-The concierge who was guiding us to the lobby pointed under the pier and said, "There's a shark."
+The concierge guiding us toward the lobby pointed down beneath the dock and told us, "There's a shark down there."
 
-　Surprised, I peered down and saw a small shark, about thirty centimetres long, swimming and wriggling its body from side to side.
+Startled, I peered over the edge and spotted a small shark, maybe thirty centimeters long, swimming with a sinuous side-to-side motion.
 
-"Wow, Yui, look, a shark!"
+"Wow, Yui-san, look, a shark!"
 
-"Eh, a shark!?"
+"Wait, a shark!?"
 
-Even a small shark is impressive when seen up close.
+Even a small shark still has real presence up close.
 
-"It's amazing sharks are this close."
+"There's actually a shark this close, that's amazing."
 
-"Apparently the Maldives has all sorts of shark species. It said so in the brochure."
+"Apparently the Maldives has all kinds of different sharks. It said so in the brochure."
 
-"Eh, they won't attack us?"
+"Wait, they don't attack people or anything, do they?"
 
-"They say the sharks in the house reef don't usually attack people. Further out to sea, though, there seem to be larger sharks like tiger sharks and hammerheads."
+"The sharks in the house reef generally don't attack people, apparently. Though if you go further out, there are bigger ones too, apparently — tiger sharks, hammerheads, that kind of thing."
 
-"Oh... well... as long as we don't run into them..."
+"O-oh really~... I hope we don't run into any of those..."
 
-Yui gave a nervous, wry smile, and I couldn't help but laugh.
+Yui-san gave a nervous, apprehensive laugh, and I couldn't help but laugh too.
 
-Reaching the sandy beach from the jetty, I was astonished by the fineness of the sand grains. Far finer than Okinawa's sand. The pure white sand looked almost like powdered snow.
+Reaching the sandy beach from the dock, I was struck by how fine the sand's texture was. Even finer than the sand in Okinawa. The pure white sand almost looked like powder snow.
 
-　Palm fronds, growing skyward along the island's contours, rustled pleasantly in the sea breeze reaching from beyond the ocean.
+The palm leaves, growing skyward along the contours of the island, rustled pleasantly in the sea breeze drifting in from beyond the water.
 
-After enjoying welcome drinks and receiving a briefing in the lobby, we walked along the long, gently curving jetty towards the overwater villa where we'd be staying from today.
+After enjoying a welcome drink and getting a full rundown in the lobby, we walked along the long, gently curving dock toward the overwater villa where we'd be staying, starting today.
 
-　A soft sea breeze ruffled Yui-san's long black hair as she walked ahead of me. Her white shirt stood out beautifully against the blue sky, and I found myself savouring the thought: ah, how lovely.\
-It was as if she'd stepped straight out of a painting.
+The soft sea breeze stirred Yui-san's long black hair as she walked ahead of me. Her white shirt stood out beautifully against the blue sky, and I found myself thinking, savoring it — ah, she really is beautiful.\
+Like she'd stepped straight out of a painting.
 
-"Hey, Yui-san, turn this way."
+"Hey, Yui-san, look this way."
 
-"Hmm?"
+"Hm?"
 
-I stopped and peered through the camera's viewfinder, pressing the shutter the instant Yui-san turned around.
+I stopped and looked through the camera's viewfinder, and the instant she turned around, I pressed the shutter.
 
-　The camera I'd been given for my birthday, I'd carried with me everywhere I went to this day, taking countless photographs. Thanks to that, it now felt completely natural in my hands.
+I've carried the camera she gave me for my birthday everywhere I've gone ever since, taking countless photos. It's grown thoroughly comfortable in my hands by now.
 
-"...Hehe, it came out beautifully."
+"...Heh, that came out great."
 
-"Somehow... I've started wanting a camera myself. Lend it to me later, okay? I'll take loads of photos of you too."
+"Now... I kind of want a camera too. Lend me yours later. I'll take a ton of pictures of you too, Kanata."
 
-"That's fine, I'll lend it to you specially. Let's take loads of photos, shall we? ... Oh, right! Why not ask Father Christmas for matching cameras for both of us this Christmas?"
+"Sure, I'll lend it to you, just this once. Let's take tons of pictures. ...Oh, actually, why don't you just ask Santa for a matching camera this Christmas?"
 
-"Eh? That's no good. Father Christmas would go bankrupt."
+"Huh? No way, that'll bankrupt Santa."
 
-"It'll be fine! Father Christmas has a wealthy lover, so even if he buys something a bit pricey, he won't end up struggling financially."
+"It'll be fine! Santa happens to have a rich girlfriend, so even a somewhat expensive purchase won't put a dent in her finances."
 
-"That might be true, but still—"
+"I guess that's true, but still."
 
-As we spoke, we arrived at the villa where we would be staying.\
-Yui inserted the key and slowly pushed open the white wooden door.
+Talking like that, we arrived in front of the villa we'd be staying in.\
+Yui-san slid the key in and slowly pushed open the white wooden door.
 
-　What met our eyes was a room with an uninterrupted ocean view.\
-The air-conditioned interior was comfortable. Beneath a ceiling fan mounted on the high ceiling stood a large bed. Two towel art swans, modelled after real birds, sat side by side on the bed, welcoming us.
+What filled my vision was a room with an ocean view on every side.\
+The air-conditioned room was comfortable, and beneath the ceiling fan mounted on the high ceiling sat one large bed, greeted by two swan-shaped towel art pieces sitting side by side, welcoming us in.
 
-　Opening the glass doors facing the sea revealed a terrace with a private pool and two beach beds, plus a ladder leading directly from the room down to the water.\
-What an utterly splendid room. Far more impressive than it had appeared in the brochure.\
-The bathroom also offered sweeping sea views, and the shower room floor was glass-tiled – peering down, we saw yellow fish gliding smoothly beneath our feet.
+Opening the glass doors facing the sea, the terrace held a private pool and two beach beds, along with a ladder leading straight down into the ocean from the room.
 
-"Hey, Yui, isn't this incredible?! We're literally above the sea. Staying in such a wonderful place for days feels like a dream."
+What an extravagant room. Even more impressive than what I'd seen in the brochure.\
+Even the bathroom offered a full ocean view, and the shower room floor was made of glass — peering down, I watched a yellow fish glide gracefully by beneath my feet.
 
-My excitement was unstoppable. Camera in hand, I was darting around the room exploring when suddenly, my hand was grabbed and I was pulled towards someone with all their might.\
-Before I knew it, I was being hugged, then tangled up and pushed down onto the bed.
+"Hey, Yui-san, this is amazing! We're really right over the ocean. Getting to stay somewhere this incredible for days, it feels like a dream."
 
-"Whoa! You... you scared me!"
+Unable to contain my excitement, wandering around the room exploring with the camera in hand, my hand was suddenly grabbed and I was pulled in hard.\
+The moment I registered being hugged, I found myself tumbling straight onto the bed, pulled down along with her.
 
-　I hadn't expected to be pinned down so soon after arriving, so I looked up at Yui-san in surprise.\
-We hadn't even unpacked our suitcases yet. What on earth had come over her?
+"Whoa! Th-that startled me...!"
+
+I never expected to be pushed down onto the bed the second we arrived, and I looked up at Yui-san in surprise.\
+We hadn't even opened our suitcases yet — what had gotten into her all of a sudden?
 
 "Wh-what's wrong?"
 
-"...You looked so cute, getting all excited, I just wanted to hold you. I'm so happy you're enjoying this."
+"...You were so cute, getting all excited like that, I just wanted to hug you. I'm really happy you're enjoying this so much."
 
-Saying that, Yui-san hugged me tightly and gave me a gentle kiss.
+Saying that, Yui-san wrapped me in a tight embrace and gave me a gentle kiss.
 
-"You suddenly pushed me down, so I thought you were going to do something strange..."
+"You pushed me down so suddenly, I thought you were about to do something weird..."
 
-"Eh? Is that okay?"
+"Huh, is that allowed?"
 
-"No way! What are you talking about?! We've only just arrived..."
+"No it's not! What are you even saying, come on! We just got here..."
 
-"Sorry, sorry, just kidding."
+"Sorry, sorry, I was kidding."
 
-Saying that, Yui-san kissed my forehead soothingly... but was she really joking? Somehow, it felt like she was a bit serious.
+Yui-san said it, kissing my forehead soothingly — but was that really a joke? It kind of felt a little serious, honestly.
 
-"Yui-san, once we've sorted our luggage, shall we go explore the beach?"
+"Yui-san, once we're done unpacking, want to go explore the beach?"
 
 "Sounds good, let's do that."
 
-Opening the suitcase, I first took out Shachi-kun, who'd been transported completely flattened like a rice cracker.\
-Opening the compression bag and sucking out the air, he returned to his original size.
+Opening my suitcase, the first thing I pulled out was Orca-kun, still flattened flat like a rice cracker from the trip.\
+Opening the compression bag and letting the air rush in, he puffed right back up to his normal size.
 
-Shaping him with both hands, I gently placed him on the bed so Shachi-kun could see the sea too.
+I shaped him back into form with both hands and gently set him on the bed, so he could see the ocean too.
 
-　Shachi-kun had been my steadfast companion during the four years apart from Yui-san.\
-I felt truly grateful to have brought him all this way.
+Orca-kun, who supported me through those four years apart from Yui-san, deserves real credit.\
+I'm so glad I got to bring him all the way here.
 
-"Kanata?"
+"Kanata."
 
-"Yes?"
+"What is it?"
 
-Turning at the sudden call, I saw Yui-san grab Shachi-kun firmly with one hand and lift him up.
+Turning at the sudden call of my name, I found Yui-san had grabbed Orca-kun with one hand and lifted him up.
 
-"Ah! What are you doing?!"
+"Wait! What are you doing!"
 
-"Have you forgotten? No, not on the bed."
+"Did you forget? No stuffed animals on the bed."
 
-Saying that, Yui-san placed Shachi-kun back on the sofa.
+Saying that, Yui-san set Orca-kun down on the sofa instead.
 
-"Ugh, why are you being so mean...!"
+"Ugh, why are you being so mean about this...!"
 
-"Well, Kanata, you always try to sleep hugging that thing even though I'm here."
+"Because, Kanata, even with me right there, you always try to sleep hugging that thing."
 
-It was true. I recalled several times when, while Yui-san hugged me from behind, I'd tried to sleep hugging Shachi-kun instead, only to upset her by saying, "It makes me feel lonely when you keep turning your back on me."
+That's true, actually — I remembered a few times I'd tried to sleep hugging Orca-kun even while Yui-san held me from behind, and she'd gotten genuinely put out, saying "it's lonely when you keep your back to me the whole time."
 
-"Kanata. If you want to hug someone, hug me."
+"Kanata. If you're going to hug something, hug me."
 
-So Yui-san and Shachi-kun had fallen out properly... Was it my fault after all?
+So it really was my fault, after all, that Orca-kun and Yui-san ended up in a full-blown rivalry.
 
-Feeling a little remorseful, I hugged Yui-san tightly against my chest, my apology in my embrace.
+Feeling a little repentant, I threw my arms around Yui-san's chest as a gesture of apology.
 
-"I'm sorry. But... please don't treat Shachi-kun too roughly, alright?"
+"Sorry. But... please don't be too rough with Orca-kun, okay?"
 
-"Only if Kanata prioritises me over Shachi-kun."
+"Only if you keep prioritizing me over Orca-kun, Kanata."
 
 Saying that, Yui-san gently pressed her lips to my cheek.
 
-With no other choice, I decided Shachi-kun's permanent spot in this room would be on the sofa, just as Yui-san said.
+With no other option, I decided Orca-kun's designated spot in this room would be the sofa, just like Yui-san said.
