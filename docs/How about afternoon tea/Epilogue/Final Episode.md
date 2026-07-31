@@ -1,303 +1,327 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Epilogue
 sequence: 118
-title: 'Final Episode: Say you love me'
+title: 'Final Episode: Say You Love Me'
 ---
-Final Episode: Say you love me
+## Final Episode: "Say You Love Me"
 
-Then, hand in hand, we walked barefoot along the sandy shore, following the ebb and flow of the waves.
+\
+After that, hand in hand, we walked barefoot along the shoreline, following the gentle rhythm of the waves as they rolled in and pulled back out.
 
-The fine grains of sand were pure white, clinging not to our feet, making it feel as though we were walking on a smooth carpet.
+The fine white sand didn't cling to our feet at all — it felt like walking across a soft, silken carpet.
 
-In the distance, a large white bird with a long neck could be seen flapping its wings as it flew away.
+In the distance, I watched a large white bird with a long neck take flight.
 
-　How marvellous. That such a beautiful place existed on this Earth.
+Amazing. To think a place this beautiful existed somewhere on this earth.
 
 "...I hope the stars look beautiful tonight."
 
-Yui-san murmured softly, gazing up at the clear blue sky.
+Looking up at the clear blue sky, Yui-san murmured it quietly.
 
-"It's so clear, they're bound to be stunning. When night falls, shall we lie on the sand and do some stargazing?"
+"With weather this clear, I'm sure they will. Once it's dark, why don't we lie down on the beach and do some stargazing?"
 
-"Yes, that sounds lovely. I'm looking forward to tonight too."
+"Yeah, let's. I can't wait for tonight either."
 
-　After thoroughly enjoying the sandy shore, we returned to the villa and stretched out on the poolside beach beds.\
-Gazing at the horizon stretching endlessly before us, we felt the soft breeze envelop our bodies.
+*
 
-Glancing over, I saw Yui-san notice my gaze and return it with a smile.
+After that, we thoroughly enjoyed the beach, then returned to the villa and stretched out on the beach beds by the pool.\
+Gazing out at the endless horizon, I felt the soft breeze wash over my whole body.
 
-"What is it? You're staring."
+Glancing beside me, Yui-san noticed my eyes on her and smiled back.
 
-Ah, this feels so good.\
-　We can keep spending time like this from now on. The two of us, forever.
+"What's wrong? Staring like that."
 
-Yui-san shows me sights I could never see alone.\
-I'm sure we could go anywhere in this world. Together.
+Ah, I'm so happy.\
+We get to keep living like this, from here on. — The two of us, forever.
 
-"...Nothing, really. I just thought how happy I am. Thinking about how we can go all sorts of places together from now on."
+Yui-san shows me sights I could never possibly see on my own.\
+I'm sure we could go anywhere in this whole world. As long as it's the two of us.
 
-"That's true. But I'm happy wherever I am, as long as Kanata's with me."
+"...Nothing, really. Just thinking how happy I am. Thinking about how we get to keep going to all kinds of places together, from now on, with you."
 
-　Saying that, Yui-san gave me a bright smile. As ever, she offered such sweet words without a hint of embarrassment.
+"Yeah. But honestly, wherever I am, as long as I'm with you, Kanata, I'm happy."
 
-"Oh, come on, Yui-san, you always say things like that..."
+Saying that, Yui-san smiled brightly. As always, she hands me lines this sweet without a shred of embarrassment.
 
-"Ah, are you blushing?"
+"Ugh, Yui-san, you always say things like that so easily..."
 
-"I'm not blushing!"
+"Oh, are you blushing?"
 
-I turned away abruptly, as if to hide my flushed face. Then Yui-san laughed, took my hand, and pulled me along.
+"I am not blushing!"
 
-"Come on, Kanata. Let's go in the pool while we're here. I'll put sunscreen on you."
+I turned away, trying to hide my reddening face. Yui-san laughed and took my hand, pulling me along.
 
-We'd splashed out on expensive sunscreen, figuring the sun would be stronger than in Japan. We decided to help each other apply it to the hard-to-reach spots.
+"Hey, Kanata. Since we're here, let's get in the pool. I'll put sunscreen on you."
 
-As my palm slid over Yui-san's beautiful white back, I started feeling strangely unsettled.\
-　I traced the slightly protruding shoulder blades and followed the curve of her spine. I was always the one being hugged by Yui-san, so I'd never really looked at her back like this before.
+*
 
-Wisely resisting the urge to press my lips against her fine, white skin, I deliberately reached around to her side to cover it up. Yui-san laughed, saying it tickled.
+We'd splurged on expensive sunscreen, knowing the sun here would hit so much harder than in Japan. We decided to take turns applying it to the spots we couldn't reach ourselves.
 
-　Yui-san returned the favour by applying sunscreen to me, but I was startled when the touch of her fingers on my back sent a shiver through my body.
+Sliding my palm across Yui-san's beautiful pale back, something about it left me feeling strangely unsettled.\
+I traced along her slightly protruding shoulder blades, following the line of her spine. I'm always the one being held by Yui-san, so I'd never actually taken the time to really look at her back like this before.
 
-Yui-san surely didn't mean it that way, but somehow my body seems to have developed a function that converts every sensation she gives me into that kind of feeling.
+Fighting down the urge to press my lips against her fine, pale skin, I deliberately reached over to her side instead to cover for myself, and she laughed, saying it tickled.
 
-"Hey, Yui-san, I can't take it anymore! It tickles...!"
+Yui-san returned the favor and put sunscreen on me too, but I was startled to feel my whole body shiver at the sensation of her fingers against my back.
 
-"Eh? But Kanata, you're so fair-skinned, it'd be terrible if you got sunburnt, wouldn't it? Just bear with it until I've applied it everywhere properly."
+I'm sure Yui-san didn't mean anything by it, and yet somehow, at some point, my body had developed this function where every single sensation she gives me gets converted into that particular kind of feeling.
 
-"No way! I can't do it!"
+"Hey, Yui-san, stop, I can't take it! It tickles...!"
 
-My face flushed bright red, my body writhing and twitching as I trembled. Yui-san laughed and hugged me tightly.
+"Huh? But Kanata, your skin's so fair, it'll be awful if you get sunburned. Just bear with it until I've covered every spot properly."
 
-　After changing into the frilly white swimsuit Yui-san had picked out for me, she beamed with delight the moment she saw me in it. Calling me adorable over and over, she kissed me repeatedly.
+"No! I really can't anymore!"
 
-Yui-san had chosen a navy blue swimsuit, which suited her perfectly — her long limbs and slender frame looking absolutely stunning in it.
+Face bright red, twisting and trembling as I squirmed, Yui-san just laughed and pulled me into a tight, tight hug.
 
-My gaze was drawn to her toned, white abdomen. Perhaps because Yui occasionally went to the gym to work out, her body was always supple and beautiful.
+*
 
-Sitting on the edge of the pool, gazing at the emerald green sea and the large clouds floating in the sky, I moved my feet as if stirring the water, and the coolness felt wonderful.\
-Yui sat down beside me and dipped her toes into the pool in the same way.
+Once I changed into the frilled white swimsuit Yui-san had picked out for me, the moment she saw me in it her eyes lit up with delight, and she showered me with kisses, saying "cute, cute" over and over.
 
-"...When I go back to Japan, I think I'll go to the gym with you, Yui-san."
+Yui-san had chosen a navy-blue swimsuit for herself, which suited her long, slender limbs beautifully.
 
-"The gym? You don't need it, Kanata. You can eat loads without putting on weight."
+My eyes were drawn helplessly to her toned, pale stomach. She goes to the gym now and then to keep in shape, and her body is always lithe and beautiful for it.
 
-"I want a beautiful stomach like yours, Yui-san."
+Sitting on the edge of the pool, gazing out at the emerald-green sea and the big clouds floating in the sky, I stirred the water with my feet, and it felt wonderfully cool.\
+Yui-san sat down beside me, dipping her own toes into the pool with a light splash.
 
-I poked Yui-san's perfectly toned stomach and felt firm muscles beneath a layer of softness.
+"...Maybe once we're back in Japan, I should start going to the gym with you too, Yui-san."
 
-　Then Yui reached out and gently stroked my slightly softer stomach.
+"The gym? You don't really need that, do you — you never gain weight no matter how much you eat."
 
-"I like your tummy, Kanata."
+"I want a stomach as nice as yours, Yui-san."
 
-"...Isn't it a bit soft? Should I do sit-ups or something?"
+I poked at her firm, defined stomach, and beneath a little softness, I could feel toned muscle underneath.
 
-"Not at all. This is just right. Besides..."
+At that, Yui-san reached over and gently stroked my own, slightly softer stomach.
 
-Peering at my face, Yui grinned. I had a bad feeling about this.
+"I like your stomach just the way it is, Kanata."
 
-"When you're feeling good, you tense your stomach, don't you? So I reckon that exercise is plenty."
+"...Isn't it a little soft, though? Maybe I should do some sit-ups or something."
 
-I shoved Yui's shoulder hard, sending her crashing into the pool.\
-Splash! Water sprayed everywhere.
+"Not at all. This is exactly right. Besides..."
 
-"You're such a pervert, Yui!"
+She peered into my face, grinning. Somehow, I had a bad feeling about this.
 
-　Though the pool wasn't deep, Yui-san was drenched from head to toe after being pushed in. She surfaced, brushed her hair back, and laughed, "Ahaha!"
+"When you're feeling good, you tense up right here, don't you? So I think that's plenty of exercise already."
 
-Before sunset, we headed to the pier where a small sightseeing boat for the sunset cruise was moored and boarded.
+Yui-san whispered it, teasing, and I shoved her shoulder with everything I had, pushing her straight into the pool.\
+There was a splash, and water sprayed up with a loud *plop*.
 
-The sightseeing boat cut through the wind, moving across the sea.
+"Yui-san, you pervert!"
 
-　Using the ladder, I climbed up to the deck with the best view, gripped the railing, and looked straight ahead.\
-Feeling the sea breeze directly on my cheeks, it felt as though I were flying through the sky.
+The pool wasn't deep at all, but having been pushed in headfirst, Yui-san surfaced, soaked through, and swept her wet hair back, laughing.
 
-The light of the sinking sun made the boundary between the clouds and the sky glow orange.\
-I looked beside me. Seeing her squinting, dazzled, I thought she was more beautiful than anyone else in the world.
+*
 
-　This tenderness felt akin to heartache.\
-Just seeing Yui-san's smile made my chest tighten painfully.
+Before the sun went down, we headed to the dock where a small sightseeing boat waited to take us on a sunset cruise, and boarded.
 
-As if remembering something, I took the camera hanging from my neck and peered through the viewfinder.
+The boat cut through the wind, gliding out across the water.
 
-Driven solely by the desire to capture this overwhelmingly happy moment, I pressed the shutter again and again.
+Climbing a ladder up to the open observation deck, I gripped the railing and looked straight ahead.\
+Feeling the sea breeze hit my cheeks directly, I felt almost like I was flying through the sky.
 
-　Then, as the sunset melted into the horizon, painting the sea orange.
+In the light of the setting sun, the line between clouds and sky glowed a brilliant orange.\
+I glanced beside me. Watching her narrow her eyes against the glare, I thought she was more beautiful than anyone else in the entire world.
 
-"Ah! Yui-san, look, dolphins!"
+Affection, I think, feels a little like sorrow.\
+Just seeing Yui-san's smile is enough to make something deep in my chest tighten painfully.
 
-"Wow, really!"
+Remembering myself, I lifted the camera hanging from my neck and looked through the viewfinder.
 
-A pod of five or six dolphins appeared in the sunset-tinged sea. Their supple dorsal fins surfaced and submerged repeatedly, and I was utterly captivated by the sight.
+Wanting desperately to capture this unbearably happy moment and hold onto it forever, I pressed the shutter again and again, driven by that single wish.
 
-"Amazing... It's like a BBC documentary."
+And then, as the setting sun melted into the horizon, dyeing the sea a deep orange—
+
+"Oh! Yui-san, look, dolphins!"
+
+"Whoa, it really is!"
+
+A pod of five or six dolphins appeared in the sunset-stained sea. Their sleek dorsal fins rose and dipped beneath the surface again and again, and I found myself utterly captivated by the sight.
+
+"Incredible... it's like a BBC documentary."
 
 "What's that?"
 
-I smiled at Yui, who tilted her head.\
-Right, Yui only watches films, doesn't she? I reflected that my comment was a bit niche.
+Yui-san tilted her head, and I laughed.\
+Right, of course — Yui-san only ever watches movies. I made a note to myself that maybe that comment had been a little too niche.
 
-"...Let's watch one together sometime. You should be able to stream them in Japan too."
+"...Let's watch one together sometime. It should be available on a streaming service even in Japan."
 
-　We stood shoulder to shoulder, watching until the pod disappeared from view, as if etching their image into our eyes.
+We pressed our shoulders together and watched, burning the sight into our memory, until the pod of dolphins disappeared entirely from view.
 
-By the time the boat returned to the island, night had fallen completely. After enjoying dinner at a seaside restaurant, we walked hand in hand towards the sandy shore.
+*
 
-Sitting down on the beach where only the gentle sound of waves echoed, I gently rested my head on Yui-san's shoulder.
+By the time the boat returned to the island, night had fully fallen, and after enjoying a meal at a beachside restaurant, we walked hand in hand toward the shore.
 
-Looking up at the deep indigo sky — a starry expanse more beautiful than any planetarium I'd ever seen stretched out before us.
+Sitting down on the sand, where only the gentle sound of the waves filled the air, I quietly rested my head against Yui-san's shoulder.
 
-Fingers intertwined. The deserted night sea. Such a comforting moment existed here that I might have believed it if told we were the only two people left in the world.
+Looking up, the deep navy sky above spread out in a sky full of stars, more beautiful even than the planetarium show we'd seen that day, so long ago.
+
+I laced my fingers with hers. An empty, nighttime sea with no one else in sight. It was such a comfortable, peaceful stretch of time that I could almost believe, if someone told me, that the two of us were the only people left in this entire world.
 
 "...Hey, Yui-san."
 
-"What is it?"
+"Yeah?"
 
-"The stars are beautiful, aren't they?"
+"The stars are beautiful, aren't they."
 
-"...Yes, they are. I never imagined stars seen in the middle of the sea could be this beautiful."
+"...Yeah. I never imagined stars seen from the middle of the ocean could be this beautiful."
 
-"Thank you for bringing me to such a wonderful place. It truly feels like a dream."
+"Thank you for bringing me somewhere this wonderful. It really does feel like a dream."
 
-"If it's what you wish, I'll take you anywhere. Let's keep making lots of memories together from now on."
+"I'll take you anywhere you want, Kanata, wherever that is. Let's keep making memories together, from here on."
 
-Her eyes, black as the night sea, gazed at me tenderly. My chest tightened so much with tenderness it felt like it might burst, making it hard to breathe.
+Her eyes, dark as the nighttime sea, gazed at me with such tenderness. Something deep in my chest tightened, so full of affection it felt almost like it might burst, aching.
 
-　Long ago, when I asked Yui-san why she never had a lover, she said, "No matter how much I love someone, there are things I could never give them."
+I remembered once, long ago, asking Yui-san why she never dated anyone. She'd told me, "No matter how much I might love someone, there are things I can never give them."
 
-She meant she couldn't offer the future most heterosexual couples take for granted: marriage and children.
+She'd meant the future that's simply assumed between a man and a woman — marriage, having children.
 
-For her, constantly pressured by those around her, even if those words were spoken without malice, they must have felt like an enormous, insurmountable wall.
+Having always had that expectation quietly pressed onto her by everyone around her, even if it was never meant with any malice, it must have stood before her like an enormous, impassable wall.
 
-　But in the future I envisioned, there was always only you. I never desired anything more.
+But in the future I've always pictured for myself, there's only ever been you. I've never wanted anything more than that.
 
-Just standing here side by side, shoulders touching, my heart feels warm as if bathed in sunlight, filled with certain happiness.
+Just sitting here together like this, shoulders pressed close, my heart always feels warmed as if bathed in sunlight, filled with a real, certain happiness.
 
-That was everything. Falling in love with you, experiencing so much, the answer I found lies here.
+That's all it ever took. This, right here, is the answer I found after falling in love with you and living through everything that came with it.
 
-　Love possesses the strength to overcome any hardship.\
-As long as we love each other wholeheartedly and sincerely, nothing will ever be lacking.
+Love has the strength to overcome any hardship, no matter how difficult.\
+As long as two people love each other earnestly and honestly, there's nothing that's ever truly missing.
 
-In a world that unconsciously imposes rigid notions of correctness, we've run this far, envisioning the certain form of happiness we desire.
+In a world that unconsciously presses some pre-molded version of "correctness" onto everyone, we kept running, all the way here, chasing the one certain shape of happiness we wanted for ourselves.
 
-"...Yui-san, you grant my wishes as if by magic. I always wish I had something to give back to you in return."
+"...You know, Yui-san, it's like you grant my wishes as if by magic. I always wish there was something I could give back to you too."
 
-As I said this, she squeezed my left hand tightly.
+At that, she squeezed my left hand tightly in hers.
 
-"...Hey, Kanata. In that case, would you grant me just one wish?"
+"...Hey, Kanata. Then, will you grant me one wish?"
 
-It was rare for the selfless Yui to ask me for anything.\
-Overjoyed, I lifted my face, met her eyes, and smiled.
+It's rare for Yui-san, who wants for so little herself, to ask me for anything.\
+Happy at the thought, I lifted my face and smiled, looking into her eyes.
 
-"A wish? Of course. Tell me anything. I'll make it happen for you."
+"A wish? Sure, tell me anything. I'll make it come true, whatever it is."
 
-I answered, chest puffed out. If it was something Yui-san wished for, I wanted to make it happen with every fibre of my being. Just as you always do for me.
+I answered proudly. If it's something Yui-san wishes for, I want to make it happen with everything I have — the same way she's always done for me.
 
-"Really? Promise you won't refuse, absolutely?"
+"Really? Promise you won't refuse, no matter what?"
 
-"Absolutely. Leave it to me."
+"Of course. Leave it to me."
 
-Facing me directly, Yui-san smiled happily.
+Facing me directly, Yui-san smiled, looking genuinely happy.
 
-"...All right. Now, close your eyes."
+"...Okay. Then, close your eyes."
 
-"Eh? My eyes?"
+"Huh? My eyes?"
 
-"Quickly. Don't open them until I say it's alright."
+"Hurry. You can't open them until I say it's okay."
 
-She gently covered my eyes with one hand, and I closed them as she urged me.\
-In the darkness, I felt Yui-san take my left hand. I felt a soft, gentle touch on my ring finger, and then her lips pressed against mine.
+She gently covered my eyes with one hand, and following her urging, I closed them.\
+In the darkness, I felt Yui-san take my left hand. A soft, gentle sensation against my ring finger — I realized she'd pressed her lips against it.
 
-　I laughed, saying it tickled, and next, I felt a hard sensation on my ring finger.
+Laughing that it tickled, I felt something hard against my ring finger next.
 
-Even though I was told not to open them until I was told it was okay — I was startled and opened my eyes without meaning to.
+Even though she'd told me not to open my eyes until she said so — startled, I found myself opening them anyway.
 
-The moment I caught sight of it, lifted up to the base of my finger, I was momentarily speechless.
+The moment it came into view, lifted up to the base of my finger, I lost my words for a moment.
 
-A ring set with a diamond that reflects faint light in seven colours now adorns my ring finger.
+Catching the faint light and scattering it into every color, a diamond ring now sat — right there, on my ring finger.
 
-"Yui... this..."
+"Yui-san... this is..."
 
 "...Kanata."
 
-Hearing my name, I lifted my face. Eyes like a calm night sea—gazing at me earnestly.
+Hearing my name, I lifted my face. Her eyes, calm as a still night sea, looked back at me with total seriousness.
 
 "...I love you."
 
-Riding the soothing sound of waves lapping and receding, those words reached straight into my heart.
+Carried on the gentle, endless rhythm of the waves, those words reached straight into my heart.
 
-Hundreds of times before, she had given me the words "I like you".\
-But "I love you" this was the first time she had said it.
+Up until now, she must have told me "I like you" hundreds of times.\
+But — this was the first time she'd ever said "I love you."
 
-My heartbeat quickened. A stinging sensation in the back of my eyes made my vision blur instantly, and tears simply streamed down my cheeks.
+My heartbeat picked up speed. My eyes stung, my vision blurring instantly, and tears simply spilled down my cheeks.
 
-　—I love you.
+*I love you.*
 
-The words echoed repeatedly within my mind.
+The words replayed over and over in my mind.
 
-This was no jest, nor the playful banter between lovers. Right now, she was trying to tell me, with all her heart, that she truly loved me.
+Not a joke, not some extension of a lovers' playful banter. Right now, she was trying, with total sincerity, to tell me that she loved me from the very bottom of her heart.
 
-I hadn't realised the words 'I love you' could hold such profound depth.
+I never knew the words "I love you" could carry this much weight. — I never knew.
 
-Yui's palm gently stroked my cheek, wiping away my tears.
+Yui-san's palm gently stroked my cheek, wiping away my tears.
 
-"I swear I'll love only you for the rest of my life. So swear it too. Tell me... you love me."
+"I swear I'll go on loving only you, for the rest of my life. So promise me too, Kanata. Tell me... tell me you love me."
 
-Between us lay countless obstacles to overcome. It was never an easy path, nor was it a pretty, picture-perfect romance like in the movies.
+There had been so many obstacles standing between us, so many things we had to overcome. It was never an easy road, never the kind of pretty, uncomplicated love you'd find in a movie.
 
-Yet we simply loved each other as our hearts cried out, clinging desperately to one another.
+And still, we simply loved each other exactly as our hearts screamed to, chasing after each other relentlessly, without restraint.
 
-　Recalling those days, emotions swirled like a muddy torrent — a fervent longing welled up that words could never convey.\
-Reaching out, I held her body tightly. She embraced me back so fiercely it took my breath away, and I desperately wiped away the tears spilling over.
+Looking back over all those days, my emotions swirled together like a churning current — a burning feeling too immense for words welled up inside me.
 
-I wanted to tell her with a smile. Just as she had done for me.\
-I loosened my arms and gazed at her beloved face.\
-　Her dark eyes, like a calm night sea, gazed straight back at me.
+I reached out and held her close, as tightly as I could. She held me back just as fiercely, tight enough to steal the breath from my lungs, and I did my best to wipe away the tears streaming down my face.
 
-"I love you too, Yui-san. I swear I will love only you for the rest of my life."
+I wanted to say it smiling. The way she'd always done for me.\
+Loosening my arms just slightly, I looked into the face of the person I love so dearly.\
+Her dark eyes, calm as a still night sea, looked straight back into mine.
 
-"Kanata... marry me. Even if we can't register it now, the day will surely come when we can. So please, stay by my side forever."
+"I love you too, Yui-san. I swear I'll go on loving only you, for the rest of my life."
 
-　Nodding firmly at her words, Yui smiled, genuinely happy.
+"Kanata... marry me. Even if we can't officially register it yet, someday, I know it'll be possible. So stay by my side, always, until then."
 
-I believe that day will surely come someday. No matter how long it takes. We can walk together, staying close, wherever we go. Until death do us part.
+At those words, I nodded firmly, and Yui-san smiled back at me, looking truly, genuinely happy.
 
-"...Let's have a wedding ceremony. I want Kanata to wear a beautiful dress."
+I believe, without a doubt, that day will come eventually. However long it takes, that's fine. We can keep walking forward together, side by side, no matter how far the road goes. Until death parts us — always.
 
-"Then I'll choose the dress that suits you best, Yui-san."
+"...Let's have a wedding. I want to see you in a beautiful dress, Kanata."
 
-I imagined my beloved lover clad in a pure white gown. And beside her would be none other than me.
+"Then I'll pick out the dress that suits you best, Yui-san."
 
-Hand in hand, we'll pledge this love to God. Even if this love isn't yet accepted by everyone.
+I imagined the woman I love, wrapped in pure white. And right there beside her, no one else but me.
 
-We'll live with our heads held high.
+Let's join hands and swear this love before God. Even if, for now, this love isn't something everyone in the world is ready to accept.
 
-　Drawing closer, our lips meet in a kiss that barely touches. ――On that deserted night sea, just the two of us, we pledged our certain love.
+*
 
-We met like a miracle, drew to each other, and fell in love so deeply it took our breath away.
+We'll live our lives with our heads held high.
 
-Even when we hurt each other, even when we were apart, the memory of each other was etched more strongly than anything in our hearts, and our love burned on, never fading.
+*
 
-　Not only in happy times, but even in times unbearably painful and bitter, even if there were nights we hurt each other, still I want to be by your side.
+Drawing close as if pulled toward each other, we let our lips meet in a gentle, barely-there kiss. — On this empty nighttime sea, with no one but the two of us, we swore a certain, unshakable love to each other.
 
-Until this heart stops beating, I swear I will love you always, no matter what.
+*
 
-Indeed, in this very moment — we have gained eternity.
+We met like something out of a miracle, drawn to each other, and fell in love so deeply it left us breathless.
 
-"…Hey, Kanata. I want you to say you love me one more time."
+Even after hurting each other, even after being torn apart, the presence of the other remained carved into our hearts more powerfully than anything else, and that flame of love never once went out, never faded.
 
-"Wh-why? I already said it properly just now, didn't I?"
+Not just in our happiest moments, but even through the unbearably painful, difficult ones — even through nights when we hurt each other — still, I want to stay right here beside you.
 
-"Once isn't enough! I'd say it ten thousand times over, that I love you, Kanata. So you say it too. Say you love me."
+Until the moment this heart of mine finally stops, I swear I will go on loving you, no matter what comes.
 
-"…Oh, for heaven's sake. Fine then. Just lend me your ear for a moment. I'm too embarrassed to say it out loud."
+*
 
-"Right."
+And right now, in this very moment — we have found forever.
 
-"...Listen, Yui-san. Unlike you, I'm not very good with words, so it might not come across clearly... but I truly do love you, Yui-san."
+*
 
-― How about afternoon tea? The End ―
+"...Hey, Kanata. Say it one more time. I want to hear you say you love me again."
 
-Thank you for reading over the past years!
+"Wh-why? I already said it properly, just now, didn't I?"
+
+"Once isn't enough! I'll say it to you a hundred thousand times, that I love you, Kanata. So you say it too. Say you love me."
+
+"...Ugh, fine, I guess there's no helping it. Here, lean in for a second. It's embarrassing saying it loudly."
+
+"Okay."
+
+"...Listen, Yui-san. I'm not good with words, not like you are, so it might not come across as well as I want it to, but... I really do love you, Yui-san."
+
+*
+
+— *How About Some Afternoon Tea?* — **End** —
+
+Thank you so much for reading over this past year!

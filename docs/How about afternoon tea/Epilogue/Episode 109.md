@@ -1,242 +1,253 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Epilogue
 sequence: 116
-title: 'Episode 109: Shall We Take a Photo Together?'
+title: "Episode 109: Won't You Take a Picture With Me?"
 ---
-Episode 109: Shall We Take a Photo Together?
+## Episode 109: "Won't You Take a Picture With Me?"
 
-"Hey, Kanata, are you really taking this?"
+\
+"Hey Kanata, are you seriously bringing this?"
 
-Peering into my suitcase as I spread out my belongings in one corner of the living room, busy packing away, Yui-san seemed to notice Shachi-kun, squashed flat inside a compression bag. She poked him with her index finger and said discontentedly.
+Peering over at my suitcase, spread open mid-packing in the corner of the living room, Yui-san seemed to notice Orca-kun, squashed flat inside a compression bag, and poked at him with her index finger, sounding unhappy about it.
 
-"Yui, I've told you before, please don't call Shachi-kun 'this'. I'd like to show him the beautiful sea while we're at it."
+"Yui-san, I've told you before, don't call him 'this.' I want him to get to see a beautiful ocean too, while we're at it."
 
-I could guess why Yui looked so displeased.\
-Knowing I was particularly fond of Shachi-kun among my stuffed toys and had a habit of hugging him to sleep, Yui was unusually keen to keep him away from me.
+I can more or less guess why Yui-san's unhappy about it.\
+Among all my stuffed animals, she knows Orca-kun is my particular favorite, and that I have a habit of sleeping with him hugged tight — so she's always trying to keep him at a distance from me.
 
-　Thanks to her, our bedroom now has a "Shachi-kun Entry Ban" in effect. If I even try to bring him in, Yui-san tosses him straight back into the living room, like she's expelling an intruder from her territory.
+Because of that, our bedroom now operates under a standing "No Orca-kun Allowed" decree, and if I ever try to sneak him in, Yui-san tosses him straight back out into the living room, like she's driving off some intruder who's wandered into her territory.
 
-So this time too, I'm sure she's jealous that I'm trying to take Shachi-kun with me.
+So I'm sure this time, too, she's just jealous that I'm planning to bring him along.
 
-　Getting jealous over a stuffed toy? Yui-san has quite the adorable side to her, doesn't she?
+Getting jealous of a stuffed animal — Yui-san can be pretty cute sometimes, honestly.
 
-"...It's fine going there, but you can't compress it on the way back, can you? Stuffed toys take up space, won't it mean souvenirs won't fit in your suitcase?"
+"...The trip there is fine, but you won't be able to compress him again on the way back, you know? Stuffed animals take up so much space, won't your suitcase run out of room for souvenirs?"
 
-"That's because I'll put it in Yui-san's suitcase, so it'll be fine."
+"That's fine, I'll just put it in your suitcase, Yui-san."
 
-When I stated it so decisively, Yui-san laughed, looking exasperated.
+I said it firmly, and Yui-san laughed, looking exasperated.
 
-　Into the suitcase went a squashed Orca-kun, several summer outfits, sunglasses, plus a swimsuit, marine shoes, and a rash guard – couldn't forget that.\
-Splurged on the sunscreen, choosing the priciest one. Should be all covered now.
+Into the suitcase went flattened Orca-kun, several changes of summer clothes, sunglasses, plus a swimsuit, marine shoes, and — mustn't forget — a rash guard.\
+I splurged on the most expensive sunscreen I could find. I think that covers everything.
 
-Just looking at the luggage, it seemed like a midsummer trip.
+Looking at the packing alone, it looks like a trip in the height of summer.
 
-And rightly so. After all, starting tomorrow, we weren't heading anywhere within Japan.
+Which makes sense. Because starting tomorrow, we're not headed anywhere within Japan.
 
-　We were leaving Japan tomorrow.\
-We planned to stay at a hotel near Narita Airport tonight. We would take the first flight the next morning and change planes in Sri Lanka.\
-The destination for this trip was the Maldives, a beautiful resort island surrounded by emerald green waters in the Indian Ocean.
+*
 
-　The Maldives is an island nation with a thriving tourism industry. It is a tropical country consisting of many beautiful islands, popular as a resort for vacations and honeymoons.
+We leave Japan tomorrow.\
+Tonight we're staying at a hotel near Narita Airport. Tomorrow morning we'll catch the first flight out, with a layover in Sri Lanka.\
+And the destination for this trip is a beautiful resort island floating in the Indian Ocean, ringed by emerald-green sea — the Maldives.
 
-There is a dry season and a rainy season, but fortunately, due to an unexpected delay in our long holiday, we are about to enter the best season.
+The Maldives is an island nation built heavily around tourism. A popular resort destination for vacations and honeymoons, a tropical country made up of countless beautiful islands.
 
-As each island is an independent resort, we should be able to spend a relaxing time without crowds.\
-　I'm sure everyone has seen photos of those overwater villas stretching out over the shallow sea.
+There's a dry season and a rainy season, but as luck would have it, our long-delayed vacation ended up landing right as the best season is about to begin.
 
-There are no direct flights from Japan, so a transfer is unavoidable, but thanks to Yui's thoughtful arrangement, I'll be flying first class for the very first time in my life.\
-For someone who always travels economy, this is bound to be a dreamlike journey.
+Each resort occupies an entire private island, so we should be able to spend relaxed, uncrowded time there.\
+I'm sure everyone's seen photos at least once of those overwater villas lining the shallow turquoise sea.
 
-　I long to see it with my own eyes soon. The white sandy beaches and the coral reef sea where colourful fish swim freely.
+There's no direct flight from Japan, so a layover is unavoidable either way, but thanks to Yui-san's arrangements, we'll be flying first class for the very first time in my life.\
+For someone who's always flown economy, this is bound to be a dream of a trip.
 
-How beautiful the starry sky must be when viewed from an island in the middle of the ocean.
+I can't wait to see it with my own eyes. White sand beaches, and a coral reef sea where fish of every color swim freely.
 
-I never imagined Yui would remember the promise we made to spend Christmas together, that one time during our student days.
+Looking up at the night sky from an island in the middle of the ocean — how beautiful must the stars look from there?
 
-　Back then, that vague vision of the future – I never imagined the day would come when it would become reality.
+I never imagined Yui-san would actually remember that promise, the one we made just once, that one Christmas back in our student days.
 
-The events I once dreamt of are becoming reality, one by one.
+That future, once so vague and distant, was actually about to become real.
 
-"Hey, Yui. I hope we get to see a whale shark. If we're lucky, we might even see dolphins, apparently. I'm really looking forward to it."
+Things I'd only ever dreamed of were coming true, one by one.
 
-"Yes, I hope so too."
+"Hey, Yui-san. I hope we get to see a whale shark. If we're lucky, maybe dolphins too. I'm so excited."
 
-Once our holiday dates were confirmed, we promptly visited the travel agency.\
-We pored over brochures, discussing and listing things we wanted to do... it felt just like planning a honeymoon and was great fun.
+"Yeah. I hope we do too."
 
-　Upon learning there was an activity to encounter whale sharks, I simply had to swim with them. We settled on a luxury hotel in South Ari Atoll, one of the many atolls where whale sharks reside year-round.\
-Closing my favourite large suitcase and locking it, I felt more excited about packing than ever before. Fastening the belt around the suitcase heightened the holiday feeling.
+As soon as our leave dates were confirmed, we went straight to a travel agency.\
+Poring over brochures together, listing out everything we wanted to do — it was fun, almost like planning a honeymoon.
 
-　Packing was complete. I stood up to leave the suitcase by the front door ahead of time.
+We learned there was an activity where you could go see whale sharks, and since I desperately wanted to swim alongside one, we settled on a luxury hotel in South Ari Atoll, one of the few atolls where whale sharks live year-round.
 
-We were scheduled to depart this afternoon for the hotel in Narita where we’d be staying the night before.
+I closed up my favorite big suitcase and locked it. I've never packed with this much excitement before. Cinching the strap around the suitcase made the whole trip feel that much more real.
 
-"Kana-ta."
+Packing complete. I stood up to set the suitcase by the entryway ahead of time.
+
+We were planning to leave for the hotel near Narita this afternoon.
+
+"Ka~nata."
 
 "What is it?"
 
-"Turn this way."
+"Look this way."
 
-Turning at her call, I was swept into a tight embrace. As I caught her weight, Yui-san rubbed her cheek against my hair and tightened her arms around me.
+I turned when she called me, and she wrapped me up in a full, enveloping hug. As I caught her weight against me, Yui-san nuzzled her cheek into my hair, tightening her arms even further.
 
-"Ah, I'm so looking forward to it. Seeing you in a swimsuit, Kanata. You'll be absolutely adorable."
+"Ahh, I can't wait. To see you in a swimsuit, Kanata. It's going to be so cute, I just know it."
 
-Her lips pressed against my cheek tickled, making me close my eyes.
+Her lips pressed against my cheek tickled, and I closed my eyes.
 
-The fact that what she was looking forward to wasn't the sea or the starry sky, but me in a swimsuit, almost made me laugh.
+The thing she's looking forward to isn't the ocean or the starry sky, but my swimsuit — it was almost enough to make me laugh.
 
-Last week, we'd gone swimsuit shopping together, doubling as a date.\
-　I had no idea what would suit me, agonised over it, and ended up letting Yui-san choose for me. She was beaming the whole time, so I vaguely realised she was really looking forward to seeing me in a swimsuit.\
-But I can't shake the feeling she has ulterior motives. I hope it's just my imagination.
+Last week, we'd gone swimsuit shopping together, folding it into a date.\
+I had no idea what would suit me, so after agonizing over it forever, I ended up letting Yui-san pick for me — and the whole time, she'd been beaming, clearly delighted, which made it pretty obvious she was really looking forward to seeing me wear it.
 
-"...Yui-san, are you thinking something naughty? You shouldn't. Even if it is a resort, this isn't exactly a country known for its tolerance of same-sex relationships, you know."
+But somehow, I can't shake the feeling there's an ulterior motive involved. I hope I'm just imagining it.
 
-"We'll be alone in the room the whole time, so we can do whatever we want, right? No one will find out."
+"...Yui-san, are you thinking something indecent, by any chance? That's not allowed. It's a resort, sure, but it's not exactly a country known for being tolerant of same-sex couples."
 
-I already had a pretty good idea what she was thinking, even without asking, given that beaming smile of hers.
+"We'll be alone in the room the whole time though, so we're free to do whatever we want, right? No one would ever know."
 
-"Whatever you want... What exactly do you have in mind? Oh, come on, you're not seriously planning to be all naughty all the time, even on holiday?"
+I didn't even need to ask what she was thinking — her smile made it obvious enough.
 
-"Eh? No way?"
+"Free to do whatever... what exactly are you planning? Ugh, are you seriously planning to spend the whole trip doing nothing but *that*?"
 
-"...I didn't say I didn't like it. But Yui-san hasn't been holding back much lately. You used to be so much gentler."
+"Huh, you don't want to?"
 
-"You prefer it gentler? If Kanata asks nicely, I'll do anything for you. Tell me exactly how you want it, if you have any preferences."
+"...I never said I didn't want to. It's just, you haven't been holding back much lately, Yui-san. You used to be so much gentler."
 
-"That's not what I meant!"
+"You like it gentler? If you ask me nicely, I'll do anything you want. Just tell me how you want it, whatever you're hoping for."
 
-It's not like I'm complaining about the sex itself. My cheeks grew hot. I know Yui-san understands and is just teasing me...
+"That's not what I meant by that!"
 
-Right after we moved in together, I learned firsthand just what an astonishing stamina Yui-san possesses.\
-With such a beautiful face, she looks like she'd have no sexual appetite whatsoever, but that's a huge mistake.
+It's not like I was complaining about the *content* of it, specifically. My cheeks went hot. I know Yui-san's fully aware of that and just teasing me anyway, but still...
 
-I recall when Ritsu-san once harshly criticised her as a "sex-crazed barbarian".\
-　Yui-san is certainly not barbaric... but I suppose I could agree with the "sex-crazed" part. It's not entirely wrong, I think.
+*
 
-It was all well and good until we'd sorted out every issue holding us back and finally started our cohabitation as lovers.\
-But perhaps it was that sense of liberation. Once the restraints came off, Yui-san was simply incredible.
+Right after we started living together, I found out firsthand just how shocking Yui-san's stamina really is.\
+With a face as beautiful as hers, Yui-san looks like she'd have hardly any sex drive at all — but that couldn't be further from the truth.
 
-After bathing, I'd be dragged straight to bed with no time to relax, only to wake up the next morning. This went on night after night, and it wasn't just once or twice that I nearly nodded off at work from sheer exhaustion.\
-Disposing of my bed in my room had backfired. With nowhere to retreat to, I was now a rat in a trap.\
-　Yui-san told me to get rid of the bed, so I obeyed without a second thought, but knowing Yui-san, I can't help feeling she knew I'd run away from the start and simply pre-empted me.\
-In the end, I gave up after barely a week and protested to Yui-san in no uncertain terms: "This is interfering with my work."
+I remembered Ritsu-san once harshly calling her a "barbarian consumed entirely by lust."\
+Yui-san is never a barbarian, not really... but on the "consumed entirely by lust" part, I might just have to agree. It's not entirely off the mark.
 
-　When I scolded her, Yui looked disappointedly crestfallen, but since we'll be living together from now on, she'll have to listen to my requests too.
+Once every problem tying us down had finally been resolved, and we got to properly start our life together as a couple — that part was wonderful.\
+But maybe it was the sheer relief of it all. Once the restraints came off, Yui-san, unleashed, was honestly something else entirely.
 
-To be honest, I'm actually really happy that she wants me, but that's still a secret from Yui.
+There wasn't even time to relax after a bath before I'd be dragged straight into bed, and I'd come to only to find it was already morning — night after night after night, and there were more than a few times I nearly fell asleep at my desk from exhaustion.
 
-A sweet, happy life, different from my student days.
+Getting rid of the bed in my old room came back to bite me — with nowhere left to barricade myself in, I was basically a mouse caught in a sack.\
+Yui-san had told me to get rid of my bed, and I'd gone along with it without thinking twice — but knowing her, I can't help but wonder now if she'd already known I'd try to run, and preemptively cut off my escape route.
 
-On days I finish work on time, we go home together and cook side by side in the kitchen.\
-　After dinner, we snuggle up on the sofa, sharing stories of our day or watching films.\
-Kissing in fleeting moments, naturally expressing our love as it blends into everyday life, then drifting off to sleep in each other's arms.
+In the end, I lasted all of about a week before I broke and lodged a full, serious protest with Yui-san: "This is affecting my work."
 
-If this isn't happiness, I don't know what is.
+Yui-san looked genuinely crestfallen at being scolded, but since we're going to keep living together going forward, she needs to actually listen to what I want too.
 
-Cherishing these happy days, I want to keep building memories like this, occasionally travelling together.
+Honestly, being wanted that much makes me really happy, deep down — but that's still a secret from Yui-san.
 
-　What's more, this time we're using our extended holiday for a trip to a resort with that special feel. My heart is so full, I might not sleep tonight.
+A sweet, happy life, with a different flavor than our student days.
 
-　＊＊＊
+On days we clock out on time, we head home together, standing side by side in the kitchen to cook.\
+After dinner, we curl up close together on the sofa, talking about our day, or watching a movie.\
+Stealing kisses in unplanned moments, expressing love naturally, woven into the fabric of everyday life, falling asleep every night wrapped in each other's arms.
 
-　In the evening, we boarded the Narita Express from Tokyo Station, suitcases in tow, heading for our hotel where we'd stay the night before.\
-　I'm not very familiar with Narita Airport, as I always used Haneda when visiting family.
+If this isn't what happiness means, I honestly don't know what would be.
 
-　After boarding the train and sitting next to each other, I raised the centre armrest and gently intertwined my fingers with hers.\
-Perhaps it's because we're constantly clinging to each other, as if we can't get close enough. If we're not touching somewhere, I feel restless.
+Treasuring this happy everyday life, taking trips together every now and then like this — I want to keep stacking up memories, one after another.
 
-Yui-san squeezed my intertwined fingers back and smiled happily.
+And this time especially, using our extended leave for a trip to a resort that feels genuinely special. My chest feels so full, I might not sleep a wink tonight.
 
-"Come to think of it, didn't Ritsu request any souvenirs this time? She always contacts Kanata instead of me for things like this, doesn't she?"
+***
 
-"Well, this time she didn't ask for anything. Just said, 'Forget souvenirs, just tell me all about it when you get back.' That was it."
+That evening, hauling our large suitcases, we boarded the Narita Express from Tokyo Station, heading toward the hotel where we'd stay the night before our flight.\
+I've always used Haneda Airport whenever I go back to visit family, so Narita isn't a place I know well.
 
-When I told them Yui-san and I would be living together again, Ritsu-san and Yuri offered their heartfelt congratulations.
+*
 
-I'm truly grateful to them both for supporting our relationship since our student days.
+Once we sat down side by side on the train, I lifted the shared armrest between us and quietly laced my fingers through hers.\
+Maybe it's because we spend so much of our everyday life pressed close together like this — I feel restless if we're not touching somewhere, even a little.
 
-"Still, since we're here, let's buy some tea from Sri Lanka airport for Ritsu and Yuri."
+Yui-san squeezed my laced fingers back, smiling happily.
 
-"Not souvenirs from the Maldives?"
+"Oh, that reminds me — didn't Ritsu have a souvenir request this time? Usually she always contacts you instead of me for this kind of thing, doesn't she."
 
-"Well, there aren't really any places to buy souvenirs, are there?"
+"Actually, she didn't ask for anything this time. Just said, 'never mind the souvenir, just tell me all about it once you're back.'"
 
-We're staying at an all-inclusive resort the whole time, and there probably won't be anywhere to shop anyway, so the airport's pretty much our only chance to buy souvenirs.
+When I told Ritsu-san and Yuri that Yui-san and I were finally able to live together again, they celebrated for us with their whole hearts.
 
-"True, it's hardly the sort of place for souvenirs."
+I'm truly grateful to the two of them, for having supported our relationship ever since our school days, all the way through.
 
-"But that means we can relax more. Hehe, I'm looking forward to it. It's all thanks to you, Yui-san, that we can travel like this. Thank you so much."
+"Still, since we've got the chance, let's pick up some tea for Ritsu-san and Yuri at the airport in Sri Lanka."
 
-"You're welcome. I'm happy Kanata's enjoying it."
+"Don't you want to get them something from the Maldives instead?"
 
-Yui-san smiled happily, looking straight into my eyes. I felt the grip on my hand tighten.
+"I mean, there's barely anywhere to actually buy souvenirs there, is there."
 
-"……Kanata"
+Since we'll be staying at an all-inclusive resort the whole time, and there's basically nowhere to shop at all, I figure the airport is really our only real chance to buy anything.
+
+"True, it's not exactly the kind of place with souvenir shops."
+
+"But that just means we'll get to really relax instead. I'm so looking forward to it. Being able to take this trip at all is thanks to you, Yui-san. Really, thank you so much."
+
+"You're welcome. Seeing you happy makes me happy too, Kanata."
+
+Yui-san looked into my eyes, smiling happily. I felt her hand tighten around mine, just slightly.
+
+"...Kanata."
 
 "What is it?"
 
-Yui-san brought her lips close to my ear. Wondering what it could be, I leaned in to listen.
+Yui-san brought her lips close to my ear. Wondering what she was about to say, I leaned in to listen, and—
 
-"I love you"
+"I love you."
 
-She whispered softly, and I blushed in surprise.
+She said it, quietly, and I felt my cheeks flush with surprise.
 
-"Oh, what are you saying in a place like this…!"
+"Come on, what are you saying, right here in public...!"
 
-Seeing my flustered reaction, Yui-san laughed teasingly.
+Seeing me flustered, Yui-san laughed, teasing.
 
-"You really don't need to be so embarrassed. Honestly, you're adorable, Kanata."
+"You don't have to be that embarrassed about it. You're really so cute, Kanata."
 
-This is something I only realised after we started dating... but having a lover who expresses affection so richly truly makes your daily happiness incomparable.
+This is something I only learned after dating Yui-san — having a partner this expressive with their affection really does raise your everyday happiness by an entirely different order of magnitude.
 
-Yui-san has always been like this, ever since our student days.
+Yui-san's always been like this, ever since our school days.
 
-She tells me she loves me directly, in words. But it's not just that. She conveys her affection with her gaze, telling me she likes me with her whole body.
+She tells me she loves me straight out, in words. But it's not just that. Her eyes carry the love too, conveying it with her whole body, every time.
 
-　At first, I couldn't tell if Yui-san's words were genuine or not. I even suspected she might say the same thing to everyone.
+At first, I had no idea whether her words were sincere or not. I even doubted whether she said the same things to everyone.
 
-But now I understand. There wasn't a single lie in her words.
+But now I know. There was never a single lie in anything she ever said to me.
 
-"I'm so happy I can be with Kanata all the time from today. Lately, I couldn't see Kanata's face while working, and I was struggling because I couldn't get motivated at all."
+"I'm so happy I get to be with you all day starting today, Kanata. Lately I can never see your face during work hours, and it's been seriously killing my motivation."
 
-"Saying things like that, I won't be responsible if your father scolds you, you know?"
+"Careful saying that, or your dad might scold you, you know?"
 
-"It's all Dad's fault, you know. He's the one who took Kanata away from me. Don't you think that's awful? Making his daughter's girlfriend his secretary?"
+"That's entirely Dad's fault anyway. He's the one who took you away from me. Isn't that awful? Making his own daughter's girlfriend his personal secretary."
 
-With that, Yui let out a deep sigh.
+Yui-san said it with a deep sigh.
 
-"I'm delighted, actually. Knowing that one day I might be able to assist Yui-san makes me more enthusiastic about my work. President Ichinose is very kind, too."
+"I'm happy about it, though. Thinking that someday I'll get to be useful to you, Yui-san, makes me work that much harder. And President Ichinose is kind, too."
 
-"I absolutely think I'm kinder than my father..."
+"I'm definitely kinder than Dad is, though..."
 
-Yui-san narrowed her eyes slightly and looked at me with apparent displeasure.\
-It was true, but thinking back now, I suppose Yui-san really did spoil me too much.
+Yui-san narrowed her eyes at me, looking unhappy about it.\
+That's true, honestly, but thinking back on it now, I do think Yui-san spoiled me way too much.
 
-"Now, now, Yui-san, don't sulk like that. Thanks to you, we got to take time off together, didn't we? President Ichinose sent us off quite happily too."
+"Now, now, Yui-san, don't sulk so much. Thanks to this, we got to take leave together, didn't we. President Ichinose sent us off happily too."
 
-"That may be true, but..."
+"I guess that's true, but..."
 
-Had we remained president and secretary, we might never have been able to take a long holiday together and go travelling like this.\
-Thinking that, I felt there was meaning in us working in separate departments after all.
+If we'd stayed president and secretary, we probably wouldn't have been able to line up our long leave together like this and take a trip.\
+Thinking about it that way, working in separate departments feels meaningful too.
 
-　I smiled at Yui-san, who was still looking rather sulky, and picked up the camera hanging around my neck, as if to change the subject.
+I laughed at Yui-san, still pouting a little, and reached for the camera hanging from my neck to shift the mood.
 
-"Actually, Yui-san. How about we take some photos together instead?"
+"Oh, right, Yui-san. More importantly — won't you take a picture with me?"
 
-"Photos? Here?"
+"A picture? Here?"
 
-"Yes. The journey itself is part of the memories."
+"Yeah. Even the travel time itself is a memory."
 
-Saying that, I rested my head on Yui-san's shoulder.
+I said it, resting my head against Yui-san's shoulder.
 
-　Stretching my arm to point the lens towards us, I pressed the shutter. A satisfying click echoed.
+Stretching my arm out, turning the lens toward us, I pressed the shutter, and a satisfying *click* rang out.
 
-I want to take lots of photos, so that someday we can look back and talk about these memories.
+I want to keep taking as many photos as I can, so that someday we can look back on them together and talk about the memories.
 
-I savoured the happiness of having Yui beside me in this very moment.
+Right now, in this moment, I let myself fully savor the happiness of having Yui-san right here beside me.
 
-The train sped on, carrying us along.
+The train carried us onward, racing ahead.
 
-This trip will surely become a memory I'll never forget.
+This trip is sure to become a memory neither of us will ever forget, for the rest of our lives.
