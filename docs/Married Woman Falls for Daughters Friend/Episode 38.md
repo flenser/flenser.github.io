@@ -14,14 +14,14 @@ Hoping the actual quote I was drafting would clear approval as cleanly as any Ch
 Supposing, hypothetically, I actually did this. On that premise alone, purely hypothetical, I found myself puzzling it through anyway.\
 Where would you even get a Santa costume?\
 Had I ever seen one in a regular clothing shop? I'd never specifically looked, so I had no memory of it either way. Mail order, maybe? I'd seen people wearing Santa costumes as shop greeters before, so somewhere, someone had to be mass-producing them. Surely not something you'd have to make yourself. Probably.\
-Search it on a break and it would probably turn up. But... am I actually doing this? some other part of me kept objecting. Wasn't I being far too indulgent with Kai. A Santa costume, something you'd only wear once a year, and almost certainly never again after this, was an obviously wasteful purchase by any reasonable standard. Kai was just one of my daughter's friends. ...*Just* one, that was a lie, wasn't it.\
+Search it on a break and it would probably turn up. But... am I actually doing this? some other part of me kept objecting. Wasn't I being far too indulgent with Kai? A Santa costume, something you'd only wear once a year, and almost certainly never again after this, was an obviously wasteful purchase by any reasonable standard. Kai was just one of my daughter's friends. ...*Just* one of... that was a lie, wasn't it?\
 Whether there was a connection between Kai and me that existed independently of my daughter... difficult to put into words, but probably, yes. I still couldn't articulate, even to myself, what exactly this connection with someone as fundamentally unknown as Kai actually was. What I did know was that it had no name within any framework of common sense I'd built up until now.\
 Kai, for her part, seemed to carry none of that hesitation. She simply watched me, and smiled, always.\
 There was nothing easy or open about Kai's smile, something bent, layered under ceiling after ceiling that blocked out the light, full of shadow. I'd never seen her smile any other way. But once I noticed the clumsiness underneath it, I found myself able to face it with something closer to watchfulness, care. The number of times our eyes actually met had grown steadily, and whatever her eyes told, sorrow, brightness, whatever it amounted to, I found myself straightening up, settling, at the thought of it.\
 There, see, thinking about Kai again.\
-What even was this.\
+What even was this?\
 ...For Santa Claus, part two. Let this pointless spiral end around part two.\
-What should I actually get Kai. Was a gift even necessary? Obviously, yes. Santa Claus showing up empty-handed would be a disgrace to the role. If I was doing this at all, I wanted to do the job properly. But I genuinely had no idea what Kai might want.\
+What should I actually get Kai? Was a gift even necessary? Obviously, yes. Santa Claus showing up empty-handed would be a disgrace to the role. If I was doing this at all, I wanted to do the job properly. But I genuinely had no idea what Kai might want.\
 I didn't know the personal parts of her. What she liked, what she disliked. Even that basic information stayed mostly opaque. What I did have was a home she couldn't possibly be sent back to, a cynical smile, and eyes with a beauty that seemed to sink endlessly downward. Eyes that pulled focus from everything else, that seemed to be pleading with something.\
 Without those eyes, I don't think I'd have been pulled toward a girl I barely knew at all.\
 I wasn't pulled by Kai.\
@@ -44,13 +44,13 @@ Asking my daughter was, I realised with some feeling, blessedly easy by comparis
 "A prepaid card for in-game purchases would be..."\
 She gave a little wheedling laugh, gauging my reaction.\
 "...Within reason."\
-Was this just how kids were these days now. Not that it would give Kai, brand new to owning a phone at all, much of a reference point. My daughter and Kai were apparently friends, but what on earth did the two of them talk about together.\
+Was this just how kids were these days now? Not that it would give Kai, brand new to owning a phone at all, much of a reference point. My daughter and Kai were apparently friends, but what on earth did the two of them talk about together?\
 The simmered squid and taro were rich and delicious enough to keep drawing my chopsticks back. My husband's cooking caught me off guard with how good it was, every so often. I'd been telling myself I'd learn from him one day for several years running now. Reminded of it, I updated the timeline: one day. I'd surely be an excellent cook, several years from now.\
 "What about you, Mama, is there anything you'd like?"\
 My husband asked, carefully peeling the skin off his salmon.\
 "Thought a Christmas present might be nice for once, myself."\
 "You two could go on a Christmas date, you know."\
-Our daughter cut in. A Christmas date... when had the two of us last spent it that way. Since our daughter was born we'd always kept it modest, as a family, so the idea hadn't even occurred to me.\
+Our daughter cut in. A Christmas date... when had the two of us last spent it that way? Since our daughter was born we'd always kept it modest, as a family, so the idea hadn't even occurred to me.\
 "I like a party more than a date, honestly."\
 "Awww."\
 My husband made a childish noise of complaint.\
