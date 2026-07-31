@@ -164,11 +164,11 @@ Yui-san squeezed my laced fingers back, smiling happily.
 
 "Actually, she didn't ask for anything this time. Just said, 'never mind the souvenir, just tell me all about it once you're back.'"
 
-When I told Ritsu-san and Yuri that Yui-san and I were finally able to live together again, they celebrated for us with their whole hearts.
+When I told Ritsu-san and Yuuri that Yui-san and I were finally able to live together again, they celebrated for us with their whole hearts.
 
 I'm truly grateful to the two of them, for having supported our relationship ever since our school days, all the way through.
 
-"Still, since we've got the chance, let's pick up some tea for Ritsu-san and Yuri at the airport in Sri Lanka."
+"Still, since we've got the chance, let's pick up some tea for Ritsu-san and Yuuri at the airport in Sri Lanka."
 
 "Don't you want to get them something from the Maldives instead?"
 
