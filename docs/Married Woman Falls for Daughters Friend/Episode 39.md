@@ -11,7 +11,7 @@ title: 'Chapter Three: "The Clod of Earth Dreams of Snow" — Part Four'
 How much longer would work stay this busy? The year-end rush wasn't technically a lie, not exactly, but telling my family I needed to leave earlier because of it while actually spending that time driving Kai around was something else entirely. How long could this go on. Once the middle school broke for winter holidays there'd be no more need for morning visits to the hotel, but I'd still need to check on Kai on the way home. Would I, though? I think so. Probably.\
 I'd grown used to pulling into the hotel car park by now. Only after getting out of the car did it occur to me how easily this could be misread if an acquaintance happened to see it. Even at a resort hotel in a tourist area, someone visiting this regularly had exactly the look of what it wasn't. Entirely not that, and yet.\
 I gathered Kai and got her into the car, and only then found myself circling back to that thought.\
-Thinking it through only after the fact felt a little pointless, didn't it.\
+Thinking it through only after the fact felt a little pointless, didn't it?\
 "I wonder if this is really all right...?"\
 "What is?"\
 Kai switched between the passenger seat and the back depending on her mood day to day. Today, passenger seat, rubbing her hands together against the cold. Her hands, and honestly every part of her, struck me every time as almost alarmingly small when I really registered it.\
