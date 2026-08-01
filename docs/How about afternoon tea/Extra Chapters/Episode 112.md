@@ -1,322 +1,335 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Extra Chapters
 sequence: 119
-title: I brought her along as promised. My girlfriend.
+title: I Brought Her, Just Like I Promised. My Girlfriend.
 ---
-I brought her along as promised. My girlfriend.
+## "I Brought Her, Just Like I Promised. My Girlfriend."
 
-"Hey, Kanata. Which one do you think is better?"
+\
+"Hey, Kanata. Which one do you think?"
 
-Having finished getting ready for bed, I lay on the bedroom bed, dangling my legs, when Yui-san suddenly held out a navy and a light grey suit right in front of my eyes.
+Already ready for bed, lying on the bedroom bed and kicking my feet idly, Yui-san suddenly held up a navy suit and a light gray one right in front of my face.
 
-　Judging by her worried expression, it seemed she was agonising over what to wear when meeting my parents.
+Reading the worried look on her face, it seemed she was agonizing over what to wear to meet my parents.
 
-"You really don't need to wear a suit. It'll take half a day just travelling, so I think you should wear something comfortable?"
+"You don't even need a suit. It's a half-day flight, so you should really just wear something comfortable, don't you think?"
 
-"That won't do. I'm going to meet your parents, Kanata, so I have to look proper."
+"I can't do that. We're going to meet your parents, so I need to look presentable."
 
-Seeing her, who was always so poised and collected, look so serious made me laugh.
+Seeing her — always so composed, so unshakably confident — looking this genuinely serious made me laugh.
 
-　Having returned from our trip, we were beginning preparations to take our relationship a step further.
+Since coming back from our vacation, we'd started preparing to move our relationship one step further, beyond just girlfriends.
 
-First, Yui-san had suggested meeting my parents, so we were coordinating our schedules to head to London.
+First, Yui-san had said she wanted to go meet my parents, so we'd been coordinating our schedules to head to London together — but...
 
-　Yui-san, though, seems unusually nervous. No matter what she wears, her great figure always makes her look sharp, so she really needn't worry.
+Yui-san seemed unusually nervous about it, for once. No matter what she wore, with her figure she'd look put-together regardless, so there was really no need to worry so much.
 
-I glance at the clock. It's the time we'd normally both be tucked up in bed together.
+I checked the clock. This is usually the time we'd already both be in bed together.
 
-I wish she'd hurry over here.
+I wish she'd hurry up and come over here already.
 
-Yui-san seems completely unaware that I'm staring at her, thinking just that.
+She didn't seem to notice at all that I'd been watching her, thinking exactly that.
 
-"Hey, Yui. Tomorrow would be fine, wouldn't it? It's late already. Shall we turn in?"
+"Hey, Yui-san. Can't this wait until tomorrow? It's already late, shouldn't we go to sleep?"
 
-The king-size bed I'd pestered her into buying was chosen specifically with the two of us in mind. It's far too spacious for just one person.
+The king-size bed I'd begged her to buy had been chosen on the assumption we'd sleep in it together. Sleeping alone in it would be far too much space.
 
-Realising the slight pout in my voice, Yui glanced my way.
+Yui-san, apparently catching the slight edge of a sulk creeping into my voice, glanced over at me.
 
-"It's important, so you should take choosing it seriously too, Kanata."
+"This is important, so you should take it seriously too, Kanata."
 
-　It tickled me inside, knowing she'd normally never give a thought to which suit to wear.
+*As if you ever agonize this much over what suit to wear, normally,* I thought, feeling a ticklish sort of amusement inside.
 
-But right now, there was something I wanted her to prioritise over that.
+But right now, there's something I want prioritized over that.
 
-Reluctantly, I got up from the bed and approached Yui, who was staring intently at her suit. I wrapped my arms tightly around her from behind.
+Giving up, I got out of bed and approached her as she stood there locked in a staring contest with the suits, wrapping my arms around her from behind.
 
-The softness and warmth transmitted through her thin nightclothes felt wonderful. It felt like it could blow away a week's worth of fatigue.
+The warmth and softness coming through her thin loungewear felt wonderful — enough to blow away a whole week's worth of exhaustion.
 
-　The long-awaited weekend night.
+It was finally the long-awaited weekend night.
 
-I thought Yui-san felt the same way, but she’d left me alone, staring at the wardrobe the whole time, and I wasn’t amused.
+I'd assumed Yui-san felt the same way, but she'd left me sitting there ignored while she had a staring contest with her closet instead, and it wasn't sitting well with me.
 
-No. When we’re in this room, you have to look only at me.\
-I think I understand now, just a little, why Yui-san grumbled about not wanting Shachi-kun in this room.
+No. When we're in this room, you're supposed to only have eyes for me.\
+I felt like I finally understood, just a little, the feeling behind Yui-san's constant grumbling about not wanting Orca-kun in this room.
 
-"Hey, Yui-san... Is that more important than sleeping with me right now?"
+"Hey, Yui-san... Is that really more important than sleeping with me right now?"
 
-I tried to express my slight sulkiness.
+I threw a little of my sulking at her, testing the waters.
 
-"Eh?"
+"Huh?"
 
-Yui-san let out a surprised gasp, clearly not expecting me to say such a thing.\
-She turned to look at me. But I kept my face down so she couldn't see, hugging her body even tighter.
+Yui-san let out a surprised sound, apparently not expecting me to say something like that.\
+She turned to look at me. But I kept my head down so she couldn't see my face, and held her body even tighter.
 
-"Yui... Hey, hurry up."
+"Yui-san... come on, hurry."
 
-I whispered, pouring every ounce of sweetness into my voice.
+I whispered it, pouring every ounce of sweetness I could into my voice.
 
-It was a little embarrassing, but — I hoped she'd notice how I felt.
+It was a little embarrassing, honestly — but I hoped she'd notice how I felt.
 
-As I looked up at her thinking that, there was a thud as the suit she'd been holding fell to the floor, and at the same moment, she pulled me tightly against her waist.
+Looking up at her like that, I heard a *thud, thud* as the suits she'd been holding dropped to the floor, and in the same instant, her arm pulled tight around my waist.
 
-　Her gaze was far more earnest than when she'd been choosing the suit, and I felt a warmth spreading deep within my chest.
+Her gaze, far more serious now than it had been while picking out a suit, sent something warm blooming deep in my chest.
 
-Thank goodness, it seems you understood how I felt.\
-Your warm arms held me so tightly my body creaked.\
-As I surrendered myself to you, your lips gently pressed against mine.
+Good. She understood how I felt.\
+Her warm arms wrapped around my body, holding me almost tight enough to ache.\
+I let myself go limp against her, and her lips gently met mine.
 
-＊＊＊
+***
 
-We, being of the same sex, still cannot marry.
+Being the same sex, we still can't legally marry.
 
-Even so, wanting some tangible proof, we decided to utilise the civil partnership system until that day comes.
+Even so, we wanted something tangible to mark our commitment, so we decided to use the partnership system until that day comes.
 
-　We both agreed we wanted a private wedding, attended only by those who knew and supported our relationship. To make that wish come true, we first wanted to meet my parents — but...
+We were in agreement that we wanted to hold a quiet, private wedding just among the people who already knew about our relationship and supported us — and to make that happen, the first step was meeting my parents.
 
-Truth be told, I hadn't yet told my father that the person I was seeing was Yui. Partly because I wanted to surprise him, I'd only said I'd be bringing someone I was seeing.
+Actually, I still hadn't told my dad that the person I was dating was Yui-san. Partly because I wanted to surprise him, I'd only told him, "I'm bringing the person I'm dating."
 
-　As for my father and mother, they'd be fine, but what would their reaction be to seeing Yui? Just imagining it was rather amusing.\
-Yui seemed completely focused on how my parents would react, but I hadn't yet told her that my younger brother, Kaname, was actually the tougher nut to crack.\
-Thinking about how the usually composed Yui would react to Kaname was thrilling, and knowing that, no matter what, Kaname would accept her, this was just a little mischievous thought.
+I wasn't worried about my parents themselves — but I couldn't help wondering what their reaction would be. Just imagining it was a little fun.
 
-　I gaze at the ring glinting on my ring finger.\
-Like this, bit by bit, our relationship solidifies.
+Yui-san seemed entirely focused on my parents' reaction, but I'd kept it a secret from her that my little brother Kaname would actually be the tougher opponent.
 
-When I return to Japan, I want to give Yui a ring too.\
-When I told her I wanted us to go buy engagement rings together, she said she wanted a wedding ring instead of an engagement ring, so I just smiled and nodded.
+I couldn't help getting a little excited imagining how Yui-san, always so composed, would react to Kaname — and since I already knew, deep down, that Kaname would come around eventually anyway, this was just a tiny bit of mischief on my part.
 
-　Departure day.\
-After agonising over it, she ended up in a navy suit, pulling her suitcase with a tense expression.\
-It takes half a day from Haneda to London – if she's this nervous now, won't she be exhausted? I thought, giving her clasped hand a gentle tug.
+I looked at the ring sparkling on my finger.\
+One thing at a time, like this, our relationship keeps becoming something more certain, more real.
 
-"Hey, Yui-san, there's no need to be so nervous. My father has met you before, after all."
+Once we're back in Japan, I want to get Yui-san a ring too.\
+When I told her I wanted us to go pick out engagement rings together, she told me she didn't want an engagement ring — she wanted a wedding ring instead. I laughed and nodded.
 
-"Eh? I've met Kanata's father?"
+*
 
-Yui looked at me in surprise, and I gave her a faint smile.
+The day we left.\
+After agonizing endlessly, she'd finally settled on the navy suit, and pulled her suitcase along with a nervous expression.\
+It's half a day from Haneda to London — if she's already this tense now, I worried she'd wear herself out before we even got there. I gave her joined hand a light tug.
 
-"He said he met you when you were little. It's not like you're meeting for the first time, so it'll be fine."
+"Hey, Yui-san, you really don't have to be this nervous. Dad's already met you before, you know."
 
-"Oh, is that so?"
+"Huh? I've met your dad?"
 
-I didn't tell her it was at her mother's funeral. Yui was only in first grade back then, so it was no wonder she didn't remember.
+Yui-san looked at me, startled, and I smiled faintly.
 
-"I wonder how my father will react. He'll probably recognise you the moment he sees your face. It'll be interesting. Maybe he'll freeze in shock."
+"He told me he met you once, back when you were little. It's not like it's your first meeting, so it'll be fine."
 
-"I hope shock is all it is. ...Just between us, though, my father gave me quite a hard time. When I told him I was going to meet Kanata's parents, he said, 'I never imagined my own daughter would get involved with my best friend's daughter. What on earth am I supposed to say when I meet Aosawa?'"
+"Really, huh."
 
-I chuckled, picturing Yui-san's father, who was probably holding his head in his hands. After all, even the idea of Yui-san and I sharing a flat had originally come from her father.
+I decided not to mention that it had been at her mother's funeral. Yui-san had only been in first grade at the time, so it made sense she wouldn't remember.
 
-Through countless connections, we now walk side by side.\
-　As irreplaceable partners sharing our lives, I can't imagine anything happier than having our dearest people bless us as we embark on this journey together.
+"I wonder how Dad will react. I'm sure he'll recognize you the second he sees your face, so I'm really looking forward to it. Maybe he'll freeze up in shock."
 
-I steal a glance at her profile.\
-Seeing Yui, who'd always been so poised and unflappable in any major meeting or deal crucial to the company's future, looking far more nervous than usual, warmed my heart.
+"I hope shock is all it is. ...Just between us, my own dad's been giving me a hard time about this. When I told him I was going to meet your parents, he said, 'I never imagined in a million years my own daughter would go after my best friend's daughter. How am I supposed to face Aozawa now?'"
 
-Flying business class was truly comfortable and peaceful for me, but it seems it wasn't the same for Yui-san.\
-That's why I told her to wear something less tiring, yet as soon as we arrived, she stretched her stiffened body and sighed.
+I laughed, picturing Yui-san's father with his head in his hands. Come to think of it, the whole idea of Yui-san and me sharing an apartment had originally come from her father's suggestion in the first place.
 
-"Yui-san, are you alright?"
+So many serendipitous threads of connection had brought us to where we are now, walking side by side.\
+I don't think there's anything that could make me happier than getting to have the people who matter most to us celebrate this new chapter — starting a life together as irreplaceable partners for the rest of our lives.
 
-"Yes, I'm fine. ...Just a bit tense."
+I glanced sideways at her profile.\
+Seeing Yui-san — who never once flinched, no matter how high-stakes the meeting or negotiation, always composed and confident — looking far more nervous than usual filled me with a warm feeling.
 
-I smiled at her as she let out a sigh through her shoulders, then took her hand and led her along the familiar airport path.
+*
 
-Kaname had come to meet us at the airport in his car.
+The business-class flight was genuinely comfortable and calming for me, but it didn't seem to be the same for Yui-san.\
+That's exactly why I'd told her to dress comfortably, and yet the moment we landed, she stretched out her stiff, tense body with a heavy sigh.
 
-Spotting Kaname waiting for us in the arrivals hall, I waved. After glancing at me once, his gaze immediately slid over to Yui beside me.
+"Yui-san, are you okay?"
 
-　He narrowed his eyes, the same light brown as mine, and stared at Yui-san appraisingly.
+"Yeah, I'm fine. ...Just a little nervous."
 
-Yui-san seemed to sense Yo's sharp gaze instantly. She glanced at his profile and swallowed slightly.
+She let out a breath, shoulders sagging, and I laughed, leading her by the hand down the airport route I knew so well.
 
-"Kaname, it's been a while. Thanks for coming to pick us up."
+My brother Kaname had come to pick us up by car.
 
-"Pleased to meet you, I'm Ichinose Yui."
+Spotting him waiting for us in the arrivals lobby, I waved — and Kaname glanced at me once, then immediately slid his gaze sideways, sharp, toward Yui-san beside me.
 
-"...Pleased to meet you, Aosawa Kaname."
+Narrowing his eyes — the same light brown as mine — he sized her up with a hard, evaluating stare.
 
-An awkward silence hung between Kaname, who looked like he wanted to say something, and Yui, who smiled shyly at him.\
-Ignoring it, I laughed and squeezed her hand tightly.
+Yui-san seemed to catch the sharpness of his gaze instantly, glancing at his profile and drawing a quiet, barely audible breath.
 
-"Yui's the one who let me share her place during uni, you know. See, Kaname? Just like I said, Yui's absolutely gorgeous, isn't she?"
+"Kaname, long time no see. Thanks for picking us up."
 
-"Huh, university...? I see, so that's how it was. Well, no wonder she made my sister cry. She looks like she'd be incredibly popular."
+"Nice to meet you. I'm Ichinose Yui."
 
-"Eh?"
+"...Nice to meet you. Aozawa Kaname."
 
-After narrowing his eyes and delivering that one stinging remark to Yui, Kaname's gaze slid down to my ring finger before he gave a faint smile.
+An awkward tension hung in the air between Kaname, clearly holding something back, and Yui-san, smiling at him with visible restraint.\
+Ignoring it, I laughed and gripped her hand tightly.
 
-"Ah well. If my sister's happy now... If you've gone to the trouble of coming all this way, I suppose it means you won't be making my sister cry anymore, right? Come on, let's go. Dad and Mum are waiting."
+"Yui-san let me stay at her place back in university. See, Kaname? Just like I told you, isn't she gorgeous?"
 
-He said it so casually, twirling the car key between his index finger and thumb, then abruptly turned his back and started walking.
+"Huh, back in university...? I see, so that's how it was. No wonder she made my sister cry. Looks like she'd have no trouble finding people interested."
 
-"Making her cry..." Could it be that Kaname realised Yui-san was the reason I came back to London midway through my university days?
+"What—"
 
-"...Kanata. Do you think Kaname hates me?"
+After giving Yui-san one sharp, pointed look, Kaname's eyes drifted down to my ring finger, and then he gave a short laugh.
 
-Yui murmured in a voice too soft for Kaname to hear, her expression slightly hurt.
+"Well, whatever. As long as Sis is happy now. You came all the way out here, so I'll take that to mean you're not going to make her cry anymore, right? Come on, let's go. Mom and Dad are waiting."
 
-"Kaname's just a big sister's boy. But he's an honest lad... Don't worry, he'll understand."
+Saying it lightly, twirling the car key around his finger, Kaname turned and started walking off without another word.
+
+*The one who made my sister cry*... could it be that Kaname's already figured out that Yui-san was the reason I suddenly came back to London partway through university?
+
+"...Kanata. Does Kaname-kun hate me, by any chance?"
+
+Yui-san murmured it quietly, low enough that Kaname wouldn't hear, looking just a little hurt.
+
+"Kaname's always been a total sister's boy. But he's honest at heart... it'll be fine, he'll come around."
 
 "I hope so..."
 
-Yui said, wiping the sweat beading on her forehead. I couldn't help but smile at her expression.
+Yui-san said it, wiping sweat from her brow, and I couldn't help but laugh at the sight.
 
-　But, Yui-san might not realise it, but this was probably Yo making a concession.\
-I'm sure he had a mountain of things he wanted to say, but he swallowed them all and offered his congratulations. I resolved to thank him for that someday, absolutely.
+But — Yui-san probably didn't realize it, but I was pretty sure that was actually Kaname holding back, compared to what he could have said.\
+I'm sure there was a mountain of things he wanted to say, but he swallowed all of it and offered his blessing instead — someday, I definitely want to properly thank my little brother for that.
 
-　When I went to sit in the passenger seat, Kaname said we could both sit in the back. So, leaning back in the car seat, I gazed at the London streets through the window and told Yui about my memories of living here.
+*
 
-Normally, I'd be succumbing to jet lag and falling asleep on this journey, but today, being with Yui, I wasn't sleepy at all.
+I went to get in the front seat, but Kaname told us we could both sit in the back, so I leaned back against the seat, gazing out the window at the London streets, telling Yui-san stories about my memories of living here.
 
-　The other day, Father mentioned that his long posting to Britain was drawing to a close and he expected to return to Japan soon.\
-So, before that happens, I'm truly glad I could bring Yui-san to this city.
+Normally I'd have given in to jet lag and fallen asleep on this drive, but today, with Yui-san right there beside me, I wasn't sleepy at all.
 
-When I got out of the car and opened the front door, Father stood there, tie neatly knotted, looking tense. I almost burst out laughing.
+Dad had mentioned recently that his long posting in the UK was finally winding down, and that he'd likely be moving back to Japan before too long.\
+So I was genuinely glad I'd managed to bring Yui-san to this city before that happened.
 
-"Dad, Mum, I'm home!"
+*
 
-"Oh... welcome home, Kanata."
+Getting out of the car and opening the front door, I nearly burst out laughing at the sight of my dad standing there, tie done all the way up, looking thoroughly nervous.
 
-You could tell he was tense at a glance. And the moment Yui-san stepped out from behind me — Dad's eyes widened in shock.
+"Dad, Mom, I'm home!"
 
-"Eh... ? Eh... ?"
+"W-welcome home, Kanata."
 
-He stared blankly at Yui-san's face, and I could barely hold back my laughter.
+His nervousness was obvious at a glance. And the moment Yui-san stepped out from behind me — Dad's eyes went wide with shock.
 
-"Father, thank you for always looking after us. I'm Yui Ichinose."
+"Wait... wait...?"
 
-Father continued to stare at Yui, who introduced herself in a clear, resonant voice, his expression still one of utter astonishment.\
-I couldn't hold back any longer. I laughed, grabbed Yui's arm, and pulled her close, hugging her tightly.
+He was staring at Yui-san's face, utterly stunned, and I had to fight with everything I had not to burst out laughing.
 
-"Father, I brought her, just as promised. My girlfriend."
+"Thank you for always taking such good care of my father. I'm Ichinose Yui."
 
-"Eh... Eh?!"
+Dad kept staring at her, still shocked, even as she introduced herself in a clear, composed voice.\
+Unable to hold it in any longer, I laughed and pulled Yui-san's arm, hugging her tightly against me.
 
-　＊＊＊
+"Dad, I brought her, just like I promised. My girlfriend."
 
-"Blimey, that gave me a fright. Thought my heart would stop... Never imagined your girlfriend would be Yui-chan... Why didn't you two tell me, Kanata and Fuyuto?"
+"Wh— WHAAAAAT!?"
 
-"We wanted to surprise you, Dad."
+***
 
-I laughed at my father, who slumped into the sofa with a sigh.
+"Whew — that startled me. I thought my heart might actually stop... I never imagined Kanata's girlfriend would turn out to be Yui-chan. Kanata, Fuyuto, why didn't either of you say anything?"
 
-　Mum was beaming happily as she prepared tea, and just as I'd hoped, the atmosphere was so warm that Yui-san seemed to relax her tension and smiled too.
+"I wanted to surprise you, Dad."
 
-"I knew the moment I saw your face. Yui-chan, you really do take after your mother in beauty. Your hair colour and eyes are more like Fuyuto's, but your features are just like your mother's."
+I laughed at Dad, sitting on the sofa, letting out a long, deflated sigh.
 
-Dad pulled a notebook from the shelf and handed Yui-san a photo tucked inside.\
-　It was the very photo I'd seen years ago, the one of Yui-san's parents when they were university students.
+Mom made tea for us with a delighted smile, and the atmosphere really was as warm and easygoing as I'd hoped, so Yui-san had visibly relaxed from her earlier nerves, smiling now too.
 
-"Look, a photo from their university days. They both look so fresh-faced, don't they?"
+"I could tell right away, the moment I saw your face. You really do take after your mother, Yui-chan — so beautiful. Your hair and eye color favor Fuyuto, but your features are the spitting image of your mother."
 
-Yui-san stared intently at the image of the two smiling and leaning close together. Then, tracing their figures gently with her fingertips, she smiled happily.
+Dad pulled a notebook down from the shelf and handed Yui-san a single photo tucked inside it.\
+It was the same photo I'd been shown once before — the one of Yui-san's mother and father, back when they were university students.
 
-"Ever since I was a child, talking about Mum was like a taboo... I never really heard much from Dad about what kind of person she was either. So I haven't seen many photos... But they look happy, Dad... and Mum too."
+"Here, this is from their university days. Look how young they both look."
 
-I took Yui-san's hand, murmuring as she spoke, squeezing it tightly without a thought for being in front of her parents.
+Yui-san stared quietly at the photo of the two of them, smiling, standing close together. Gently, she traced her fingertip over the image, and smiled, looking genuinely happy.
 
-"...I'm glad you both look happy, Kanata and Yui-chan. Thank you for coming all this way to see us."
+"Ever since I was little, my mother was always kind of a forbidden topic... even my father never really talked much about what kind of person she was. So I never really got to see many photos of her, either. ...But they both look so happy here, don't they. Dad, and... Mom too."
 
-As Father spoke, his words seeming to linger, Yui lifted her gaze and looked straight at him with a serious expression.
+Yui-san said it, almost to herself, and I took her hand and held it tightly, not caring at all that we were right in front of my parents.
 
-"...I came here today because I wanted your permission to spend the rest of my life with Kanata. What I can offer Kanata is certainly not much, but even so, I swear I will spend my entire life making Kanata happy. So..."
+"...I'm really glad both you and Kanata look this happy, Yui-chan. Thank you for coming all this way to see us."
 
-"You don't need my permission. That's something Yui-chan and Kanata decide for yourselves. No one has the right to deny what you two have decided."
+Dad said it, sounding like he was savoring every word, and Yui-san lifted her eyes, looking straight at him with total sincerity.
 
-Saying this, my father fixed his gaze firmly on me.
+"...I came here today because I wanted your permission — to spend the rest of my life with Kanata, going forward. There's not much I can give her, honestly. But even so, I swear I'll spend my whole life making sure she's happy. So..."
 
-"Kanata. Yui-chan... cherish her, alright?"
+"You don't need my permission for that. That's something for Kanata and Yui-chan to decide, the two of you. No one has the right to deny what the two of you have already decided together."
 
-"Yes, I know. I'll cherish Yui-san forever and ever."
+Saying that, Dad looked steadily at me.
+
+"Kanata. Take good care of Yui-chan, okay?"
+
+"Yeah, I know. I'll take care of her, always, forever."
 
 I nodded firmly too.\
-　I feel no anxiety about the life ahead. I see only happiness. As long as we can live together forever.
+There's no anxiety in the life ahead of us. All I can see is happiness. As long as the two of us get to keep living our lives together.
 
-"Yui-chan. Thank you for loving Kanata. My daughter... I ask you to continue looking after her from now on."
+"Yui-chan. Thank you for loving Kanata. Please, take care of our daughter... from here on too."
 
-　＊＊＊
+***
 
-　Every time someone acknowledges us, it feels like our bond grows stronger.
+Every time someone else accepts our relationship, it feels like it becomes something a little more solid, a little more real.
 
-　I wanted the same ring.\
-　And that dream is finally about to come true.
+I wanted us to have matching rings.\
+And now, that dream is finally about to come true.
 
-I want us both to wear wedding dresses and vow to love each other in sickness and in health. That moment will surely become an unforgettable, blissful memory in my life.
+I want us to wear wedding dresses together, and swear to love each other, in sickness and in health. I'm sure that moment will become one of the happiest, most unforgettable memories of my entire life.
 
-Well — I tried to sound all grand and romantic there, but really, I just want to be Yui-san's wife.
+...That's the noble-sounding version, anyway. Honestly, deep down, I just really want to become Yui-san's wife.
 
-The resolve to love just one person for a lifetime.\
-I think that's something truly precious.
+The resolve to love just one person, faithfully, for an entire lifetime.\
+I think that's an incredibly precious thing.
 
-　When I invited her into my room, Yui looked around as if seeing something utterly novel.\
-It was an ordinary, unremarkable room, yet Yui gazed at it with sparkling eyes.
+*
 
-"Please sit on the bed."
+Inviting her into my old room, Yui-san looked all around, taking it in like something rare and fascinating.\
+It's a completely unremarkable, ordinary room, but Yui-san gazed around it with sparkling eyes anyway.
 
-"Right, thank you. So this is the room Kanata lived in all this time. Hey, Kanata. Show me some old photos, from when you were a child."
+"Sit on the bed."
 
-Completely relaxed and utterly sleepy, I'd been planning to quickly unpack and then have a lazy nap with Yui-san, so I was taken aback by this sudden request.
+"Okay, thanks. So this is the room you grew up in, huh. Hey, Kanata, show me old photos, from when you were little."
 
-"Photos? I suppose I have some..."
+I'd been fully relaxed, drowsy enough that I'd planned to unpack quickly and take a lazy nap together with Yui-san, so her sudden request caught me off guard.
 
-I retrieved an album from the wall-mounted bookshelf and handed it to Yui-san.\
-After receiving it, she stroked the album carefully before gently opening the cover.\
-I sat down beside her, leaning my shoulder against hers as I peered into the album.
+"Photos? I've got some, but..."
 
-I rarely look back at photos of myself as a child — it felt nostalgic.
+I pulled an album down from the bookshelf on the wall and handed it to her.\
+Taking it, Yui-san stroked the album carefully, almost reverently, before gently opening the cover.\
+I sat down beside her too, pressing my shoulder against hers, peering into the album together.
 
-"How cute. How old were you here?"
+I don't really look back at pictures of myself as a kid very often — it stirred up a wave of nostalgia.
 
-"Hmm... this one... first or second year of primary school, I think?"
+"So cute. How old were you here?"
 
-It was a photo of me wearing my school satchel and walking hand-in-hand with my father.\
-Yui-san smiled, her eyes narrowing affectionately, and my heart gave a little squeeze.
+"Um... this one's... maybe first or second grade, I think?"
 
-"Hey, Yui-san?"
+It was a photo of me wearing my school backpack, walking hand in hand with Dad.\
+Yui-san narrowed her eyes, smiling with such tenderness that something in my own chest tightened.
 
-"Hmm?"
+"Hey, Yui-san."
 
-I tugged her sleeve, urging her to look at me. But she seemed completely absorbed in the album and didn't look my way at all.
+"Hm?"
+
+I tugged her sleeve, trying to get her to look at me. But she was too absorbed in the album to even glance my way.
 
 "...Was I cuter back then?"
 
-I said it sulkily, and Yui-san suddenly looked up from the album.\
-She smiled at my sulking and gently pulled me closer by the waist.
+I said it, feeling a little put out, and Yui-san's head snapped up from the album.\
+She laughed at my sulking and gently pulled me in by the waist.
 
-"Whether now or back then, Kanata, you're the cutest in the whole world."
+"You're the cutest in the world, Kanata, then and now."
 
-"Right then, that's enough of the album."
+"Okay, then the album's done."
 
-"Eh? Why? I want to see more. I haven't seen nearly enough yet!"
+"Wait, why? I want to see more. I haven't even gotten through it yet."
 
-"No. I'm sleepy now. Let's sleep together."
+"Nope. I'm sleepy now, sleep with me."
 
-I clung tightly to her, using my weight to push Yui-san down. The single bed groaned, but I didn't care and snuggled up against her.
+I threw my arms around her and pushed her down with my full weight. The single bed creaked in protest, but I didn't care and pressed in close anyway.
 
-"Yui-san, give me a proper hug."
+"Yui-san, hold me properly."
 
-"Right, right, alright. If it's a request from my adorable little princess, I'll grant anything."
+"Yes, yes, got it. Whatever my adorable little princess wants, I'll give it to her."
 
-Her arms wrapped around my back, pulling me close.
+Her arms wrapped around my back, pulling me in tight.
 
-"...But Kanata, if you fall asleep now, won't you be unable to sleep tonight?"
+"...But Kanata, if you sleep now, won't you have trouble sleeping tonight?"
 
-"It'll be fine because I'm with Yui-san. I'll wake up properly and show you around, just as promised. My favourite town where I spent my time."
+"It's fine, since it's with you, Yui-san. I'll wake up properly and show you around, just like I promised — my favorite town, the one I grew up in."
 
-If we can wake up together with the morning sun tomorrow, let's ride the cramped underground and go buy tea together.
+If I manage to wake up with the morning sun tomorrow, we'll ride the cramped little Underground together and go buy some tea.
 
-And come afternoon, I plan to treat her to the most splendid afternoon tea.
+And then, in the afternoon, I'm planning to treat her to the most special afternoon tea imaginable.

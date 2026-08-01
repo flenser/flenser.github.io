@@ -1,248 +1,259 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Extra Chapters
 sequence: 122
-title: I really want to go to Disney Sea! part 3
+title: I Want to Go to MouseSea! ③
 ---
-I really want to go to Disney Sea! part 3
+## "I Want to Go to MouseSea!" ③
 
-Rocked gently by the gondola gliding along the canal, I savoured the streetscape of this dreamlike city.
+\
+Riding the gondola as it drifted slowly along the canal, we soaked in the scenery of this land of dreams.
 
-"Hey, Yui. I'd love to go to Italy on our next long holiday. I'd really like to ride a proper Venetian gondola too."
+"Hey, Yui-san. For our next long vacation, I'd love to go to Italy. I want to ride a real gondola in Venice too."
 
-"Italy, eh? That sounds lovely. It seems like fun."
+"Italy, huh. Sounds nice. That'd be fun."
 
-Watching Yui smile made me feel incredibly happy. I couldn't suppress the flutter in my chest at the sight of her tucking her long black hair, rustling softly in the breeze, behind her ear.\
-I squeezed her hand tightly, trying not to let anyone notice.
+Watching Yui-san smile filled me with such happiness. The way she tucked her long black hair, stirred loose by the breeze, behind her ear made my heart flutter uncontrollably.\
+I squeezed her hand, quietly, so no one else would notice.
 
-Noticing my gesture, Yui peered into my eyes and smiled happily.
+Catching me at it, Yui-san peered into my eyes and grinned happily.
 
-After about twenty minutes of cruising around in the gondola, I was the first to pull my smartphone from my pocket.
+*
 
-"Right then, Yui, shall we go? There's a wait, and we should probably queue for the main attractions now. It'll be lunchtime soon, you see."
+After the roughly twenty-minute gondola loop finished, I pulled out my phone from my pocket right away.
 
-"Ah... u-uh... yeah, you're right."
+"Alright, Yui-san, let's go! There's a wait time, so we should probably line up for the main attraction now. It'll be lunchtime before long."
 
-Taking Yui's hand, I marched confidently through the park, map in hand, as if I knew every corner.
+"Oh... y-yeah... right."
 
-"It's about an hour's wait, so I reckon we could just queue normally without paying extra. What do you think?　You know, the queue itself can be quite fun too."
+Taking Yui-san's hand, I strode ahead through the park, checking the map like I knew exactly where I was going.
 
-Even while waiting, the numerous story-themed decorations meant it didn't feel too tedious.\
-Besides, with Yui-san by my side, I could happily wait an hour or two.
+"It's about an hour wait, so I figured we could just line up normally without paying for skip-the-line, what do you think? Waiting in line is actually pretty fun too, you know."
 
-"Right then, let's queue normally. No need to rush... heh..."
+Even while waiting, there's so much story-driven decoration around that it never really feels boring.\
+And besides, if it's with Yui-san, I could wait an hour, two hours, it wouldn't matter.
 
-"Well, that settled, let's go!"
+"Then let's just line up normally. No need to rush... ha ha..."
 
-"Uh, yeah..."
+"Great, then let's go!"
 
-　When we reached the attraction, Yui looked up at the tower and gasped.
+"Y-yeah..."
 
-"It's... bigger than I thought... isn't it..."
+*
 
-"It is tall, but the actual drop is from that window over there."
+Once we reached the front of the attraction, Yui-san looked up at the tower and swallowed hard.
 
-Pointing to a window high up in the building, Yui relaxed her expression as if relieved.
+"It's... bigger than I expected... huh..."
 
-"Really? So maybe it's not actually that high?"
+"It's tall, but the actual drop happens from that window up there."
 
-"This is a free-fall type attraction. It goes up and down, so it feels like you're floating the whole time. What's more, this attraction is based on the concept of a 'cursed hotel', so somehow it doesn't feel like it's happening someone else."
+I said it, pointing toward a window high up on the building, and Yui-san's expression visibly relaxed with relief.
 
-I remember the story behind this attraction was something like the hotel owner bringing back a cursed idol...\
-　Our previous subsidiary was a hotel management company, so I felt a certain affinity for it.
+"Really? So it's not as bad as it looks, maybe?"
 
-"A cursed hotel, eh... Ha ha..."
+"It's a free-fall type attraction. It goes up and down, so there's this constant floating sensation the whole time. And the concept for this one is a 'cursed hotel,' so it kind of hits close to home, doesn't it?"
 
-I laughed at Yui's wry smile as we joined the queue. As it was a weekday, the line wasn't particularly long, so it looked like our turn would come around in no time.\
-If we'd come on a holiday, it surely wouldn't have been this straightforward.
+If I remember right, the story for this attraction goes something like: the hotel owner brought back a cursed idol from somewhere, and...\
+The subsidiary company we used to work for ran hotels, so it felt oddly personal.
 
-　Amidst the incessant, unsettling background music, we moved slowly but surely along the queue.\
-Passing through a garden with a rather dubious statue, we entered the building. Inside was dimly lit; the orange lamps cast an atmosphere that felt far too contrived.
+"A cursed... hotel, huh... ha ha..."
 
-As we chatted about trivial things and continued forward, I noticed Yui-san was becoming increasingly quiet.
+I laughed along with Yui-san's strained laugh as we got in line. Being a weekday, the line wasn't the massive, snaking kind, so it looked like our turn would come up pretty fast.\
+If we'd come on a weekend, it definitely wouldn't have been this manageable.
 
-"...Yui-san, are you perhaps... not fond of scary things?"
+With an ominous soundtrack playing continuously, we shuffled forward, slowly but steadily, through the line.\
+Passing through a garden lined with eerie statues and into the building, the interior was dim, lit by orange lamps — the atmosphere was almost too on-the-nose.
 
-"Eh? Ah, no... it's not that... exactly..."
+Chatting about nothing in particular as we moved forward, I noticed Yui-san was gradually saying less and less.
 
-Back in university, I'd watched horror films with Yui-san.\
-At the time, she hadn't shown the slightest sign of being scared; if anything, she seemed to enjoy my reactions.\
-The Yui-san of university days was just a tad more mischievous and playful than she is now.
+"...Yui-san, are you not good with scary things, by any chance?"
 
-Looking up, Yui-san smiled slightly, her face twitching a little, so I squeezed her hand tightly and smiled back.
+"Huh? Oh, no... it's not that... exactly..."
 
-"Hehe, it's alright. It's not like it's a haunted house or anything. Or are you perhaps not keen on curses and that sort of thing?"
+Back in university, I remembered watching a horror movie with Yui-san once.\
+She hadn't shown the slightest sign of fear that time — if anything, she'd seemed to be enjoying my reactions more than the movie itself.\
+University Yui-san had been just a little more mischievous, more prone to teasing, than she is now.
 
-"No... not really, but I feel like I might get swept up in the atmosphere. I feel like I'm completely falling for Disney's scheme..."
+Looking up at her, I found her smiling with her face just slightly strained, so I squeezed her hand and smiled back.
 
-"It's got a proper storyline, doesn't it? Makes your heart race. This waiting time just adds to the thrill, you know? I'm starting to feel a bit nervous myself."
+"Hehe, it's fine, don't worry. It's not a haunted house or anything. Or is it curses and that kind of thing you're not great with?"
 
-While we were chatting, our turn finally came.\
-Entering the small room with stained glass displaying the 'Cursed Idol', even I — who knew what was coming — felt my heart skip a beat.
+"No... that's not it either, but I feel like I'm getting swept up in the atmosphere. I think I've fallen completely for Mouse-anything's scheme..."
 
-　Feeling uneasy, I squeezed Yui-san's arm tightly in the dim light. Somehow, her arm felt stiffer than usual.
+"It really builds the tension with all the storytelling, doesn't it? Even the wait adds to it. I'm getting a little nervous myself, honestly."
+
+Before long, it was finally our turn.\
+Stepping into the small stained-glass room where the "cursed idol" was displayed, even knowing what came next, I still felt my heart pick up a little.
+
+Growing anxious, I held tightly onto Yui-san's arm in the dim light, and somehow her arm felt stiffer than usual.
 
 "...Yui-san?"
 
-I called her name softly. Her slender shoulders flinched, and she turned her gaze towards me.
+I called her name quietly. Her slender shoulders jumped with a start, and she turned to look at me.
 
 "Wh-what?"
 
-She was smiling, but it was a smile that could also be read as troubled, and it felt somehow off.
+She was smiling, but there was something in that smile that looked almost troubled, and something about it felt off.
 
-　Huh? Yui-san, could it be that she's not actually afraid of scary things...?
+Wait. Yui-san... could it be that she's not actually bad with "scary" in general, but...?
 
-Before I could confirm this suspicion, we were finally guided to the lift.\
-Yui-san's hand, clutching mine tightly, felt stronger than usual.
+Before I could pin down the suspicion forming in my mind, we were finally guided toward the elevator.\
+Yui-san's hand, gripping mine, felt tighter than usual.
 
-"Um, Yui... are you alright?"
+"Um, Yui-san... are you okay?"
 
-I glanced at her profile. She was breathing deeply, huffing and puffing, staring fixedly at one point.
+I glanced sideways at her profile. Breathing hard, in and out, she was staring fixedly at a single point.
 
-"……………………………………"
+"..........................."
 
-"...Yui? Yui?"
+"...Yui-san? Yui-saaan?"
 
-I waved my hand rapidly in front of her face. Then, as if startled, Yui turned back to me.
+I waved my hand in front of her face. She snapped back with a start and turned to me.
 
-"S-sorry, I was just a bit nervous."
+"Oh, s-sorry, I'm just a little nervous."
 
-Yui-san, surely not... you don't happen to dislike scream-inducing rides...?
+Yui-san, could it be... you're not good with thrill rides, specifically...?
 
-Just as I opened my mouth to ask, the doors in front of us slid open.\
-Swept along by the shuffling crowd, we were pushed into the lift.\
-Yui-san's hand, clutching mine tightly, felt faintly clammy.\
-　Before I could say anything more, we were guided to our seats and ended up sitting side by side at the very back.\
-As instructed by the announcement, Yui-san pulled her seatbelt tight, her hand still trembling slightly.
+Just as I opened my mouth to confirm it, the door in front of us suddenly swung open.\
+Unable to resist the flow of the crowd moving forward, we were pushed straight into the elevator.\
+Yui-san's hand, gripping mine tightly, was faintly damp with sweat.\
+Before I knew it, we were guided to our seats, sitting side by side at the very back.\
+Following the announcement, I pulled down the safety bar to lock it in place, and Yui-san's hand, doing the same, was trembling in small, visible tremors.
 
-"Um, Yui-san, are you alright?"
+"Um, Yui-san, are you really okay?"
 
-"I... I think... I'm fine..."
+"I'm... fine........... I think..."
 
-"I think."
+*I think.*
 
-　That's when my suspicion finally turned to certainty.\
-Yui-san's eyes, looking at me, were glistening with unease, and my chest tightened painfully.
+That's when my suspicion finally turned into certainty.\
+The eyes looking at me were wet with unease, and something in my chest clenched painfully.
 
-I've done it. I've made a huge mistake...!
+I'd messed up. Terribly...!
 
-Only now did I realise. I'd been far too excited about our Disney date with Yui-san, and hadn't noticed at all that she disliked scream-inducing attractions.
+Only now did it finally hit me. I'd been so swept up in the excitement of our MouseSea date that I'd completely failed to notice Yui-san couldn't handle thrill rides at all.
 
-　I'm such an idiot. Why didn't I ask her first?\
-I should have known better. If I said I wanted to go on something, no matter how much she disliked it, Yui-san would never say no.
+I'm such an idiot. Why didn't I ask beforehand?\
+I should have known — if I said I wanted to ride something, there's no way Yui-san would ever say no, no matter how much she personally hated it.
 
-"Yui-san, I'm so sorry. I didn't realise you didn't like thrill rides..."
+"Yui-san, I'm so sorry, I never realized you weren't okay with thrill rides..."
 
-"It's... it's alright, really..."
+"I-I'm fine, really, fine..."
 
-Yui-san's reaction worried me far more than the attraction's effects, and I couldn't help but squeeze her hand tightly.\
-Having come this far, there was no turning back. No retreating now. All that remained was to climb to the very top and fall...\
-Everything went pitch black, and soon Yui-san's figure vanished from view. The hand I held was all I had to rely on.\
-I was so worried about Yui-san that the attraction's effects didn't register at all.\
-　The lift surged upwards.
+Far more worried about Yui-san's state than anything the ride itself was doing, I couldn't help gripping her hand tightly.\
+There was no escaping it now. No turning back. All that was left was to climb to the top, and drop.\
+Everything went pitch black, and Yui-san's figure disappeared from view entirely. All I had to hold onto was the hand gripping mine.\
+Worried sick about Yui-san, none of the ride's staging registered in my mind at all.\
+The elevator climbed higher and higher.
 
-"Kana...?"
+"K-Kanata...!"
 
-"Yui...! It's alright, I'm here, I'm right beside you...!"
+"Yui-san...! It's okay, I'm — I'm right here beside you...!"
 
-Hearing Yui's voice, on the verge of tears, made me feel like crying too.\
-Oh, please let it go up and down fewer times than usual.
+Hearing her voice on the verge of tears made me want to cry too.\
+Please, please let there be fewer drops than usual this time.
 
-　We clasped hands tightly.\
-Inside the lift heading towards hell, it was pitch black. All I could feel was the warmth and strength of Yui-san's hand to my right.
+We gripped each other's hands tightly.\
+Inside the elevator bound for who-knows-where, pitch black, all I could feel was the warmth and strength of Yui-san's hand beside me.
 
-Regret and self-reproach threatened to crush me. It wasn't supposed to be like this!
+Guilt and regret crushed down on me. This wasn't how this was supposed to go—!
 
-The ascent slowed.\
-Upon reaching the top, it suddenly brightened. Light streamed in through the window, abruptly.\
-　It was the instant I saw outside.
+The climb began to level off.\
+Reaching the top, everything suddenly lit up, light pouring in through the window all at once.\
+The moment the view outside came into sight—
 
-With a sensation of floating, my body plunged downwards in one swift motion.\
-My body floated up with a jolt, and the queasy feeling of my insides being pushed upwards made me stiffen involuntarily.
+With a floating, weightless sensation, our bodies plunged straight down, all at once.\
+My whole body lurched upward, a churning, unsettling feeling like my insides were being pushed up through me, and I instinctively tensed.
 
-But before I could cry out—
+But before I could even make a sound myself—
 
-"Aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+"AAAAAAAAAAAAAAAAAAAAAAH!!!"
 
-　Yui-san's piercing scream echoed through the lift, mingling with the cries of the other passengers.
+Mixed in with the other passengers' screams, Yui-san's full-throated shriek rang out through the elevator.
 
-"Ow ow ow ow ow ow, Yui-san, you're breaking my hand! It hurts!!!"
+"Owowowowow, Yui-san, my hand, it's going to break! It hurts~!!!"
 
-Her hand clenched mine with such force it made my bones creak and groan.\
-　Each time the lift jerked up or down, Yui-san screamed louder than anyone else, and each time, her grip tightened fiercely. I was screaming in a different sense too.
+Squeezed with tremendous force, the bones in my hand ground together painfully.\
+Every time the elevator dropped again, Yui-san screamed louder than anyone else on board, and every single time, she crushed my hand even harder, until I was screaming too — for an entirely different reason.
 
-"Haah... Haah... Is... is it over...?"
+*
 
-When the ride stopped, Yui-san, teary-eyed and trembling, looked at me, breathing heavily.\
-My hand, still aching from being gripped so tightly, made a grinding sound. Feeling terribly sorry, I gently stroked her cheek.
+"Haah...! Haah..., i-is it over...?"
 
-"Yui... are you... alright?"
+Once the attraction came to a stop, Yui-san, eyes brimming with tears and trembling all over, looked at me with ragged breath.\
+My hand still ached from how hard she'd been gripping it, but overwhelmed with guilt, I found myself gently stroking her cheek instead.
 
-"Y-yeah... I think so..."
+"Yui-san... a-are you okay?"
 
-Her hand was still trembling, and my heart clenched. Without thinking, I hugged her.
+"Y-yeah... somehow..."
 
-"I'm sorry, Yui...! It must have been terrifying...!"
+Her hands were still shaking, so my chest tightened and I threw my arms around her without thinking.
 
-Seeing her so frightened made my own eyes well up with tears.\
-While this was happening, the other passengers began filing out. I hurriedly unbuckled Yui's seatbelt, steadied her unsteady hands, and helped her out of the ride.
+"I'm so sorry, Yui-san...! That was scary, wasn't it...!"
 
-　＊＊＊
+Watching her, still trembling with fear, made tears well up in my own eyes too.\
+Before long, the other passengers began filing out, so I hurried to unbuckle Yui-san's restraint and, supporting her unsteady hand, helped her out of the attraction.
 
-　After buying tea from a vending machine and returning to the bench, Yui-san looked awkward and averted her eyes from me.
+***
 
-"Yui-san? What's wrong? Are you feeling unwell?"
+Buying tea from a vending machine and returning to a bench, Yui-san looked away from me, clearly embarrassed.
 
-I sat right next to her, snuggling close, and gently rubbed her back with my palm.\
-Opening the plastic bottle cap and handing it to her, her moist eyes met mine.
+"Yui-san? What's wrong? Do you feel sick?"
 
-"Thank you... Sorry, Kanata... I thought I'd be fine... I'm afraid I've shown you my unattractive side."
+I sat down close beside her and gently rubbed circles on her back with my palm.\
+I twisted the cap off the bottle and handed it to her, and her tear-glossed eyes finally met mine.
 
-Seeing Yui-san slump her shoulders dejectedly, I shook my head vigorously from side to side.
+"Thank you... I'm sorry, Kanata... I really thought I'd be fine... I showed you a pretty uncool side of me there."
 
-"I'm the one who should apologise for not checking first. I was looking forward to it, so you pushed yourself to get on, didn't you, Yui-san...! Next time, let's go on a much more peaceful attraction."
+Watching Yui-san slump, dejected, I shook my head firmly, side to side.
 
-"But, Kanata, will you really be able to enjoy yourself...?"
+"No, I'm the one who should apologize, for not checking with you first. You pushed through it anyway because I was so excited, didn't you...! Let's ride something more peaceful next."
 
-Yui-san's feeble words made my heart skip a beat.\
-Why is Yui-san so kind? Seeing her devotedly willing to do anything for me, if no one had been watching, I would have thrown myself into her arms right then and there.
+"But Kanata, will you actually enjoy that...?"
 
-"Of course I can enjoy anything with you, Yui-san...! Right, Yui-san? After a little rest, let's go to the attraction where we talk to the turtles. It's just nearby. After a leisurely meal at the restaurant, we'll take a boat ride... and see the show in the evening, alright?"
+Hearing her say it so weakly made my heart squeeze.\
+Why is Yui-san so unfairly kind? Watching her try so hard to give me everything I want, so earnestly devoted — if there weren't people around, I'd have thrown myself straight into her arms right then.
 
-I placed the headband I'd taken off back onto Yui-san's head.\
-When I squeezed her hand tightly, Yui-san smiled reassuringly.
+"Of course I'll enjoy it, as long as it's with you, Yui-san...! Come on, let's rest a little, then go talk to the turtle at that attraction nearby. After a relaxed meal at a restaurant, we can ride the boat... and watch the show tonight."
 
-＊＊＊
+I put the headband, which had come off, back on Yui-san's head.\
+Squeezing her hand tightly, Yui-san smiled back at me, looking relieved.
 
-After thoroughly enjoying Disney Sea, night fell. We gazed at the sea reflecting the orange streetlights, me snuggling close to Yui-san.\
-Amidst the throng of people waiting to see the show, we held hands tightly, biding our time.
+***
 
-"Today was so much fun. I'd love to come back. Shall we try the Land next time?"
+Having thoroughly savored MouseSea, night fell, and as we gazed out at the sea reflecting the orange glow of the streetlights, I pressed myself close against Yui-san.\
+Surrounded by the crowd gathered to watch the show, we held hands firmly, waiting for it to begin.
 
-"...Are you sure you'll be alright without the thrill rides?"
+"Today was so much fun. I want to come back again. Should we do Land next time?"
 
-Yui-san said this with a wry smile, so I smiled back and nodded.
+"...Even if I can't handle the thrill rides?"
 
-"Of course. What matters is making memories with you, Yui-san. Don't push yourself."
+Yui-san asked it with a rueful smile, and I laughed and nodded too.
 
-"...I wanted to look cool in front of you, Kanata. Sorry I was clutching your hand so tight."
+"Of course. The whole point is making memories together with you, Yui-san. You don't need to push yourself."
 
-"No, it's fine. Thank you for trying so hard for me. That feeling meant more than anything."
+"...I wanted to look cool in front of you, honestly. Sorry for squeezing your hand so hard."
 
-The announcement for the show to begin reached us, and we leaned close together, gazing out to sea. Squinting against the thrilling music and the dancing lights, we held hands the whole time.
+"No, it's fine. Thank you for trying so hard for my sake. That feeling alone made me happier than anything."
+
+An announcement signaled the show was about to start, and we leaned into each other, watching the sea. Narrowing our eyes against the exciting music and the lights dancing across the water, we kept holding hands, on and on.
 
 "Hey, Yui-san."
 
-"Hmm?"
+"Yeah?"
 
 "...I love you."
 
-I whispered softly in her ear, lightly brushing my lips against her cheek. Everyone was surely engrossed in the show; no one would be watching.\
-Yui-san looked startled for a moment, then broke into a truly delighted, soft smile.
+I whispered it quietly into her ear, pressing my lips lightly to her cheek. Everyone was surely too absorbed in the show to notice.\
+Yui-san looked briefly startled, and then her face melted into a smile, genuinely, deeply happy.
 
-Seeing that smile, illuminated by the show's lights, might have been the best part of the day.
+*
 
-　Despite the mishaps, it had been a thoroughly satisfying Disney date.
+Getting to see that smile, lit up by the glow of the show — that might have been the single best part of the whole day.
 
-While I resolved never to put her through such fright again... I'd also thought to myself that Yui-san looked utterly adorable when she was scared! I decided to keep that thought a secret from her for now.
+There'd been a mishap or two along the way, but it turned out to be a deeply satisfying MouseSea date after all.
+
+I really never want to put Yui-san through something that scary again for my sake... but the sight of her trembling in fear was also unbearably cute, and that particular thought, I decided, would stay a secret from Yui-san — for now.
+
+— **MouseSea Arc, End** —
