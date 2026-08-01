@@ -41,6 +41,8 @@ A childhood-friends × convenient-circumstances student yuri story.
    </div>
    {% endif %}
 
+![Crush on Childhood Friend](/assets/images/crush-on-childhood-friend.jpg)
+
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: [しきもと ホノ] (Shikimoto Hono).
 
