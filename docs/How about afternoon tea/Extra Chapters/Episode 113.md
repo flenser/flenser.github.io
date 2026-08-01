@@ -1,160 +1,161 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Extra Chapters
 sequence: 120
-title: I really want to go to Disney Sea! part 1
+title: I Want to Go to MouseSea! ①
 ---
-I really want to go to Disney Sea! part 1
+## "I Want to Go to MouseSea!" ①
 
-"Listen, Yui. I've got a favour to ask..."
+\
+"Um, Yui-san. I have a request..."
 
-I timed it perfectly, waiting until Yui got home and was washing her hands in the sink, then plucked up the courage to speak to her from behind.\
-She looked at me through the mirror, a puzzled expression on her face.
+Timing it for when Yui-san got home and was washing her hands at the sink, I worked up the nerve and called out to her from behind.\
+Yui-san turned to look at me, puzzled, through the mirror.
 
-After drying her hands, Yui turned to face me.\
-Her long lashes blinked repeatedly, a look of wonder in her eyes.
+After drying her hands, she turned to face me properly.\
+Her long lashes blinked in confusion a few times.
 
-"What is it? A favour?"
+"What's wrong? A request?"
 
-　Truth be told, I was about to ask Yui-san out on another date.\
-I knew she'd grant any request I made, yet I always felt nervous at the moment of asking for something.
+Actually, I was about to ask Yui-san for our next date.\
+I know Yui-san will pretty much always grant whatever I ask for, but this moment right before asking for something always makes me nervous anyway.
 
-"Well... there's somewhere I'd like to go with you, Yui-san. Weekends get crowded, so I was wondering if we could take a day off together on a weekday... Would that be alright? Are you busy...?"
+"Um... there's somewhere I want to go with you, Yui-san. It gets crowded on weekends, so I was wondering if we could line up our paid leave and go on a weekday instead... Are you busy these days, Yui-san...?"
 
-　Lately, Yui-san had been working late a lot, often coming home late.\
-She'd mentioned just the other day over dinner that things were finally settling down at work, so I plucked up the courage to suggest it.
+Lately Yui-san had been doing a lot of overtime, coming home late more often than not.\
+She'd mentioned over dinner recently that work had finally settled down, so I worked up the courage to bring it up.
 
-Was it too selfish a request?\
-Feeling uneasy, I glanced up. Yui-san looked down at me with gentle eyes.
+Maybe that was a little too selfish a request.\
+Nervous, I peeked up at her, and found Yui-san looking down at me with gentle eyes.
 
-"No, it's absolutely fine. Sure, let's take paid leave together. Where do you want to go?"
+"No, it's totally fine. Sure, let's take leave together. Where do you want to go?"
 
-"That's wonderful...! I'd love to go to Disney Sea!"
+"Yes...! I want to go to MouseSea!"
 
-"Eh... Disney Sea?"
+"Huh... MouseSea?"
 
-"Come to think of it, I haven't been since I came back to Japan... And there's no Disneyland in England..."
+"I realized I haven't been even once since coming back to Japan... and there's no MouseLand in England, either..."
 
-"Oh, I see... Right, Disney Sea. I think the last time I went was with Ritsu back in university... Haha..."
+"O-oh, right... I see, MouseSea, huh. I think the last time I went was with Ritsu, back in university... ha ha..."
 
-"I thought Disney Sea might be better since you can have drinks there, but would Disneyland be better?"
+"I figured MouseSea would be good since you can drink there too, but would you rather do MouseLand instead?"
 
-I'm so relieved she didn't refuse.\
-Overjoyed, I hugged Yui-san tightly and asked. Which would be better, the Land or the Sea?
+I'm so glad she didn't say no.\
+Delighted, I threw my arms around Yui-san and asked — which did she like better, Land or Sea?
 
-"No, it's fine. Sea is fine. Um... just to be sure, what kind of fun do you like, Kanata?"
+"No, it's fine. Sea works. ...Just to check, though — what kind of person are you at these places, Kanata? What do you like to do there?"
 
-　Yui-san placed her hand on my shoulder and looked at me with a serious gaze.\
-What kind of fun? What does that even mean?\
+Yui-san put her hands on my shoulders and looked at me with unusually serious eyes.\
+What kind of person am I there? What did that even mean?\
 I tilted my head, and Yui-san cleared her throat once.
 
-"Well, for example, wanting to enjoy the shows, or wanting to go on the rides... People have different ways of enjoying themselves, right?"
+"You know, like — some people are all about the shows, some people want to ride all the attractions... everyone enjoys it differently, right?"
 
-Ah, that's what she meant.\
-　True, time is limited, so we can't do everything. It might be important to agree beforehand on what we prioritise.
+Ah, I see what she meant.\
+That's true — time is limited, so we can't do everything, and it's probably worth agreeing ahead of time on what to prioritize.
 
-Still, I reckon Yui-san would probably prioritise all my wishes anyway.
+Though honestly, I have a feeling Yui-san would just prioritize whatever I wanted anyway.
 
-"Hmm, well... I'd love to go on lots of rides. Especially those... the ones where you drop! Let's go on them together, alright?"
+"Hmm, let's see. I want to ride tons of attractions. I especially love the one where you drop! Let's ride it together."
 
-"The ones... where you drop, huh... Oh, that one... Right, I see... The ride... Yeah, that's fine..."
+"The drop... one, huh... right, that one... okay, got it... attractions... yeah, okay, no problem..."
 
-"Hehe, I'm looking forward to it. Hey, Yui-san, when shall we go?"
+"Hehe, I can't wait. So, Yui-san, when should we go?"
 
-I get so happy I hug Yui-san tightly.\
-Somehow, a theme park date feels so much like something lovers would do, it's really nice!\
-I hope I get to go on lots of rides with Yui-san.
+Delighted, I squeezed Yui-san in a tight hug.\
+Theme park dates really do have that couple-y feeling to them, this might be great!\
+I really hope we get to ride a ton of attractions together.
 
-"In that case... Friday would be good, I suppose? I've got the next day off."
+"In that case... how about Friday? The next day's a day off too."
 
-"Right then, I'll apply for paid leave for Friday!"
+"Then I'll put in my leave request for Friday!"
 
-"Right, I'll do the same. If it makes Kanata happy, I'll make the effort..."
+"Yeah, I'll do the same. If it makes you happy, Kanata, I'll do my best..."
 
-"Hehe, thank you. Let's have lots of fun, shall we?"
+"Hehe, thank you. Let's have so much fun."
 
-Even though she's busy, she's making the effort to take paid leave for my sake. Yui-san really is so kind.
+Going out of her way to take leave for my sake even though she's busy — Yui-san really is so kind.
 
-I'd love to pick out a headband that suits Yui-san.
+I want to be the one to pick out a headband that suits her.
 
-On weekdays it should be less crowded than weekends, and the queues for attractions probably won't be too bad either.\
-Well, knowing Yui-san, I wouldn't be entirely surprised if she'd splash out on premium passes to avoid long queues...
+Weekdays should be less crowded than weekends, so the attractions shouldn't have too long a wait.\
+Well — knowing Yui-san, I have a feeling she'd happily drop a small fortune just to skip the lines anyway...
 
-＊＊＊
+***
 
-Whether it was down to the teruteru-bōzu I made on Thursday night is uncertain, but come Friday as promised, it was a clear, sunny day just as I'd hoped.
+I'm not sure whether the teru-teru-bōzu I made Thursday night actually worked, but the promised Friday turned out exactly as clear and sunny as I'd hoped.
 
-　As I put on my trainers at the front door and tapped my toes, Yui-san smiled at me.
+Tapping my toes into my sneakers at the entryway, Yui-san watched me and smiled.
 
-"Trainers today? That's rather refreshing."
+"Sneakers today, huh? That's kind of unexpected."
 
-"I bought them especially for today, as I plan to play loads. I've broken them in properly, so I think I'm well prepared."
+"I'm planning to play hard today, so I bought these just for the occasion. I broke them in properly, so I think I'm all set."
 
-I declared confidently, chest puffed out, and Yui-san laughed.
+I said it, puffing my chest out with confidence, and Yui-san laughed.
 
-　It wasn't just the shoes; I'd deliberately bought comfortable shirts and trousers for today too.\
-I usually tend to choose skirts and blouses, but today, anticipating the rides, I'd even tied my hair neatly into a ponytail. My luggage was kept to an absolute minimum, of course.
+Not just the shoes — I'd gone out of my way to buy an easy-to-move-in shirt and pants for today too.\
+I usually gravitate toward skirts and blouses, but today, with the attractions in mind, I'd even pulled my hair back into a firm ponytail. My bag, of course, was kept to the bare minimum.
 
-"Right then, I'll wear my walking-friendly trainers today too."
+"Guess I'll wear comfortable sneakers today too, then."
 
-Yui-san pulled a pair of sporty trainers with what looked like highly cushioned soles from the shoe rack.
+Yui-san pulled a pair of sporty sneakers with thick, cushioned soles from the shoe rack.
 
-　Yui-san is so stylish she has loads of shoes, not just trainers, but I still think trainers suit her best. I reckon the impression she made when we first met plays a big part in that.
+Yui-san's always so stylish, so she owns plenty of shoes beyond just sneakers, but I've always thought sneakers suit her best of all. Though I'm sure that's partly because of the strong impression they made when we first met.
 
-Those two-tone trainers, like that killer whale... I wonder if she'll wear them again someday.
+That two-tone pair, the ones that remind me of Orca-kun... I wonder if she'll ever wear those again someday.
 
-"Right, shall we go?"
+"Alright, let's go."
 
-"Ah, Yui-san, wait!"
+"Ah, Yui-san, wait."
 
-I hurriedly tug lightly on Yui-san's arm as she was about to step out the front door.\
-　Realising my intention, Yui-san gave me a sly smile and leaned in to touch her lips to mine. A gentle kiss.
+I gave her arm a gentle tug just as she was about to step out the door.\
+Catching on to what I meant, Yui-san grinned and leaned in, her lips meeting mine gently.
 
-"...Oh, come on. You mustn't forget your goodbye kiss."
+"...Come on, you can't forget the goodbye kiss."
 
-Puffing out my cheeks in a sulky pout, Yui-san apologised with a smile and kissed me again.
+I said it, puffing my cheeks out in mock protest, and Yui-san laughed, saying sorry, and gave me one more kiss.
 
-＊＊＊
+***
 
-How many years had it been since I last visited Disney Sea? Hand in hand with Yui, I swayed aboard the train decorated with mouse characters.
+How many years had it been since I'd last gone to MouseSea? Hand in hand with Yui-san, we rode the train decorated with the mouse character.
 
-I love this train. It makes me feel truly excited, as if it might actually take me to a dreamland.
+I love this train. It always makes me genuinely excited, like it's really about to carry us off to a land of dreams.
 
-"It's amazing how everything can be done through the app these days, isn't it?"
+"It's amazing how everything's handled through the app these days, isn't it."
 
-"Yeah, right? Being able to check maps and wait times is brilliant."
+"Right, being able to check the map and wait times and everything, it really is impressive."
 
-"When you came with Ritsu, did you go to Land or Sea?"
+"When you went with Ritsu-san, did you two do Land or Sea?"
 
-"I went to Land with Ritsu... Hmm, it wasn't exactly a great memory... It was a bit of a disaster."
+"Ritsu and I went to Land, but... hmm, it wasn't exactly a great memory. It was rough."
 
-Yui-san said it with such a disheartened tone that I tilted my head.
+Yui-san said it looking utterly drained, and I tilted my head.
 
-"A disaster?"
+"Rough?"
 
-When I asked back, Yui-san looked up as if startled and shook her head frantically from side to side.
+I asked, and Yui-san suddenly looked up with a start, shaking her head hurriedly side to side.
 
-"Ah, no... well, you know, Ritsu's got that personality, so she dragged me around non-stop from opening to closing without a break... it was exhausting."
+"Oh, no... I just mean, you know how Ritsu is — she dragged me around nonstop from opening to closing without a single break, it was exhausting... that's all I meant."
 
-"Ahaha, that sounds just like Ritsu-san."
+"Ha ha, that does sound like Ritsu-san."
 
-I could picture it.\
-With that lively energy, she'd probably be as fit as a fiddle after running around from morning till night.\
+I could picture it easily.\
+She seems like the type who could run around all day at that same lively energy, from morning till night, and still come out completely unfazed.\
 I've never met anyone with more stamina than Ritsu-san.
 
-"Ah, right! Didn't you go when Ritsu-san was in Osaka? That theme park?"
+"Oh, right, did you never go when Ritsu-san was living in Osaka? To that theme park down there?"
 
-"Didn't go. I was invited, but I said no way."
+"Never went. She invited me, but I said no way and turned her down."
 
-I laughed at Yui-san, who was shaking her head vigorously from side to side.
+I laughed at Yui-san, shaking her head firmly side to side.
 
-"Well then... next time, shall we invite Yuri and Ritsu-san and all go to Disneyland together?"
+"Then... maybe next time we should invite Yuuri and Ritsu-san and go to MouseLand together."
 
-"Eh? No way. If I went with Ritsu, I'd die. I could manage it with Kanata, but with Ritsu? Absolutely not."
+"What!? No thanks, I'd die if I went with Ritsu. I can push through it with you, Kanata, but there's no way I could survive it with Ritsu."
 
-It's not even the sort of place you need to 'manage', Yui-san, you're so strange. But it really made me happy that she'd go anywhere with me.
+It's not even the kind of place you need to "push through," but Yui-san's funny sometimes. Still, it makes me really happy that she's willing to go anywhere, as long as it's with me.
 
-While we were talking like that, the train had arrived at our destination.
+Talking about all that, the train arrived at our destination before I knew it.
 
-I was feeling incredibly giddy at that moment... I never imagined for a second that something like that would happen afterwards.
+At that moment, I was so lighthearted, so carried away with excitement... I never imagined, not for a second, the incident that was about to happen right after this.

@@ -1,201 +1,209 @@
 ---
-grand_parent: How about afternoon tea?
+grand_parent: How About Some Afternoon Tea?
 layout: episode
 parent: Extra Chapters
 sequence: 121
-title: I really want to go to Disney Sea! part 2
+title: I Want to Go to MouseSea! ②
 ---
-I really want to go to Disney Sea! part 2
+## "I Want to Go to MouseSea!" ②
 
-Passing through the entrance gate, the long-awaited theme park spread out before us. Everyone's favourite, Disney Sea.
+\
+Passing through the entrance gate, the long-awaited theme park spread out before us. Everyone's favorite — MouseSea.
 
-How many years had it been? The last time I'd been here was back when my family still lived in Japan, so it must have been since primary school.\
-My heart leapt at the distinctly Disney-esque music drifting in from all directions.
+How many years had it been, really? The last time I'd come here was back when my family still lived in Japan — probably not since elementary school.\
+The distinctly "Mouse-y" music drifting in from every direction made my heart skip with excitement.
 
-Suppressing the urge to dash off, I squeezed Yui-san's hand tightly and pulled her along.
+Holding back the urge to break into a run, I gripped Yui-san's hand tightly beside me and gave it a tug.
 
-"Hey, Yui, let's go buy a headband first, a headband! I'll pick one out that suits you perfectly."
+"Hey, Yui-san, let's go buy headbands first, headbands! I'll pick out the one that suits you best."
 
-When you come to Disney, you absolutely must buy an ear-shaped headband.\
-I remember when I was brought here as a child, I got a Mickey Mouse headband... and I never took it off, not even when I went to sleep.
+You absolutely have to buy the ear headbands when you come to Mouse-anything.\
+I remembered getting a Mouse-Mouse headband as a kid when my parents brought me here — and how I refused to take it off even when it was time for bed.
 
-"Alright. Shall we head to the shops first then?"
+"Okay. Let's hit the shop first, then."
 
-"Mm."
+"Yeah."
 
-She nodded, and Yui-san smiled softly, her eyes narrowing.\
-I really love that smile. Somehow, affection just overflows from her gaze.\
-The feeling that she adores me flows warmly from those dark eyes into my heart.
+I nodded, and Yui-san narrowed her eyes, smiling softly.\
+I really love that smile of hers. It's like affection just spills right out of her expression.\
+The warmth of how much she loves me flows straight from those dark eyes into my heart.
 
-We walked along, swaying our joined hands to the music drifting by.
+We walked in time with the music playing around us, swinging our joined hands.
 
-"When you came to Disney with Ritsu before, what year of university were you in?"
+"When you went to MouseSea with Ritsu-san before, what year of university was that?"
 
-"Ah... fourth year... summer, I think."
+"Ah... fourth year, I think... summer."
 
-Fourth year summer...\
-By then, I wasn't by Yui-san's side anymore. Not noticing my stumbling words, Yui-san continued.
+Fourth year, summer...\
+Back then, I wasn't by Yui-san's side anymore. Not noticing the way I nearly choked on the words, Yui-san continued.
 
-"Ritsu suddenly came to my house and said, 'How long are you going to stay in bed? We're going out.' I protested, 'No, I don't want to go,' but she pulled the duvet off me, grabbed my feet, dragged me out of bed... she literally forced me to come along..."
+"Ritsu just showed up at my place out of nowhere and said, 'How long are you gonna keep moping in bed, we're going out.' I resisted, said I didn't want to go, but she ripped the blanket right off me, grabbed my ankle and dragged me clean out of bed — I really was hauled out of there against my will..."
 
-I could easily picture the two of them wrestling and chuckled.\
-Ritsu-san is kind to us juniors like me and Yuri, but she really shows Yui-san no mercy.
+I could picture the two of them wrestling over it so easily that I laughed.\
+Ritsu-san's always so gentle with me and Yuuri, as her juniors, but she really shows Yui-san no mercy at all.
 
-　It's hard to believe they only met at university – Yui and Ritsu get on so well and have remained such close friends ever since. You'd almost believe they'd known each other since birth.\
-There are moments when I think that even for Ritsu, who has so many friends, Yui is somehow a special one.
+It's hard to believe they only met in university — Yui-san and Ritsu-san have always clicked so well, and they're still close to this day. You'd almost believe they'd known each other since birth.
 
-"I was really down after Kanata left, so I think Ritsu was trying to cheer me up... But it was the height of summer, unbearably hot, and she dragged me around all day without a word of warning. I was completely knackered... Then, watching the parade that night, I said, 'I'm never coming back,' and she doubled over laughing."
+Even for someone with as many friends as Ritsu-san, I sometimes get the feeling Yui-san is a genuinely special friend to her.
 
-Yui laughed, as if recalling the scene.
+"I'd been down in the dumps ever since you disappeared, Kanata, so I think Ritsu was trying to cheer me up... but it was the middle of summer, brutally hot, and she dragged me around all day with zero say in the matter, and I was completely wiped out... That night, watching the parade, I told her, 'I'm never coming back here again,' and Ritsu just doubled over laughing."
 
-　We rarely bring up the time we were apart. So hearing this was refreshing.\
-It’s more accurate to say we deliberately avoided it.\
-We both know without asking that the time apart isn’t a fond memory for either of us.
+Yui-san laughed, seemingly picturing the scene from back then.
 
-But hearing things like this occasionally makes me think how truly wonderful it is that Ritsu was there beside Yui. Though I suppose it’s selfish of me to think this, having been the one who left Yui behind.
+We don't talk about the time we were apart very often. So hearing a story like this felt strangely fresh.\
+It's more accurate to say we've deliberately avoided the topic.\
+We both already know, without needing to ask, that the time we spent apart isn't a good memory for either of us.
 
-"...Well then, today I'll turn Yui-san's bad memories of Disney into the best memories of the year, shall I?"
+But hearing a story like this every once in a while, I find myself genuinely grateful that Ritsu-san was there by Yui-san's side. Though I know it's a little selfish of me to think that, given I'm the one who left her behind.
 
-I pounded my chest as I said it, and Yui-san squeezed my hand back tightly.
+"...Well then, today I'm going to turn your bad MouseSea memory into your best memory of the whole year."
 
-"Hehe, no need to worry about me. They're already good memories."
+I said it, thumping my chest proudly, and Yui-san squeezed my hand back tightly.
 
-"Eh? But we've only just arrived?"
+"Ha ha, you don't need to worry about that. It's already a good memory."
 
-"Seeing Kanata so happy... that alone made coming here worthwhile."
+"What? We just got here, though?"
 
-Yui-san smiles happily when she sees me.\
-She always says things that make me blush like that.\
-She hasn't changed one bit since our university days.\
-And I absolutely adore that about her. It makes me feel truly loved, warming my heart deep inside.
+"Seeing you this happy, Kanata — that alone made coming here worth it."
 
-　Though perhaps less crowded than weekends, even weekdays see plenty of people at Disney.\
-Weaving through the throng into the shop, we passed the souvenir section and headed for the display of headbands.\
-Picking up a Mickey Mouse ear headband that seemed most suited to Yui-san, I turned towards her.
+Yui-san looked at me, smiling happily.\
+Yui-san's always like this, saying things that make me blush without fail.\
+She hasn't changed one bit in that regard since our university days.\
+And honestly, that part of her is something I really, truly love. Feeling how loved I am like this warms something deep in my chest, gently.
+
+*
+
+Compared to weekends, it's probably less crowded, but even on a weekday, MouseSea was still packed with people.\
+Weaving through the crowd into the shop, we passed the souvenir corner and headed toward the section lined with headbands.\
+I picked up a Mouse-Mouse ear headband that seemed like it would suit Yui-san best and turned toward her.
 
 "Yui-san, try this on."
 
-I reached out slightly and placed it on her head.\
-The two black, round ears blended beautifully with her long, glossy black hair and looked utterly adorable.
+Reaching up a little, I set it on top of her head.\
+Two round black ears, matching her long, glossy black hair — so cute.
 
-"Hehe, Yui-san, you look cute."
+"Hehe, Yui-san, you're adorable."
 
 "Does it suit me?"
 
-"Yes."
+"Yeah."
 
-"Which one will you choose, Kanata?"
+"Which one are you getting, Kanata?"
 
-"I'll get the same one as Yui-san."
+"I'll match you."
 
-　Saying that, I picked up the same headband as Yui-san and tried it on my head. Before checking myself in the mirror, I looked up at Yui-san.
+I said it, picking up the same headband as Yui-san and putting it on my own head. Before even checking myself in the mirror, I looked up at Yui-san first.
 
-"What do you think? Does it suit me?"
+"How is it? Does it suit me?"
 
-Looking at Yui-san excitedly, she stared down at me intently before suddenly covering her mouth with her hand.
+Looking at her with excitement, Yui-san stared down at me intently, then suddenly clapped a hand over her mouth.
 
-"Eh... Yui-san? Does it not suit me?"
+"Huh... Yui-san? Does it not suit me?"
 
-　Asking anxiously, Yui-san shook her head vigorously from side to side.
+Worried, I asked, and Yui-san shook her head firmly, side to side.
 
-"No... you look absolutely adorable. Makes me want to hug you. I finally understand why everyone wants a headband now."
+"No... it's ridiculously cute. I want to hug you right now. I finally understand why everyone wants to wear these."
 
-Hearing Yui-san say this with sparkling eyes, I couldn't help but feel embarrassed and looked away.
+Yui-san said it with her eyes sparkling, and I couldn't help looking away, embarrassed.
 
-Honestly, you didn't have to say 'adorable' so loudly... I'm happy, but I'm a bit conscious of the stares around us.
+Come on, you don't have to say "cute" that loudly... I'm happy, but I can't help getting a little self-conscious about the people around us.
 
-"I-I suppose so... Does it suit me?"
+"R-really...? Does it actually suit me?"
 
-"Yes, it suits you perfectly. Let's get this one. I'll go buy it right away."
+"Yeah, it really suits you. Let's get this one. I'll go buy it right now."
 
-Yui gently removed my headband, so I blushed and tidied my slightly messy fringe.
+Yui-san gently took my headband off for me, and I fixed my slightly mussed bangs, my cheeks flushed.
 
-＊＊＊
+***
 
-　Wearing a headband at Disney makes me feel like I'm part of this dreamland myself, and it's such fun.
+Wearing the headband here at MouseSea made me feel, just a little, like I'd become part of this land of dreams myself — it was fun.
 
-"Right then, we're ready. Shall we go? I'll check the wait times."
+"Okay, now that we're all set, let's go. I'll check the wait times."
 
-As we left the shop and I checked attraction wait times on the app, Yui looked down at me and murmured quietly.
+Leaving the shop, checking attraction wait times on the app, Yui-san looked down at me and murmured quietly.
 
-"...When you wear your hair in a ponytail, Kanata, it reminds me of your university days."
+"...You know, when you wear your hair in a ponytail like that, it reminds me of our university days."
 
-"Eh?"
+"Huh?"
 
-Seeing my hair tied up today, full of enthusiasm for a day of fun, Yui-san smiled nostalgically.
+Looking at my hair, pulled up today with full intent to play hard, Yui-san smiled, a little nostalgic.
 
-"You always had your hair tied up after work, didn't you, Kanata? I really liked it. That coffee smell, and your ponytail too."
+"You always used to tie your hair back after your shifts, remember? I loved that. The smell of coffee, and your ponytail."
 
-"Do you actually like ponytails, Yui-san?"
+"Do you actually have a thing for ponytails, Yui-san?"
 
-"I like you no matter what hairstyle you have. You're always lovely."
+"I love you no matter what hairstyle you have."
 
-"...Yui-san, you've always complimented me on everything, haven't you? Don't you dislike anything about me?"
+"...You know, Yui-san, you've always complimented everything about me, ever since back then. Is there really nothing about me you don't like?"
 
-When someone says they like you so much all the time, it makes you wonder if there really isn't anything they dislike.
+When she's always saying she loves everything, it makes me curious whether there's really nothing she dislikes at all.
 
-I stared intently into her dark eyes, almost suspiciously, and Yui-san smiled back at me.
+I stared at her dark eyes, a little suspicious, and Yui-san laughed, looking back at me.
 
-"No, I love everything about you."
+"Nope. I love every single thing about you."
 
-Words of love spoken with effortless grace.\
-Even amidst the bustling music and atmosphere, my eyes always seem to focus solely on Yui-san, as if she were the only one in sight.\
-No matter how many years we spend together, my heart still flutters for Yui-san. I do hope she feels the same way. Even when we're old ladies.
+Words of love, delivered so effortlessly.\
+Even amid the lively music and atmosphere, my eyes always seem to frame Yui-san alone, as if everything else fades away.\
+No matter how many years we've been together, my heart still races for her, every time. I hope, if I can wish for anything, that it stays that way for her too. Even once we're both old and gray.
 
-"...Oh, Yui-san, saying things like that... please save it for when we're alone at home..."
+"...Ugh, Yui-san, seriously, save that kind of thing for... when we're home, just the two of us..."
 
-"Sorry, sorry, I'll be careful."
+"Sorry, sorry. I'll be more careful."
 
-I lowered my head, pouting my lips to hide the flush spreading across my cheeks, and Yui-san smiled softly again.
+I looked down, hiding my reddening cheeks, pouting my lips, and Yui-san smiled again, softly.
 
-　Passing through the street lined with shops, a vast sea came into view at the centre.\
-This atmosphere, reminiscent of a Mediterranean port town, was quintessentially 'Disney Sea' and utterly charming.\
-The water surface sparkled, reflecting the sunlight.
+*
 
-Beyond the sea, a hazy flame rose from distant mountains, making Yui-san flinch and her shoulders tremble.
+Passing through the row of shops, a great sea came into view at the center of the park.\
+This atmosphere, like some Mediterranean port town — this is exactly the "MouseSea" feeling, and it's wonderful.\
+The water's surface sparkled, reflecting the sunlight.
 
-"W-whoa, that startled me...!"
+Across the sea, from a distant mountain, a burst of flame suddenly flared up, and Yui-san's shoulders jumped with a start.
 
-"Wow, what a promising start! Getting to see an eruption right after arriving."
+"Whoa, that startled me...!"
 
-Feeling light-hearted, I began strolling leisurely.
+"Wow, what a great sign, getting to see it erupt right when we arrive."
 
-"Really?"
+Lighthearted, I started strolling ahead, unbothered.
 
-"It erupts occasionally. There's a roller coaster at the foot of that mountain too, so let's ride it later."
+"Wait, it does that?"
 
-"H-huh... a roller coaster... there are loads of them, aren't there..."
+"It erupts every so often. There's a roller coaster at the base of that mountain too, let's ride it later."
 
-"That's right. Shall we go then! First, straight to our main attraction, the Tower of..."
+"O-oh really~, a roller coaster... there are a lot of those, huh..."
 
-"Eh!? H-hold on a moment, Kanata!"
+"There sure are. Alright, let's go! First up, the one I've been looking forward to most, Tower of..."
 
-My hand, which she was holding, was tugged sharply, making me stop. Startled, I turned to look at Yui-san, who gave me a bright smile.
+"Wait!? H-hold on, Kanata!"
 
-"Hey, if we go on the thing we were most looking forward to first, won't that leave us with nothing left to look forward to?"
+My joined hand was yanked back hard, stopping me in my tracks. Startled, I turned to look at Yui-san, and she smiled brightly.
 
-"Eh? No, that won't happen. There are loads of other rides, after all... Oh, right! You mentioned before that you eat taiyaki from the tail end, didn't you? Are you the type who likes to save the best for last?"
+"Hey, don't you think if we ride the one you've been looking forward to most right away, there won't be anything left to look forward to?"
 
-"Y-yeah, exactly. Plus, we just had breakfast, didn't we? So... shouldn't we start with something a bit gentler? I mean... I'm not quite mentally or physically ready yet... I want to tackle it in peak condition..."
+"Huh? That's not true, there are plenty of other attractions too... Oh, right, didn't you tell me before you eat taiyaki starting from the tail, Yui-san? Are you the type who likes to save the best for last?"
 
-　Yui scratched her cheek awkwardly and mumbled something indistinctly.
+"Y-yeah, exactly that. Besides, we just ate breakfast, didn't we? So... why don't we start with something gentler? My mind and body just aren't quite ready yet, you know? I want to go in at full strength..."
 
-It was unusual for Yui, who always put me first, to voice her own wishes.\
-Had she been looking forward to today that much?\
-Feeling delighted, I squeezed Yui's hand tightly with both of mine.
+Yui-san mumbled it, scratching her cheek, looking like she was struggling to get the words out.
 
-"So you were looking forward to that ride too, Yui! Hehe, I'm so happy. Right then, shall we start with the gondola ride? The boarding point is just nearby."
+It's rare for Yui-san, always putting me first, to voice a preference of her own like this.\
+Maybe she'd just been looking forward to today that much?\
+Delighted, I gripped Yui-san's hand tightly with both of mine.
+
+"You were looking forward to that attraction too, Yui-san! Hehe, I'm so happy. Okay, got it, let's start with the gondola ride, then! There's a boarding spot right nearby."
 
 "Y-yeah, let's do that..."
 
-Feeling light-hearted, I took Yui-san's hand again and she followed behind me.
+Practically skipping, I pulled Yui-san's hand again, and she followed close behind me.
 
-"...If Kanata... is happy... it'll be alright... it'll be alright... I can definitely manage..."
+"...As long as Kanata's happy... it's fine... it's fine... I can definitely do this..."
 
-"Hm? Yui-san, did you just say something?"
+"Hm? Did you say something, Yui-san?"
 
-"No, it's nothing. Nothing at all."
+"No, nothing. Nothing at all."
 
-Yui-san shook her head vigorously from side to side.
+Yui-san shook her head firmly, side to side.
 
-Truthfully, at that moment, I did think Yui-san seemed a little different than usual... but back then, I couldn't have imagined for a second that there was something she found difficult.
+*
+
+Honestly, at that moment, I did think something seemed just slightly off about her, somehow... but at the time, it never once crossed my mind that Yui-san might actually have something she was afraid of.
