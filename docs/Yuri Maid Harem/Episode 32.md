@@ -1,8 +1,8 @@
 ---
 layout: episode-flat
-nav_order: 31
+nav_order: 32
 parent: 'The Introvert Whose Only Redeeming Feature Is Her Face Somehow Built a Yuri Harem ~A Former Young Lady Becomes a "Maid" in Akihabara~'
-sequence: 31
+sequence: 32
 title: "Episode 32 (Sora's POV): Hayashi Cosmo's Circumstances"
 ---
 ## Episode 32 (Sora's POV): Hayashi Cosmo's Circumstances
