@@ -34,6 +34,8 @@ it's the story of her finding her own way to face forward again.
    </div>
    {% endif %}
 
+![Magic Doll Shop](/assets/images/magic-doll-shop.jpg)
+
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: Yatsuboshi Kohaku [八星　こはく]
 
