@@ -1,7 +1,7 @@
 ---
-title: The World-Weary Magic Doll Shop — The Strongest Witch Just Wants to Retire and Live Quietly, But Somehow Became a Hero Anyway
+title: The World-Weary Magic Doll Shop — A Redo With the Strongest Witch, One Final Day With Someone Precious to You
 has_children: true
-tags: ["safe", "magic", "fantasy", "isekai", "angst", "adult life", "ongoing"]
+tags: ["safe", "magic", "fantasy", "angst", "adult life", "ongoing"]
 ---
 ## Original Title
 
