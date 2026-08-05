@@ -5,7 +5,7 @@ tags: ["safe", "magic", "fantasy", "angst", "adult life", "ongoing"]
 ---
 ## Original Title
 
-厭世の魔法人形屋～隠居希望の最強魔女、ゆっくり暮らしたいだけなのに、いつの間にか英雄になってました～
+厭世の魔法人形屋～最強魔女とやり直す、大切な人との最期の1日～
 
 ## Synopsis
 

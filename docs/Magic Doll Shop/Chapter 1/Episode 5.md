@@ -1,5 +1,5 @@
 ---
-grand_parent: The World-Weary Magic Doll Shop — The Strongest Witch Just Wants to Retire and Live Quietly, But Somehow Became a Hero Anyway
+grand_parent: The World-Weary Magic Doll Shop — A Redo With the Strongest Witch, One Final Day With Someone Precious to You
 layout: episode
 nav_order: 5
 parent: 'Chapter One: The Magic Doll Shop "Lux"'

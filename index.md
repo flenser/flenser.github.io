@@ -33,7 +33,7 @@ nav_exclude: true
 - [The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl](/docs/Princess Girl Trying to Win Over Prince Girl/princess-wins-prince.html)
 - [The Story of the Woman Who Ended Up Sleeping with the Club Princess ✅](/docs/Woman Sleeping with Princess/woman-sleeping-with-princess.html)
 - [The White Witch and the Black Witch — A Twisted Secret Between Them ✅](/docs/White Witch, Black Witch/white-witch-black-witch.html)
-- [The World-Weary Magic Doll Shop — The Strongest Witch Just Wants to Retire and Live Quietly, But Somehow Became a Hero Anyway](/docs/Magic Doll Shop/magic-doll-shop.html)
+- [The World-Weary Magic Doll Shop — A Redo With the Strongest Witch, One Final Day With Someone Precious to You](/docs/Magic Doll Shop/magic-doll-shop.html)
 - [You Bleed Into My Colourless World ✅](/docs/My Colourless World/my-colourless-world.html)
 
 {: .note }
