@@ -4,7 +4,7 @@ layout: episode
 nav_order: 7
 parent: 'Chapter One: The Magic Doll Shop "Lux"'
 sequence: 7
-title: "Episode 7: Properly, in a Single Day"
+title: 'Episode 7: Properly, in a Single Day'
 ---
 ## Episode 7: "Properly, in a Single Day"
 
