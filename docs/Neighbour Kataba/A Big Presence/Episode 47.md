@@ -8,7 +8,6 @@ title: Episode 47
 ---
 Episode 47
 
-\
 My mood was low.
 
 Even though it was a precious day off, I resented having to walk outside under this hot sun.
