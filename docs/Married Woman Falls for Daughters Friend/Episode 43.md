@@ -8,7 +8,7 @@ title: 'Chapter Three: "The Clod of Earth Dreams of Snow" — Part Eight'
 ## Chapter Three: *"The Clod of Earth Dreams of Snow"* — Part Eight
 
 \
-"Kai, do you..." I nearly asked how she handled PE class at school, and pulled back.\
+"Kai, are you..." I nearly asked how she handled PE class at school, and pulled back.\
 "Getting the hang of the phone yet?"\
 I'd never once seen her actually touch it, even here in the room, barely registering as a presence at all.\
 "I've gotten better at swiping, at least."\
@@ -16,7 +16,7 @@ I'd never once seen her actually touch it, even here in the room, barely registe
 "Also, some stranger keeps calling for Shio-nee-san. It happened so often I've now learned about call blocking."\
 "Terrifying."\
 Both the persistence of whoever was calling, and the nee-san herself.\
-"Should I have properly set up my own new contract after all?"\
+"Should I have properly set up a new contract for you after all?"\
 "Nee-san attracting swarms of women is nothing new, so, not particularly..."\
 Kai took another sip of coffee and grimaced at the cup.\
 "Add some sugar?"\
