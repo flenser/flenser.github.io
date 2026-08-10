@@ -31,9 +31,9 @@ Even as I said it, I could easily picture Seno-san frowning angrily, and I felt 
 
 　I'm getting to know her so well now that I can easily predict her reaction to anything I say.
 
-"More importantly... Niiyama-kun, have you given up on Aosawa-chan?"
+"More importantly... Niiyama-kun, have you given up on Aozawa-chan?"
 
-Ever since Aosawa-chan joined the company as a new graduate, Niiyama-kun had been after her.\
+Ever since Aozawa-chan joined the company as a new graduate, Niiyama-kun had been after her.\
 Honestly, I thought it was reckless, but I never imagined he'd switch targets so easily.
 
 "Well, she said she'd got a boyfriend."

@@ -12,11 +12,11 @@ Sitting side by side with Kurosaki-kun at the cramped counter of an old oden pub
 
 "Did you do similar work at your previous company, Mitsuya-san?"
 
-"Yeah, I was in the management team. I was Aosawa-chan's mentor. Impressive, right?"
+"Yeah, I was in the management team. I was Aozawa-chan's mentor. Impressive, right?"
 
-"'Aosawa-chan'... Ah, the secretary? She's cute, isn't she? Like an idol."
+"'Aozawa-chan'... Ah, the secretary? She's cute, isn't she? Like an idol."
 
-"Aosawa-chan's got a boyfriend, so even if you tried, it wouldn't work. Too bad for you."
+"Aozawa-chan's got a boyfriend, so even if you tried, it wouldn't work. Too bad for you."
 
 "I wasn't trying!"
 
@@ -209,7 +209,7 @@ Surely Seno-san, too, must want to live protected like this, as a matter of cour
 
 —You should face your own feelings more simply. If you like her, then like her. What's wrong with that?
 
-Aosawa-chan's words pierced deep into my chest and wouldn't budge.\
+Aozawa-chan's words pierced deep into my chest and wouldn't budge.\
 I felt like making one last desperate attempt. One more time... just this once.
 
 Clutching Kurosaki-kun's strong arms, I kept thinking only about that.

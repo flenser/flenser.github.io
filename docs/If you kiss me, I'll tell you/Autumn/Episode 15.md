@@ -21,7 +21,7 @@ It wasn't that I'd never encountered unpleasant things in my working life, but I
 　On days when I dread going to work, I get up early and run relentlessly before heading in.\
 Simply pushing my body to its limits in silence allowed me to banish the distracting thoughts in my head with surprising ease.
 
-Arimura-chan... she doesn't have the inherent gentleness of Aosawa-chan, nor the flexibility of Seno-san, so she seems to struggle considerably with interpersonal negotiations.
+Arimura-chan... she doesn't have the inherent gentleness of Aozawa-chan, nor the flexibility of Seno-san, so she seems to struggle considerably with interpersonal negotiations.
 
 That assertive attitude is a mask for vulnerability. I only realised that recently.
 
@@ -58,7 +58,7 @@ Huh, she was angry... probably.
 
 I knew he was testing the waters. Probably wanted an excuse to contact her.\
 　Niiyama-kun is a thorough chap. When on earth did he get hold of Seno-san's contact details?\
-He was all over Aosawa-chan until recently, but the moment he realised she wasn't interested, this is what happened.
+He was all over Aozawa-chan until recently, but the moment he realised she wasn't interested, this is what happened.
 
 Is it really just about looks? He doesn't know anything about her inner self.\
 A woman that strong-willed? I can't see him being able to handle her.

@@ -23,7 +23,7 @@ Somehow, I no longer felt any particular discomfort spending time with Seno-san.
 
 Days continued where we bickered while cooperating to get through our daily tasks.
 
-Even as summer drew to a close, there was still no sign of a replacement for Aosawa-chan.
+Even as summer drew to a close, there was still no sign of a replacement for Aozawa-chan.
 
 　When I'd requested fried chicken, I'd thought she might balk at the hassle of dealing with the oil if we made it at home, but Seno-san surprisingly agreed without fuss, saying, "It's easy, no problem."
 
@@ -205,7 +205,7 @@ Staring blankly at the machine as it began brewing coffee with its mechanical hu
 "Ah, Mitsuya-san, good work today."
 
 A slightly high-pitched, soft, girlish voice made me turn around.\
-　Aosawa-chan, holding a tray with two empty teacups, smiled shyly at me.
+　Aozawa-chan, holding a tray with two empty teacups, smiled shyly at me.
 
 Ah, as adorable as ever. My little ray of sunshine.
 
@@ -217,12 +217,12 @@ Ah, as adorable as ever. My little ray of sunshine.
 
 "I'm finally getting the hang of it."
 
-The other day, Aosawa-chan apparently went on a business trip to Okinawa with the president and brought me a sweet potato tart as a souvenir.\
+The other day, Aozawa-chan apparently went on a business trip to Okinawa with the president and brought me a sweet potato tart as a souvenir.\
 She still seems to be handling her work diligently, and as the person responsible for her induction training, I'm genuinely proud of her.
 
 We used to go for drinks together after work quite often back then. At our regular Korean restaurant, we'd chat about all sorts of things over seafood pancakes.
 
-　Even back then, Aosawa-chan was sincere, diligent, and radiant, but somehow, her smile seems to shine even brighter now.\
+　Even back then, Aozawa-chan was sincere, diligent, and radiant, but somehow, her smile seems to shine even brighter now.\
 It's as if she's giving off this sort of 'aura of happiness'.
 
 "Speaking of which, Mitsuya-san, did you see the memo? About the celebration party?"
@@ -239,11 +239,11 @@ It's as if she's giving off this sort of 'aura of happiness'.
 
 "Right, good work today."
 
-I waved to Aosawa-chan and retrieved the coffee, now completely cold, from the vending machine.
+I waved to Aozawa-chan and retrieved the coffee, now completely cold, from the vending machine.
 
-Aosawa-chan... she's cute, isn't she? I pondered vaguely.
+Aozawa-chan... she's cute, isn't she? I pondered vaguely.
 
-For instance, if Aosawa-chan were lying naked on a bed, would I feel the same sort of emotion I felt for Seno-san?\
+For instance, if Aozawa-chan were lying naked on a bed, would I feel the same sort of emotion I felt for Seno-san?\
 Would I want to touch her?\
 Would I reach out without hesitation? Like that night.
 

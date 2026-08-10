@@ -34,7 +34,7 @@ Because I didn't want to suffer, I buried my feelings, pretended, only dated peo
 
 But this time, I don't think I can back down like that.
 
-I carefully ruminate over the advice Aosawa-chan gave me.
+I carefully ruminate over the advice Aozawa-chan gave me.
 
 "More simply... be honest with your own feelings..."
 

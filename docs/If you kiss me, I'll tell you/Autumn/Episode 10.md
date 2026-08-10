@@ -8,14 +8,14 @@ title: 'Episode 10: I feel both of you lack enthusiasm and a sense of urgency in
 ---
 Episode 10: I feel both of you lack enthusiasm and a sense of urgency in your work
 
-"Pleased to meet you. I'm Arimura Naoshi, transferred from the Accounting Department. I'll strive to match the standards set by my predecessor, Aosawa-san. Looking forward to working with you."
+"Pleased to meet you. I'm Arimura Naoshi, transferred from the Accounting Department. I'll strive to match the standards set by my predecessor, Aozawa-san. Looking forward to working with you."
 
 Her almond-shaped eyes, framed by long lashes peering over black-rimmed glasses, fixed directly on me.\
-A new girl had arrived in the autumn rotation to fill the seat vacated by Aosawa-chan over the summer.
+A new girl had arrived in the autumn rotation to fill the seat vacated by Aozawa-chan over the summer.
 
 "She seems earnest, doesn't she? I hear she'd been requesting a transfer to our department for ages. It's good to see such drive, isn't it?"
 
-Our Budget Management Department boss, Manager Yamazato, beamed as she said this. But Arimura-chan was earnest in a different way to Aosawa-chan's earnestness.
+Our Budget Management Department boss, Manager Yamazato, beamed as she said this. But Arimura-chan was earnest in a different way to Aozawa-chan's earnestness.
 
 It had been a week since her assignment.
 
@@ -59,7 +59,7 @@ I couldn't help but give a wry smile and pulled out my desk chair, trying to cov
 
 Seno-san remarked suddenly as we waited for our coffee to brew at the cup vending machine in the break room.
 
-"Yeah, she is. She has a different kind of straightforwardness to Aosawa-chan. Quite a strong personality though..."
+"Yeah, she is. She has a different kind of straightforwardness to Aozawa-chan. Quite a strong personality though..."
 
 　Just because someone's a senior or a junior doesn't mean you should overlook things that need addressing.\
 If you have an opinion, you should voice it. There's no need to hold back.\
@@ -138,7 +138,7 @@ It's like having to dismantle every single part that makes up my self and reasse
 
 "...Yeah, I suppose so."
 
-With Aosawa-chan gone, overtime increased, but it ended up bringing me closer to Seno-san.\
+With Aozawa-chan gone, overtime increased, but it ended up bringing me closer to Seno-san.\
 Whether that was good or bad, I still don't know.
 
 　With Arimura-chan joining our team, our workload should decrease. That means no more overtime together, and the closeness we gained might drift apart again.
@@ -151,19 +151,19 @@ I did all this to avoid upsetting the earnest newcomer, believing that to keep t
 
 They say most work stress stems from relationships, and only now, right up to this very moment, have I come to realise just how fortunate my previous environment had been.
 
-　Given that Arimura-chan had originally been in the accounting department, she picked up the duties quite smoothly. Yet, at every opportunity, she made remarks that seemed conscious of her predecessor, Aosawa-chan.
+　Given that Arimura-chan had originally been in the accounting department, she picked up the duties quite smoothly. Yet, at every opportunity, she made remarks that seemed conscious of her predecessor, Aozawa-chan.
 
 "It must be tough at first, so let's gradually increase your workload until you get used to it. Mitsuya-san and Seno-san, would you mind lending a hand for a while?"
 
 Even though Manager Yamazato kindly offered this,
 
-"No, I'd be perfectly happy with the same workload as Aosawa-san."
+"No, I'd be perfectly happy with the same workload as Aozawa-san."
 
 She said this with her large eyes wide open, so Seno-san and I exchanged glances without speaking.
 
 On the usual rooftop, feeling the soft autumn breeze, I sighed.
 
-"She's not a bad kid, but I think she could use a bit more flexibility. I can only see her self-destructing. Do you really think it's okay to hand over all the work Aosawa-chan was doing? What do you think?"
+"She's not a bad kid, but I think she could use a bit more flexibility. I can only see her self-destructing. Do you really think it's okay to hand over all the work Aozawa-chan was doing? What do you think?"
 
 "Well, I don't know. If Manager Yamazato says it's fine, we've got no choice but to follow it. Even if we wanted to support her, she'd probably brush us off, given the way she is."
 

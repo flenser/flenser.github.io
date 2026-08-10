@@ -12,56 +12,56 @@ A Friday evening when the autumn breeze felt pleasantly cool.
 
 To celebrate the huge success of the large resort hotel that had finally opened this summer, a celebratory party was held at our company hotel's beer garden.
 
-At the table were me, Seno-san, and Aosawa-chan.
+At the table were me, Seno-san, and Aozawa-chan.
 
 Getting the chance to drink with my cute junior colleague after so long made me feel like all my daily worries might just vanish.
 
-"Right then, Aosawa-chan, cheers!"
+"Right then, Aozawa-chan, cheers!"
 
-When I offered my beer mug, Aosawa-chan modestly presented her lemon sour mug.\
+When I offered my beer mug, Aozawa-chan modestly presented her lemon sour mug.\
 Seeing her sip her lemon sour slowly, I smiled faintly.
 
-Aosawa-chan is adorable.\
+Aozawa-chan is adorable.\
 Unlike Seno-san, her expressions change clearly and rapidly.
 
-　Though Seno-san sometimes teased Aosawa-chan, seeming to enjoy her flustered reactions, I thought I understood that feeling a little.
+　Though Seno-san sometimes teased Aozawa-chan, seeming to enjoy her flustered reactions, I thought I understood that feeling a little.
 
 I couldn't leave her flustered like that, so I always ended up coming to her rescue.
 
-That same Aosawa-chan had been popular within her previous company too, always attracting attention.\
+That same Aozawa-chan had been popular within her previous company too, always attracting attention.\
 So I'd always found it strange she didn't have a boyfriend...
 
-　When Seno-san shifted the topic to the diamond necklace glinting on Aosawa-chan's chest, she flushed bright red and looked embarrassed.
+　When Seno-san shifted the topic to the diamond necklace glinting on Aozawa-chan's chest, she flushed bright red and looked embarrassed.
 
-It seemed I'd finally learned that Aosawa-chan's love had blossomed.
+It seemed I'd finally learned that Aozawa-chan's love had blossomed.
 
 Just what sort of person was her boyfriend?
 
 A lover who could casually gift such an expensive necklace must be incredibly wealthy.\
 　He must fit perfectly to the very image of the 'ideal lover' that Seno-san so desperately craves.
 
-"Aosawa-chan... perhaps she really was born under a star that attracts wealthy suitors,"
+"Aozawa-chan... perhaps she really was born under a star that attracts wealthy suitors,"
 
-I murmured softly, gazing at the bashful Aosawa-chan.
+I murmured softly, gazing at the bashful Aozawa-chan.
 
-I've never seen Aosawa-chan's boyfriend, but I imagine he must be someone who truly cherishes her.
+I've never seen Aozawa-chan's boyfriend, but I imagine he must be someone who truly cherishes her.
 
-　Seeing Aosawa-chan so happy sometimes makes my chest ache as if it's being squeezed tight.
+　Seeing Aozawa-chan so happy sometimes makes my chest ache as if it's being squeezed tight.
 
 Ah, how envious I am.\
 I too, wanted to experience a love like that.
 
-"Are there other rich men who fancy Aosawa-san?"
+"Are there other rich men who fancy Aozawa-san?"
 
 Seno-san said this while taking a sip from his beer mug.
 
-"Ever since her last company, Aosawa-chan's been constantly pursued by Niiyama-kun."
+"Ever since her last company, Aozawa-chan's been constantly pursued by Niiyama-kun."
 
 Niiyama-kun is a male employee in the production department. He's a year older than me, but we often bumped into each other in the smoking area and became friends.
 
 He's slim and tall, and while he's certainly not unpopular, he's the type who aims too high and ends up with unrequited love.
 
-　Despite being completely ignored, he'd been pestering Aosawa-chan for ages.\
+　Despite being completely ignored, he'd been pestering Aozawa-chan for ages.\
 From her attitude, I'd always sensed she wasn't keen on him.
 
 "Niiyama-san? From Production? He's rich, then?"
@@ -72,7 +72,7 @@ In that instant, something stirred deep within my chest.\
 Again. As if a sudden sandstorm had blown in, my heart was thrown into turmoil, leaving me utterly helpless.\
 I felt irritated, as if a fire had suddenly ignited within me. I didn't even want to know why.
 
-"Ah... I heard he's a landowner's son. What, are you interested? If so, why not just ask him out? Aosawa-chan doesn't seem interested in Shinzan-kun anyway, so wouldn't you make a good match?"
+"Ah... I heard he's a landowner's son. What, are you interested? If so, why not just ask him out? Aozawa-chan doesn't seem interested in Shinzan-kun anyway, so wouldn't you make a good match?"
 
 I realised I'd spoken sharply, but it was too late.
 
@@ -88,7 +88,7 @@ I know. Our relationship is nothing but a fling. I knew from the start that clea
 
 Knowing that, I still went along with his invitation. I understand we're both to blame.
 
-Over Aosawa-chan's shoulder, I saw Niiyama-kun heading this way.
+Over Aozawa-chan's shoulder, I saw Niiyama-kun heading this way.
 
 "Well, speak of the devil."
 
@@ -96,7 +96,7 @@ Why am I so furious now?
 
 　After Niiyama-kun sat down, I took my cigarette and stood up.
 
-After telling him to stop messing with Aosawa-chan already, I blurted out something I didn't even mean: "If you're going to flirt, you should stick to Seno-san."
+After telling him to stop messing with Aozawa-chan already, I blurted out something I didn't even mean: "If you're going to flirt, you should stick to Seno-san."
 
 ＊＊＊
 
@@ -148,10 +148,10 @@ It's always like this. We always end up arguing and fighting like this, only to 
 
 "Right then, I'll be off this way. Mitsuya-san, Seno-san, thank you for your hard work today."
 
-Aosawa-chan gave me a concerned look.\
+Aozawa-chan gave me a concerned look.\
 　To be causing even my juniors worry... I really am hopeless lately.
 
-"Yeah, Aosawa-chan, good work."
+"Yeah, Aozawa-chan, good work."
 
 She seemed to have plans with her boyfriend later, so I waved at her retreating back as she hurried towards the station.\
 Her single-minded devotion to love seemed dazzlingly bright to me right now.
@@ -173,10 +173,10 @@ I stared intently at her face, still sulking with that cold, displeased look.
 
 Where on earth did she get that idea?
 
-I know Niiyama-kun had his eye on Aosawa-chan from the moment she joined the company, and he even came to me for advice about it. —Though I just brushed it off, of course.
+I know Niiyama-kun had his eye on Aozawa-chan from the moment she joined the company, and he even came to me for advice about it. —Though I just brushed it off, of course.
 
 To begin with, my looks aren't really the type Niiyama-kun would go for.\
-Flattery aside, I'm not what you'd call a 'cute face' like Aosawa-chan or you.
+Flattery aside, I'm not what you'd call a 'cute face' like Aozawa-chan or you.
 
 　My narrow eyes seem so sharp that people meeting me for the first time often mistake my gaze for a glare, and that’s been a complex of mine since my school days.
 
@@ -211,17 +211,17 @@ Even after eating ramen, we didn't go our separate ways.
 　Naturally, she followed me home, and I didn't point it out.\
 No words were needed; a glance was enough. Even if I couldn't fathom her innermost thoughts, this much I understood.
 
-"...Aosawa-san, is she the type who gets spoiled?"
+"...Aozawa-san, is she the type who gets spoiled?"
 
 Just as I returned from the balcony and flung my cigarette packet onto the bedside table, Seno-san, lying completely naked on my bed, murmured.
 
-"...What, all of a sudden? Ah, you mean that thing you mentioned today about Aosawa-chan's boyfriend?"
+"...What, all of a sudden? Ah, you mean that thing you mentioned today about Aozawa-chan's boyfriend?"
 
 "It's enviable, isn't it? Maybe it's that lack of greed that's appealing. Pure, and cute. Why wasn't I ever liked by rich men? I suppose they see right through me... the ulterior motives..."
 
 I couldn't help but laugh. "Ulterior motives," huh. Well, maybe there is something to that.
 
-　Seno-san has a childish face, the kind that's generally considered cute. But her eyes hold a ferocity too, different from Aosawa-chan's.\
+　Seno-san has a childish face, the kind that's generally considered cute. But her eyes hold a ferocity too, different from Aozawa-chan's.\
 A strength of spirit seeps from those eyes, impossible to mask with her soft features or gentle tone.
 
 "...If you want money that badly, why not try sugar daddy dating? It's all the rage these days."
@@ -287,16 +287,16 @@ Huh. Is that how it is?
 
 "I don’t really know. I’ve only ever been with you when it comes to women."
 
-"Well, yes. Take Aosawa-san, for example. She’s rather cat-like, isn’t she? You can’t imagine her being held, can you? So if it were her..."
+"Well, yes. Take Aozawa-san, for example. She’s rather cat-like, isn’t she? You can’t imagine her being held, can you? So if it were her..."
 
-"Huh? Wait a minute, are you looking at Aosawa-chan like that? That's disgusting, stop it, she's my cute junior!"
+"Huh? Wait a minute, are you looking at Aozawa-chan like that? That's disgusting, stop it, she's my cute junior!"
 
 I bristled, forgetting how I'd imagined it myself just the other day.\
-I wanted her to stop looking at pure, innocent-looking Aosawa-chan "like that".
+I wanted her to stop looking at pure, innocent-looking Aozawa-chan "like that".
 
 I recalled her earnest figure hurrying off to her boyfriend. I must protect that girl with all my might, so she doesn't fall prey to this woman's venom.
 
-"It was just a hypothetical example, don't get angry. Besides, I don't think I could ever get a girl like Aosawa-san."
+"It was just a hypothetical example, don't get angry. Besides, I don't think I could ever get a girl like Aozawa-san."
 
 "Is that so?"
 

@@ -187,7 +187,7 @@ At that, Seno-san laughed out loud.
 
 "I really don't see eye to eye with sports club types."
 
-"Watching baseball is fun, you know? You can have a beer too. Let's go together sometime, invite Aosawa-chan and all."
+"Watching baseball is fun, you know? You can have a beer too. Let's go together sometime, invite Aozawa-chan and all."
 
 I forced the conversation off track, but Seno-san's words had struck deep within me.
 

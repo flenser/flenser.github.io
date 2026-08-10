@@ -26,13 +26,13 @@ When I asked, Seno-san pointed to the bottle on the dressing table.
 
 "That one. The bottle with the black cap. If you like it, you can use it too, Kaori."
 
-"...Nah, it's fine. I got a bit flustered when Aosawa-chan pointed it out before."
+"...Nah, it's fine. I got a bit flustered when Aozawa-chan pointed it out before."
 
 "Pointed out what?"
 
 "She asked what perfume I was wearing. I don't wear perfume, so it was probably yours rubbing off... I couldn't answer and just ran off. I panicked thinking what if she found out."
 
-"If it was Aosawa-san, I wouldn't mind if she found out, you know. But if you don't like it, Kaori, the scent might transfer, so maybe you shouldn't get too close?"
+"If it was Aozawa-san, I wouldn't mind if she found out, you know. But if you don't like it, Kaori, the scent might transfer, so maybe you shouldn't get too close?"
 
 I chased after Seno-san, who had slipped away from my arm.\
 Reaching the living room, the smell of grilled fish hit me, and I stared blankly at Seno-san.

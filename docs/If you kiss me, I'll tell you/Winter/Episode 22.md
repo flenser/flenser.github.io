@@ -160,7 +160,7 @@ Could she possibly have a crush on... Niiyama-kun?
 
 His family is loaded. He fits Seno-san's criteria perfectly. But.
 
-"Don't do it. You two would never get along. Niiyama-kun was after Aosawa-chan the whole time before."
+"Don't do it. You two would never get along. Niiyama-kun was after Aozawa-chan the whole time before."
 
 "I know. Actually, weren't you trying to set me up with Niiyama-san before? What's changed now?"
 
