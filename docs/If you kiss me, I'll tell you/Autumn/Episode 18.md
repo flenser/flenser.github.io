@@ -12,11 +12,11 @@ Sitting side by side with Kurosaki-kun at the cramped counter of an old oden pub
 
 "Did you do similar work at your previous company, Mitsuya-san?"
 
-"Yeah, I was in the management team. I was Aosawa-chan's mentor. Impressive, right?"
+"Yeah, I was in the management team. I was Aozawa-chan's mentor. Impressive, right?"
 
-"'Aosawa-chan'... Ah, the secretary? She's cute, isn't she? Like an idol."
+"'Aozawa-chan'... Ah, the secretary? She's cute, isn't she? Like an idol."
 
-"Aosawa-chan's got a boyfriend, so even if you tried, it wouldn't work. Too bad for you."
+"Aozawa-chan's got a boyfriend, so even if you tried, it wouldn't work. Too bad for you."
 
 "I wasn't trying!"
 
@@ -46,7 +46,7 @@ Suddenly confronted with that reality, I felt utterly crushed.
 While nodding along to Kurosaki-kun's cheerful chatter, my mind was far away, elsewhere entirely.
 
 The cramped, bustling counter. The lively shop filled with salarymen's complaints flying about.\
-　A place like this, Seno-san would be furious if I brought his here. But surely, after just one bite, she'd say it. "It's surprisingly good," she'd say.
+　A place like this, Seno-san would be furious if I brought her here. But surely, after just one bite, she'd say it. "It's surprisingly good," she'd say.
 
 If only I'd taken her to more places like this.\
 After work, drinking, having sex on a whim, it didn't have to be just that. There were so many things we could have done to get to know each other more deeply.
@@ -209,7 +209,7 @@ Surely Seno-san, too, must want to live protected like this, as a matter of cour
 
 —You should face your own feelings more simply. If you like her, then like her. What's wrong with that?
 
-Aosawa-chan's words pierced deep into my chest and wouldn't budge.\
+Aozawa-chan's words pierced deep into my chest and wouldn't budge.\
 I felt like making one last desperate attempt. One more time... just this once.
 
 Clutching Kurosaki-kun's strong arms, I kept thinking only about that.

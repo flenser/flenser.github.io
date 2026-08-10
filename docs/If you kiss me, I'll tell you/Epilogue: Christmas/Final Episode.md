@@ -267,12 +267,12 @@ I stroked her lips with my thumb as she frowned in disgust.
 I gave a wry smile at her sceptical gaze. She seemed to have seen through me, but I pretended not to notice and brushed it off.
 
 　The rooftop door clicked open.\
-I glanced over to see Aosawa-chan pop her head through. Paper bag in hand, she approached with a smile.\
+I glanced over to see Aozawa-chan pop her head through. Paper bag in hand, she approached with a smile.\
 She mentioned going back to England for a visit... souvenirs, perhaps?
 
 "Good afternoon, Mitsuya-san, Seno-san."
 
-"Oh, Aosawa-chan! What brings you here?"
+"Oh, Aozawa-chan! What brings you here?"
 
 I'd forgotten to ask about the assistant manager role, but I could always ask her on the way back.
 
@@ -307,7 +307,7 @@ Japan would be fine, but overseas would be better. She said she'd never been abr
 
 "...Neither can I."
 
-"For someone with such a fancy degree! Aosawa-chan can speak it, can't she?"
+"For someone with such a fancy degree! Aozawa-chan can speak it, can't she?"
 
 "You've got some nerve saying that, putting yourself on a pedestal. Before we even talk about degrees, that girl's a returnee!"
 
@@ -340,9 +340,9 @@ When I whinged like that, Seno-san laughed heartily, ahaha, and I couldn't help 
 
 　Then summer arrived in the blink of an eye. Manager Yamazato went on maternity leave, and my girlfriend changed roles from colleague to boss.
 
-Actually, President Ichinose had stepped down a little while before. When she returned to the parent company, my comfort, Aosawa-chan, left the company with her.
+Actually, President Ichinose had stepped down a little while before. When she returned to the parent company, my comfort, Aozawa-chan, left the company with her.
 
-Aosawa-chan made a huge career leap. As her former trainer, I'm chuffed to bits. Thanks for the bragging rights that'll last me a lifetime.
+Aozawa-chan made a huge career leap. As her former trainer, I'm chuffed to bits. Thanks for the bragging rights that'll last me a lifetime.
 
 　A new president arrived, and the company atmosphere changed slightly.\
 But the corporate culture President Ichinose built remains deeply ingrained here, still present today.

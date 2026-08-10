@@ -4,9 +4,9 @@ layout: episode
 nav_order: 60
 parent: Autumn
 sequence: 13
-title: 'Episode 13: When Mitsuya-san and Aosawa-san arrived, I despaired'
+title: 'Episode 13: When Mitsuya-san and Aozawa-san arrived, I despaired'
 ---
-Episode 13: When Mitsuya-san and Aosawa-san arrived, I despaired
+Episode 13: When Mitsuya-san and Aozawa-san arrived, I despaired
 
 Friday, with my trip home imminent. Arriving at work, she, who should always be seated opposite me, was nowhere to be seen.
 
@@ -46,10 +46,10 @@ It was only natural, of course, but being confronted with that fact now made my 
 At the same time, a flicker of unease crossed my mind.\
 This was troublesome. With Seno-san absent and us currently handling a new recruit, would we manage this month's workload?
 
-　When Aosawa-chan left, it hit me hard too, but I managed because she was there.\
+　When Aozawa-chan left, it hit me hard too, but I managed because she was there.\
 But now, just the two of us – me and the new recruit, Arimura-chan – covering Seno-san's workload too... I'm not very confident we can manage it.
 
-"Um, Manager Yamazato. Could we perhaps ask Aosawa-chan for support? Even just for the closing period?"
+"Um, Manager Yamazato. Could we perhaps ask Aozawa-chan for support? Even just for the closing period?"
 
 I recalled the face of my lovely junior colleague, who'd left the Budget Management Department and was now working hard as the President's secretary.\
 　It was a shot in the dark. If she could help, it would ease my mind a little...
@@ -60,7 +60,7 @@ Then, before Manager Yamazato could respond, Arimura-chan suddenly spoke up.
 
 My jaw dropped.
 
-I knew Arimura-chan was conscious of her predecessor, Aosawa-chan.\
+I knew Arimura-chan was conscious of her predecessor, Aozawa-chan.\
 I regretted mentioning her name now, belatedly.
 
 　I'd heard Arimura-chan had been persistently requesting a transfer from the Accounting Department to the Budget Management Department for quite some time, and I thought her enthusiasm was commendable.\
@@ -75,7 +75,7 @@ I tried to sound as gentle and teasing as possible, but Arimura-chan, the one it
 
 At this, even Manager Yamazato, usually so composed, scratched her cheek in exasperation.
 
-"Arimura-san, I'm truly grateful for your offer, but it's a bit unrealistic, I'm afraid. Still, asking Aosawa-san for support might be difficult too... I'll check with my husband if he could take over picking up the children. It might be hard to manage every day, but... I'm really sorry."
+"Arimura-san, I'm truly grateful for your offer, but it's a bit unrealistic, I'm afraid. Still, asking Aozawa-san for support might be difficult too... I'll check with my husband if he could take over picking up the children. It might be hard to manage every day, but... I'm really sorry."
 
 Manager Yamazato said that, but I felt reluctant to burden her, especially as she was already on reduced hours. So, for the time being, Seno-san's duties were divided between Arimura-san and myself.
 
@@ -99,7 +99,7 @@ It was already past eight o'clock. Before I knew it, only Arimura-chan and I rem
 Without looking up from the monitor, Arimura-chan cut me off decisively.
 
 How unappealing.\
-If it were Aosawa-chan, she'd probably look apologetic and just say, "Please help me."\
+If it were Aozawa-chan, she'd probably look apologetic and just say, "Please help me."\
 Even Seno-san would surely ask for help if she couldn't finish.
 
 "Arimura-chan, you know, you don't have to push yourself. Seno-san's really good at this kind of checking work, and she was handling the most areas. Even if it's only half, it must be pretty tough, right?"
@@ -117,9 +117,9 @@ Well, to be honest, I too thought Seno-san lacked motivation at first, so I'm ha
 
 When I asked that, Arimura-chan looked up from her monitor and shook her head from side to side.
 
-"No. It's not that I disliked the Accounting Section. ...The reason I wanted to transfer to the Budget Management Section was because I wanted to work under Manager Yamazato. She's on the fast track to promotion, isn't she? Ever since meeting her at the company briefing, she's been my idol. That's why I was so envious of Mitsuya-san and Aosawa-san. I'd been hoping for Budget Management all along, but there was no sign of a transfer... When Mitsuya-san and Aosawa-san arrived, I felt utterly hopeless."
+"No. It's not that I disliked the Accounting Section. ...The reason I wanted to transfer to the Budget Management Section was because I wanted to work under Manager Yamazato. She's on the fast track to promotion, isn't she? Ever since meeting her at the company briefing, she's been my idol. That's why I was so envious of Mitsuya-san and Aozawa-san. I'd been hoping for Budget Management all along, but there was no sign of a transfer... When Mitsuya-san and Aozawa-san arrived, I felt utterly hopeless."
 
-　So that's why you were so openly hostile towards Aosawa-chan. She suddenly appeared and snatched the chair I'd been hoping for.\
+　So that's why you were so openly hostile towards Aozawa-chan. She suddenly appeared and snatched the chair I'd been hoping for.\
 I see. So you're the type who lives for work, Arimura-chan.
 
 "I envied Seno-san too. I kept thinking, if you're not motivated, I wish you'd let someone else take your place."

@@ -119,7 +119,7 @@ Ever since, it’s as if a sandstorm rages in my brain, clouding my thoughts.
 　If I could go back to that night, I'd never have accepted this woman's invitation.\
 Had I held back then, my heart wouldn't be in such turmoil now.
 
-"...What do you think, Kaori? About Aosawa-san's secretary position?"
+"...What do you think, Kaori? About Aozawa-san's secretary position?"
 
 The sudden mention of my cute junior colleague's name made me instantly understand why this woman had come to me.
 
@@ -137,24 +137,24 @@ She said the President's reaction hadn't been very positive, her shoulders slump
 
 "That thing."
 
-Seno-san seemed quite concerned about the rather reckless advice she'd apparently given Aosawa-chan: "Pretend you like her and barge into the president's office every day to launch a full-on offensive." It was the sort of suggestion that could easily backfire spectacularly.
+Seno-san seemed quite concerned about the rather reckless advice she'd apparently given Aozawa-chan: "Pretend you like her and barge into the president's office every day to launch a full-on offensive." It was the sort of suggestion that could easily backfire spectacularly.
 
-"You didn't mean that as a joke, did you? I think Aosawa-chan took it seriously."
+"You didn't mean that as a joke, did you? I think Aozawa-chan took it seriously."
 
 Though I doubted it, I peered at Seno-san's face. She awkwardly averted her gaze.
 
-"The president's always so calm. I've never seen her angry, so I think it'll be fine... but maybe I pushed Aosawa-san too hard?"
+"The president's always so calm. I've never seen her angry, so I think it'll be fine... but maybe I pushed Aozawa-san too hard?"
 
-　It was surprising she'd made a joke, but knowing this woman cared about Aosawa-chan in her own way made my shoulders relax a little.
+　It was surprising she'd made a joke, but knowing this woman cared about Aozawa-chan in her own way made my shoulders relax a little.
 
-"Well... she'll be fine. I don't think she'll do anything foolish. She's brilliant. But... if she gets in, I'll miss her. I've always looked after Aosawa-chan, you see."
+"Well... she'll be fine. I don't think she'll do anything foolish. She's brilliant. But... if she gets in, I'll miss her. I've always looked after Aozawa-chan, you see."
 
-The year since Aosawa-chan joined the company has been nothing but fun.\
+The year since Aozawa-chan joined the company has been nothing but fun.\
 We went out for lunch together every day, grabbed drinks after work—she was a special junior colleague to me.
 
-"Hmm. You're rather taken with her, aren't you? Kaori is certainly very kind to Aosawa-san. Not to me at all, mind. Is that the sort you fancy?"
+"Hmm. You're rather taken with her, aren't you? Kaori is certainly very kind to Aozawa-san. Not to me at all, mind. Is that the sort you fancy?"
 
-"...Just so you know, there's absolutely no ulterior motive here. More importantly, you absolutely mustn't make a move on Aosawa-chan."
+"...Just so you know, there's absolutely no ulterior motive here. More importantly, you absolutely mustn't make a move on Aozawa-chan."
 
 "I wouldn't dream of it. Besides, she's already got someone, hasn't she?"
 
@@ -170,4 +170,4 @@ I absentmindedly pinched my own ear, and Seno-san laughed, saying, "That's not w
 
 　In the end, because Seno-san acted as if she wasn't bothered at all about that day, I completely missed my chance to bring it up. Now, I couldn't very well grill her about what she was playing at... Before I knew it, proper summer had arrived.
 
-And finally, my beloved junior, Aosawa-chan, secured the position she'd hoped for as the president's secretary. It was decided she would be leaving our Budget Management Department.
+And finally, my beloved junior, Aozawa-chan, secured the position she'd hoped for as the president's secretary. It was decided she would be leaving our Budget Management Department.

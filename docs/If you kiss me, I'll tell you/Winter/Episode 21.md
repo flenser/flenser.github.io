@@ -14,7 +14,7 @@ First thing in the morning, I was called over by Niiyama-kun who said he needed 
 "...I don't know. I've never asked about likes or dislikes."
 
 With Christmas approaching and him clearly in high spirits, he'd apparently decided this was his moment to act.\
-Just like with Aosawa-chan before, Niiyama-kun possesses that tenacity to keep asking even after repeated rejections.
+Just like with Aozawa-chan before, Niiyama-kun possesses that tenacity to keep asking even after repeated rejections.
 
 "Well then, any recommendations for places women might like?"
 

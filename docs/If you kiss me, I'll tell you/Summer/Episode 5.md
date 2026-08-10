@@ -9,12 +9,12 @@ Episode 5: How Foolish I Was to Expect Anything from Kaori
 
 It was a long time ago now, but there was someone I had feelings for, entirely one-sided.
 
-He was a senior in the athletics club. Seeing her run faster and more beautifully than anyone else, like the wind itself, stole my heart at first sight.
+He was a senior in the athletics club. Seeing him run faster and more beautifully than anyone else, like the wind itself, stole my heart at first sight.
 
-her neatly cropped, refreshing hair and her bold, handsome brows.\
-And her lean, sculpted physique, stripped down to the bare essentials. her sun-kissed skin.
+His neatly cropped, refreshing hair and his bold, handsome brows.\
+And his lean, sculpted physique, stripped down to the bare essentials. his sun-kissed skin.
 
-　At first, just watching her from afar was enough. But as I spent more time near her, the desire to become special to her grew within me.
+　At first, just watching him from afar was enough. But as I spent more time near him, the desire to become special to him grew within me.
 
 The flame of love born from admiration is relentless and troublesome.
 
@@ -76,7 +76,7 @@ Sitting at the desk opposite mine, she always seemed listless and lacking in mot
 
 Yet her work was always meticulous, frighteningly free of mistakes and precise.
 
-　When Aosawa-chan and I were assigned to this department, the two original employees were transferred in a domino effect and even gained positions.
+　When Aozawa-chan and I were assigned to this department, the two original employees were transferred in a domino effect and even gained positions.
 
 I’d assumed Seno-san was the only one left behind because she lacked motivation.
 
@@ -85,12 +85,12 @@ But I was wrong.
 Our manager, Yamazato-san, placed absolute trust in Seno-san's work ethic. Observing her closely, it was easy to see that Yamazato-san probably didn't want to let Seno-san go.\
 Despite her appearance, her work was extremely diligent and meticulous. Yet when it came to romantic relationships, she was so unrestrained it made one wonder if she'd lost her marbles. Why was that?
 
-　With Aosawa-chan gone, the empty seat beside me feels strangely lonely.\
+　With Aozawa-chan gone, the empty seat beside me feels strangely lonely.\
 It was always a compact team of just four people. I'd naively assumed any vacancy would be filled promptly.
 
 But that prediction proved wrong; even after two weeks, the empty chair remained unfilled.
 
-"I thought Aosawa-chan's replacement would be sorted straight away. Could it be we won't have anyone until the autumn reshuffle?"
+"I thought Aozawa-chan's replacement would be sorted straight away. Could it be we won't have anyone until the autumn reshuffle?"
 
 I asked Seno-san, who was drinking iced coffee beside me as I puffed out cigarette smoke on the rooftop.
 
@@ -98,7 +98,7 @@ Somehow, Seno-san had started coming up to the rooftop like this occasionally, e
 
 "Well, I don't know. If they find someone who meets Manager Yamazato's standards, I reckon they'll assign them straight away... but they've been having multiple interviews with the HR Manager, so it might still be a while?"
 
-The work Aosawa-chan had been handling was temporarily split between Seno-san and me.
+The work Aozawa-chan had been handling was temporarily split between Seno-san and me.
 
 　Manager Yamazato couldn't work overtime due to her reduced hours. At four o'clock sharp, she'd bow apologetically, explaining she needed to pick up her child, and hurry home.
 
@@ -229,7 +229,7 @@ After thoroughly polishing off my top recommendation – rich dried sardine rame
 
 That makes sense. Working overtime on a Friday night like this clearly means she doesn't have time to go out drinking like she used to.
 
-"Well, just a little longer. Let's stick it out together until Aosawa-chan's replacement arrives."
+"Well, just a little longer. Let's stick it out together until Aozawa-chan's replacement arrives."
 
 "Yeah, I suppose. But if I don't go out for drinks at least once a week, I really can't shake off the fatigue... Oh, wait! Hey, Kaori. Since we're here, why don't you come over to mine for drinks tonight?"
 

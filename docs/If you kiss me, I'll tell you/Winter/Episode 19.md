@@ -114,10 +114,10 @@ Seeing me with my head bowed, Seno-san gave a gentle smile. The sharpness from e
 "Well, even though they're family, they're separate people, aren't they? It might be complicated for you, Kaori, but your parents must be delighted. Every parent imagines seeing their child as a bride, don't they?"
 
 A bride. As long as I can't quite give up on you, I don't think I could show my parents that sight.\
-But Yū's marriage might have eased my mind a bit.\
-If they say anything, I feel like I can dodge it by saying, "Well, Yū got married, so it's fine for me now, right? Please stop expecting anything."
+But Yu's marriage might have eased my mind a bit.\
+If they say anything, I feel like I can dodge it by saying, "Well, Yu got married, so it's fine for me now, right? Please stop expecting anything."
 
-"Well, I suppose I can just think of it as them being taken care of instead... Yū said she wanted children, so I hope they have them soon and distract Mum and Dad."
+"Well, I suppose I can just think of it as them being taken care of instead... Yu said she wanted children, so I hope they have them soon and distract Mum and Dad."
 
 "Don't you want children, Kaori?"
 

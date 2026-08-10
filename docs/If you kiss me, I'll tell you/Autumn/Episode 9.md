@@ -31,9 +31,9 @@ Even as I said it, I could easily picture Seno-san frowning angrily, and I felt 
 
 　I'm getting to know her so well now that I can easily predict her reaction to anything I say.
 
-"More importantly... Niiyama-kun, have you given up on Aosawa-chan?"
+"More importantly... Niiyama-kun, have you given up on Aozawa-chan?"
 
-Ever since Aosawa-chan joined the company as a new graduate, Niiyama-kun had been after her.\
+Ever since Aozawa-chan joined the company as a new graduate, Niiyama-kun had been after her.\
 Honestly, I thought it was reckless, but I never imagined he'd switch targets so easily.
 
 "Well, she said she'd got a boyfriend."
@@ -132,7 +132,7 @@ If she could make me do just one thing, what on earth would she want from me?
 
 The thought alone is terrifying.
 
-If I can't beat him with skill, I'll have to resort to psychological warfare.\
+If I can't beat her with skill, I'll have to resort to psychological warfare.\
 But I can't think of any topic that might slow her down, then suddenly, I remembered what happened at lunch today.
 
 "Come to think of it... Niiyama-kun asked me what kind of guy you like."
@@ -199,7 +199,7 @@ I didn't want to allow intrusion into the softest parts of my heart. It was my l
 
 I'm not as experienced in playing around as you are, so I can't just compartmentalise this as purely physical.
 
-　If we touched like that, I, I’d surely end up wanting more from her than just a colleague, more than just a fuck buddy.
+　If we touched like that, I... I’d surely end up wanting more from her than just a colleague, more than just a fuck buddy.
 
 The thought terrified me, utterly terrified me.
 

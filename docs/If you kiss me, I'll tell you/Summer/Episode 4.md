@@ -7,54 +7,54 @@ title: "Episode 4: I'll definitely make you pay for today's taxi fare later"
 ---
 Episode 4: I'll definitely make you pay for today's taxi fare later
 
-"Right then, to celebrate Aosawa-san becoming the secretary... Cheers!"
+"Right then, to celebrate Aozawa-san becoming the secretary... Cheers!"
 
 At Manager Yamazato's toast, glasses clinked in unison.
 
-Today was both Aosawa-chan's farewell party and a celebration for her becoming the president's secretary. This was the first time the Budget Management Department members had gone out drinking together.
+Today was both Aozawa-chan's farewell party and a celebration for her becoming the president's secretary. This was the first time the Budget Management Department members had gone out drinking together.
 
 　They downed their mugs as if to wash away the day's fatigue, pouring beer straight into their stomachs.
 
-"It's wonderful news, but I'll miss being around Aosawa-chan."
+"It's wonderful news, but I'll miss being around Aozawa-chan."
 
 Sure, they'd still be on the same floor and could see each other anytime, but not being able to grab lunch together or pop out for drinks after work like before would be terribly lonely.\
-　Aosawa-chan was my little ray of sunshine, you know.\
+　Aozawa-chan was my little ray of sunshine, you know.\
 I gazed at the face of my cute junior sitting opposite, feeling it deeply.
 
-Seno-san, sitting next to me, picked a piece of yakitori off its skewer, glanced at Aosawa-chan, and murmured.
+Seno-san, sitting next to me, picked a piece of yakitori off its skewer, glanced at Aozawa-chan, and murmured.
 
-"Still, it's really impressive, isn't it? How on earth did she charm the president? Does Aosawa-san seem quiet but turn out to be surprisingly aggressive?"
+"Still, it's really impressive, isn't it? How on earth did she charm the president? Does Aozawa-san seem quiet but turn out to be surprisingly aggressive?"
 
 "Well, I just followed your advice, Seno-san, and kept visiting the president's office to show my enthusiasm..."
 
-"Hmm, I see. Still, I'm rather envious. You might have a knack for attracting wealthy people, Aosawa-san. I mean, the person you like is rich too, right? Or is he already your boyfriend?"
+"Hmm, I see. Still, I'm rather envious. You might have a knack for attracting wealthy people, Aozawa-san. I mean, the person you like is rich too, right? Or is he already your boyfriend?"
 
-　Seno-san grinned broadly as she fired off questions in rapid succession, pressing Aosawa-chan.
+　Seno-san grinned broadly as she fired off questions in rapid succession, pressing Aozawa-chan.
 
 Glancing sideways at them, I took a bite of my yakitori. I don't bother with fiddly things like taking it off the skewer. It's definitely tastier eaten straight off.
 
-"No, um, we're not lovers. I just... like him..."
+"No, um, we're not dating. I just... like them..."
 
-"Not lovers?　But come on, you always wear those earrings – it's definitely a present, right?"
+"Not dating?　But come on, you always wear those earrings – it's definitely a present, right?"
 
 Seno-san pointed at her own ear and laughed mockingly.\
-Only then did I understand what Seno-san had meant the other day when she said you could tell if Aosawa-chan had someone by "looking at her ears".
+Only then did I understand what Seno-san had meant the other day when she said you could tell if Aozawa-chan had someone by "looking at her ears".
 
 Ah, so that's what she was talking about – these earrings.
 
-Aosawa-chan had worn these white clover earrings ever since we first met.\
+Aozawa-chan had worn these white clover earrings ever since we first met.\
 　Peeking out occasionally from her fine, soft chestnut hair, it was like her trademark. I'd always assumed she just liked it so much she kept wearing the same pair.
 
 Oh, so it was a gift from someone she liked... Loyal, earnest, sweet. A world away from a certain someone.
 
-"Getting such an expensive present but not dating? Could he be married or something?　That's no good, you know. No affair business. Aosawa-san's so cute, it'd be a waste. Even if he's loaded, you won't be happy, so just leave it alone."
+"Getting such an expensive present but not dating? Could he be married or something?　That's no good, you know. No affair business. Aozawa-san's so cute, it'd be a waste. Even if he's loaded, you won't be happy, so just leave it alone."
 
 "Seno-san, come on, that's not possible, is it?"
 
-Aosawa-chan flushed and gave a troubled smile.\
-Seeing this, I felt Seno-san was enjoying teasing Aosawa-chan, so I couldn't stand by and watched. I reached out and gave Seno-san's ear a sharp pinch.
+Aozawa-chan flushed and gave a troubled smile.\
+Seeing this, I felt Seno-san was enjoying teasing Aozawa-chan, so I couldn't stand by and watched. I reached out and gave Seno-san's ear a sharp pinch.
 
-"Listen, don't bully Aosawa-chan like that."
+"Listen, don't bully Aozawa-chan like that."
 
 "Mitsuya-san, that hurts!"
 
@@ -101,14 +101,14 @@ When the two mugs arrived at the table, Seno-san plonked them down right in fron
 
 "Um... Mitsuya-san and Seno-san, are you both alright drinking that much?"
 
-Aosawa-chan, sitting opposite us, sipped her lemon sour cautiously while watching us with concern.\
+Aozawa-chan, sitting opposite us, sipped her lemon sour cautiously while watching us with concern.\
 Lately, I've been causing this cute junior nothing but worry.\
-　Aosawa-chan would subtly step in when Seno-san and I argued, acting as a buffer between us.
+　Aozawa-chan would subtly step in when Seno-san and I argued, acting as a buffer between us.
 
 "It's fine, it's fine. Don't worry."
 
 I repeated it, almost to myself.\
-Truthfully, I was anxious beyond belief. Without Aosawa-chan here, could I really get along with this bloke? Especially after what happened.
+Truthfully, I was anxious beyond belief. Without Aozawa-chan here, could I really get along with this bloke? Especially after what happened.
 
 　＊＊＊
 
@@ -128,10 +128,10 @@ When we finally caught up with the two who'd managed to leave the izakaya ahead 
 Manager Yamazato waved to us and left without a second thought.
 
 　No way, wait a minute... "Take her home"? You don't seriously expect me to take this girl home?\
-I couldn't help but glance at Aosawa-chan. She shook her head frantically from side to side.
+I couldn't help but glance at Aozawa-chan. She shook her head frantically from side to side.
 
 Well, I get it.\
-Aosawa-chan's place is in the opposite direction to Seno-san's, and honestly, leaving my cute junior alone with a drunk who could do God knows what...
+Aozawa-chan's place is in the opposite direction to Seno-san's, and honestly, leaving my cute junior alone with a drunk who could do God knows what...
 
 "Seno-san, come on, you can get home on your own, can't you? Stand up and walk yourself."
 
@@ -139,18 +139,18 @@ I grabbed her shoulders and shook her, but her body just wobbled limply. She was
 
 "Oh, for goodness' sake, Kaori, you're so annoying."
 
-Hearing my name, Kaori, I instinctively stopped shaking him.\
-This girl, of all people, in front of Aosawa-chan...
+Hearing my name, Kaori, I instinctively stopped shaking her.\
+This girl, of all people, in front of Aozawa-chan...
 
 "Um, Mitsuya-san. I don't think Seno-san can manage getting home alone..."
 
-I forced a smile for Aosawa-chan, who was watching me as if gauging my reaction.
+I forced a smile for Aozawa-chan, who was watching me as if gauging my reaction.
 
-"Ah, ahaha, you're right. Got it, leave it to me. You take care getting home, Aosawa-chan."
+"Ah, ahaha, you're right. Got it, leave it to me. You take care getting home, Aozawa-chan."
 
 "Yes, thank you."
 
-"Eh? Aosawa-san, you're leaving already? Oh, I see. That's a shame. Hey, let's go to one more place, Kao... Mmmph!"
+"Eh? Aozawa-san, you're leaving already? Oh, I see. That's a shame. Hey, let's go to one more place, Kao... Mmmph!"
 
 I covered Seno-san's mouth with my palm to cut her off. I couldn't have her spilling any more beans.
 
@@ -158,9 +158,9 @@ If she started hinting at what happened that night, my working life would be ove
 
 "Shut up. Please, don't say another word. You're far too drunk."
 
-I pushed Seno-san back, who was trying to mumble a complaint, and turned back to Aosawa-chan with a wry smile.
+I pushed Seno-san back, who was trying to mumble a complaint, and turned back to Aozawa-chan with a wry smile.
 
-Please, just go home quickly while I'm holding her down...! I conveyed this with my eyes alone. Aosawa-chan nodded once and waved goodbye to us.
+Please, just go home quickly while I'm holding her down...! I conveyed this with my eyes alone. Aozawa-chan nodded once and waved goodbye to us.
 
 　After somehow placating her and shoving her into the taxi despite her insistence on going to one more place, Seno-san, grumbling, gave the driver her home address.
 
