@@ -44,7 +44,7 @@ Seno-san clutched her forehead and protested sharply.
 
 Arimura-chan's words cut like a razor blade. There's absolutely no consideration for the person on the receiving end.\
 We've only been working together a week, so I want to avoid criticising her too much just yet.\
-But—can we really get along like this?
+But, can we really get along like this?
 
 　Glaring at Seno-san and me as we bickered,
 
@@ -115,7 +115,7 @@ Compared to Arimura-chan, I feel that even more.
 
 —Ah, I see. She thought I’d retort, so she stepped in to mediate? Well, well, she’s got a good side after all...
 
-"Of course I couldn’t snap back. I am her junior, after all."
+"Of course I couldn’t snap back. I am her senior, after all."
 
 "Hmm. How kind of you. Yet you always snap back at me. Do you actually prefer younger women, Kaori?"
 

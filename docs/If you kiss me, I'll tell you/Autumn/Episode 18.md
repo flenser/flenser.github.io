@@ -46,7 +46,7 @@ Suddenly confronted with that reality, I felt utterly crushed.
 While nodding along to Kurosaki-kun's cheerful chatter, my mind was far away, elsewhere entirely.
 
 The cramped, bustling counter. The lively shop filled with salarymen's complaints flying about.\
-　A place like this, Seno-san would be furious if I brought his here. But surely, after just one bite, she'd say it. "It's surprisingly good," she'd say.
+　A place like this, Seno-san would be furious if I brought her here. But surely, after just one bite, she'd say it. "It's surprisingly good," she'd say.
 
 If only I'd taken her to more places like this.\
 After work, drinking, having sex on a whim, it didn't have to be just that. There were so many things we could have done to get to know each other more deeply.

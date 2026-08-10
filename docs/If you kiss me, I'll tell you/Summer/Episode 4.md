@@ -33,9 +33,9 @@ Seno-san, sitting next to me, picked a piece of yakitori off its skewer, glanced
 
 Glancing sideways at them, I took a bite of my yakitori. I don't bother with fiddly things like taking it off the skewer. It's definitely tastier eaten straight off.
 
-"No, um, we're not lovers. I just... like him..."
+"No, um, we're not dating. I just... like them..."
 
-"Not lovers?　But come on, you always wear those earrings – it's definitely a present, right?"
+"Not dating?　But come on, you always wear those earrings – it's definitely a present, right?"
 
 Seno-san pointed at her own ear and laughed mockingly.\
 Only then did I understand what Seno-san had meant the other day when she said you could tell if Aozawa-chan had someone by "looking at her ears".
@@ -139,7 +139,7 @@ I grabbed her shoulders and shook her, but her body just wobbled limply. She was
 
 "Oh, for goodness' sake, Kaori, you're so annoying."
 
-Hearing my name, Kaori, I instinctively stopped shaking him.\
+Hearing my name, Kaori, I instinctively stopped shaking her.\
 This girl, of all people, in front of Aozawa-chan...
 
 "Um, Mitsuya-san. I don't think Seno-san can manage getting home alone..."

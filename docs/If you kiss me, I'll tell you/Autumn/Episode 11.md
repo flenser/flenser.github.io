@@ -145,7 +145,7 @@ Even though I know there's no point in keeping things vague and dragging it out.
 
 "Was he really that great? Still unforgettable?"
 
-"Nah? It's not like I can't forget her. I've had boyfriends since then."
+"Nah? It's not like I can't forget him. I've had boyfriends since then."
 
 "Oh... Hey, what kind of guy do you like, Kaori?"
 
@@ -194,13 +194,13 @@ Even as I said it, my own words felt unreliable and wavering.
 
 "...Why didn't it work out with your ex?"
 
-"...He earned less than me and had no savings. He changed jobs constantly, never sticking with anything long-term. If we'd just been dating, that might have been fine. He was incredibly kind, even if he had no money. But when he proposed... I realised marrying her would mean a lifetime of hardship. Suddenly, I felt completely calm. The wave just receded. Even though I'd loved her so much. ...Do you think I'm heartless?"
+"...He earned less than me and had no savings. He changed jobs constantly, never sticking with anything long-term. If we'd just been dating, that might have been fine. He was incredibly kind, even if he had no money. But when he proposed... I realised marrying him would mean a lifetime of hardship. Suddenly, I felt completely calm. The wave just receded. Even though I'd loved him so much. ...Do you think I'm heartless?"
 
 "...Isn't that normal? Nobody wants hardship."
 
 Just as I couldn't bring myself to acknowledge this feeling for so long. Being afraid of an uncertain future... that's only natural.
 
-"Kaori... you said before that you didn't mind if her income was lower than yours, didn't you?"
+"Kaori... you said before that you didn't mind if your partner's income was lower than yours, didn't you?"
 
 "Did I?"
 

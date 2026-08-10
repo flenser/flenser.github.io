@@ -190,7 +190,7 @@ Seno-san frowned angrily, so I gathered all my strength and delivered a fierce f
 
 "Ow! Hey, what are you doing?!"
 
-Shaking off her angry grip on my arm, I leaned in close, glaring at him.
+Shaking off her angry grip on my arm, I leaned in close, glaring at her.
 
 "Listen, there's no way I like Niiyama-kun. Don't say such nonsensical things. Enough already, let's just go. I'm starving. I didn't get to eat anything today."
 

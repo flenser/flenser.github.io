@@ -124,7 +124,7 @@ Aozawa-chan frowned.\
 She looked like she might say something like "You really shouldn't do that" at any moment.\
 　Well, that makes sense. She probably never imagined it would be Seno-san...
 
-"They didn't say it directly... but they've been saying things like that for a while... They lacks confidence, I suppose. Honestly, they don't really know what they wants or what they want to become."
+"They didn't say it directly... but they've been saying things like that for a while... They lack confidence, I suppose. Honestly, they don't really know what they wants or what they want to become."
 
 Even though I know I can't give Seno-san the "happiness" she seeks, why can't I bring myself to give up?
 
@@ -241,7 +241,7 @@ When those jet-black eyes fixed on me, my breath nearly stopped and I reflexivel
 
 "Hmm... What's your type, then?"
 
-"My preferences? Um..."
+"My type? Um..."
 
 Caught off guard by the sudden question, I couldn't hide my fluster. My type!? Why would she ask that? But the president's piercing gaze made me gasp.
 

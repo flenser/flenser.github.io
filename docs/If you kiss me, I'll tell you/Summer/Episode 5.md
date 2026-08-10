@@ -9,12 +9,12 @@ Episode 5: How Foolish I Was to Expect Anything from Kaori
 
 It was a long time ago now, but there was someone I had feelings for, entirely one-sided.
 
-He was a senior in the athletics club. Seeing her run faster and more beautifully than anyone else, like the wind itself, stole my heart at first sight.
+He was a senior in the athletics club. Seeing him run faster and more beautifully than anyone else, like the wind itself, stole my heart at first sight.
 
-her neatly cropped, refreshing hair and her bold, handsome brows.\
-And her lean, sculpted physique, stripped down to the bare essentials. her sun-kissed skin.
+His neatly cropped, refreshing hair and his bold, handsome brows.\
+And his lean, sculpted physique, stripped down to the bare essentials. his sun-kissed skin.
 
-　At first, just watching her from afar was enough. But as I spent more time near her, the desire to become special to her grew within me.
+　At first, just watching him from afar was enough. But as I spent more time near him, the desire to become special to him grew within me.
 
 The flame of love born from admiration is relentless and troublesome.
 
