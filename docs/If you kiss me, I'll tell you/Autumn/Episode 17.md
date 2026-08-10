@@ -124,7 +124,7 @@ Aozawa-chan frowned.\
 She looked like she might say something like "You really shouldn't do that" at any moment.\
 　Well, that makes sense. She probably never imagined it would be Seno-san...
 
-"They didn't say it directly... but they've been saying things like that for a while... They lack confidence, I suppose. Honestly, they don't really know what they wants or what they want to become."
+"They didn't say it directly... but they've been saying things like that for a while... They lack confidence, I suppose. Honestly, they don't really know what they want or what they want to become."
 
 Even though I know I can't give Seno-san the "happiness" she seeks, why can't I bring myself to give up?
 
