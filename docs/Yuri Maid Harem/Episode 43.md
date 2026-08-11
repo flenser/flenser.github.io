@@ -16,7 +16,7 @@ I'm lucky enough to keep having a steady stream of customers who come specifical
 
 There are other familiar faces in the crowd too. Even people who aren't specifically "my" regulars — you naturally start recognizing the faces of anyone who comes to Sweet Stella often.
 
-"Welcome home, Ojou-sama Maria."
+"Welcome home, Maria Ojou-sama."
 
 I hurried to her side and led her to a table.\
 Since she got here first, Maria gets the best seat up front, with the clearest view of the dance stage.
