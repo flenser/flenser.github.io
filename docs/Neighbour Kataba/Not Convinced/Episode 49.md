@@ -28,7 +28,7 @@ But it seemed to backfire. Fujishiro placed her hand over mine and smiled, delig
 "You can do more, if you want."\
 "You absolute pervert."\
 "Pervert's fine. Hey, if you're going to do it, strangle me with your own hand."\
-"Are you stupid."
+"Are you stupid?"
 
 She has a way of letting whatever I say slide right past her.\
 No matter how awful the thing I say, she never takes it seriously.
@@ -47,7 +47,7 @@ Thinking that her fate right now rested entirely in what I decided to do with my
 
 Squeezing her throat gently, the soft skin gave under my fingers, and her pulse came through against them.
 
-Of course, this confirmed it, that Fujishiro was alive.
+It's obvious, of course, but this confirmed that Fujishiro was alive.
 
 "I like it when Morishita strangles me. It makes me feel like I'm alive."\
 "You're insane."\
