@@ -8,7 +8,7 @@ title: Episode 49
 ---
 Episode 49
 
-Why am I here, exactly.
+Why am I here, exactly?
 
 The girl in front of me was grinning, positively beaming, and had pulled me by the hand into the room without asking.
 
@@ -16,7 +16,7 @@ Today was only supposed to be studying, and yet Fujishiro was in regular clothes
 
 Well, I'd come in casual clothes myself, if I'm honest, and I'd even brazenly packed pyjamas for staying over.
 
-What was I even doing.\
+What was I even doing?\
 I'd been so firmly resolved not to come to Fujishiro's today.
 
 I wanted to smack my own weak-willed head, but having already come here, that seemed pointless, so I gave up and sat down at the desk.
