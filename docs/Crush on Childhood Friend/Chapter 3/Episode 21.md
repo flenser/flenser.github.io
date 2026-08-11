@@ -119,6 +119,6 @@ My heart gave an ugly, jarring lurch.\
 My throat tightened, and not a single word would come out.\
 Makina's straightforward gaze bore into me as I stayed silent, refusing to let me escape.
 
-"Just tell me properly. Why. Did I do something?"
+"Just tell me properly. Why? Did I do something?"
 
 Those words tore through the dark classroom, sharp enough to rip straight through my already breaking heart.
