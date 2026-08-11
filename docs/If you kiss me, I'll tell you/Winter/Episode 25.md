@@ -168,7 +168,7 @@ Whispered gently and softly in my ear, in a tone like she was talking to a child
 
 　I clung to her with trembling arms. The dull headache and ringing in my ears grew worse, but the overwhelming sweetness tormenting my entire body was unbearable. I shook my head from side to side repeatedly.
 
-As the alcohol broke down, her thoughts gradually sharpened and the drunkenness faded. Yet, in another sense, her body, feverishly consumed, was entirely at her mercy.
+As the alcohol broke down, my thoughts gradually sharpened and the drunkenness faded. Yet, in another sense, my body, feverishly consumed, was entirely at her mercy.
 
 "Feels good?"
 
