@@ -7,10 +7,10 @@ title: 'Episode 24: You Look More Miserable Than Me'
 ---
 Episode 24: You Look More Miserable Than Me
 
-A thud sounded as his elbow hit the floor.\
-I straddled Seno-san, who’d been pushed down by me and was lifting his face to complain.
+A thud sounded as her elbow hit the floor.\
+I straddled Seno-san, who’d been pushed down by me and was lifting her face to complain.
 
-Quickly grabbing both his hands and pinning them above his head, I pressed him down onto the floor with my weight, holding him down with one hand.
+Quickly grabbing both her hands and pinning them above her head, I pressed her down onto the floor with my weight, holding her down with one hand.
 
 "Hey, Kaori!?"
 
@@ -138,7 +138,7 @@ Tears spilled again, and Seno-san's thumb gently wiped them away.
 
 With those words, I heard the sound of the cheap pride I'd been clinging to shatter completely.
 
-I reached out, grabbed the nape of his neck, and pulled her closer. I noticed Seno-san looked startled for a moment, but I pressed my lips to hers without a second thought.
+I reached out, grabbed the nape of her neck, and pulled her closer. I noticed Seno-san looked startled for a moment, but I pressed my lips to hers without a second thought.
 
 It's the end anyway. At least, for the end.
 

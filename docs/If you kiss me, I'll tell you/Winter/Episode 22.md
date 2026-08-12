@@ -34,7 +34,7 @@ Actually, they were also considering bringing in another new recruit in the spri
 "I have no objections to that arrangement. And Manager Yamazato, please don't hesitate to take time off if you're not feeling well."
 
 It would be tough if Manager Yamazato were absent.\
-　But with Seno-san and myself, we should manage. Thinking this, I glanced over at him—Seno-san took a small breath and spoke softly.
+　But with Seno-san and myself, we should manage. Thinking this, I glanced over at her. Seno-san took a small breath and spoke softly.
 
 "...I'm terribly sorry, but I must decline the assistant manager role. I simply cannot do it."
 
@@ -85,7 +85,7 @@ I chased after the swaying, long brown hair walking ahead of me.
 
 "Wait a moment!"
 
-Catching up in the corridor, I grabbed his arm and finally got Seno-san to stop.
+Catching up in the corridor, I grabbed her arm and finally got Seno-san to stop.
 
 "Why did you refuse? You absolutely should do it. Manager Yamazato was clearly troubled."
 
