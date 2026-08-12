@@ -4,7 +4,7 @@ layout: episode
 nav_order: 12
 parent: 'Chapter One: The Magic Doll Shop "Lux"'
 sequence: 12
-title: "Episode 12: "Like the Two of Them""
+title: "Episode 12: Like the Two of Them"
 ---
 ## Episode 12: "Like the Two of Them"
 
