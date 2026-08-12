@@ -42,7 +42,7 @@ The man who walked in was heavyset and middle-aged, distinguished by a white bea
 Before Fiine could recover from her surprise, the white-bearded man rushed forward and dropped to his knees on the floor with great force.
 
 "Please, Fiine-sama. Would you accept my request? It's for the sake of my territory...!!"\
-"O-our territory...?!"
+"Wha- my territory...?!"
 
 Only nobility owned territories. Which meant the man currently prostrating himself before Fiine had to be a noble.
 
