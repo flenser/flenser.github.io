@@ -29,7 +29,7 @@ She peered into my face, pausing for just a beat.
 
 Her voice started climbing, unsteady.
 
-"Back in elementary school, when I got hurt at the park — you were the very first one there. Asking 'are you okay,' with this desperate look on your face."
+"Back in elementary school, when I got hurt at the park — you were the very first one there. Asking 'are you okay?' with this desperate look on your face."
 
 I remember that. Makina fell off the playground equipment and was crying.
 
