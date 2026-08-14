@@ -8,7 +8,7 @@ title: 'Chapter Three: "The Clod of Earth Dreams of Snow" — Part Ten'
 ## Chapter Three: *"The Clod of Earth Dreams of Snow"* — Part Ten
 
 \
-"Kai, can I ask you something? ...I'm not sure if I should, but."\
+"Kai, can I ask you something? ...I'm not sure if I should, but..."\
 "You can ask me anything. We're supposed to be talking today, after all."\
 Right, that's what I'd come for. Talking. Somehow this had turned into ear cleaning along the way.\
 But maybe this kind of touch was actually a fitting moment to ask.\
