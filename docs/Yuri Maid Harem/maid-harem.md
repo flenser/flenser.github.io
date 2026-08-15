@@ -1,7 +1,7 @@
 ---
 title: 'The Introvert Whose Only Redeeming Feature Is Her Face Somehow Built a Yuri Harem ~A Former Young Lady Becomes a "Maid" in Akihabara~'
 has_children: true
-tags: ["suggestive", "high school", "yandere", "tsundere", "fluffy", "harem", "parental neglect", "high energy", "ongoing"]
+tags: ["safe", "high school", "yandere", "tsundere", "fluffy", "harem", "parental neglect", "high energy", "complete"]
 ---
 ## Original Title
 
