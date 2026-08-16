@@ -152,6 +152,6 @@ Just the right color for a new beginning.
 
 ＊ ＊ ＊ ＊ ＊
 
-*[Author's afterword, included in the original post]:*\
+*Author's afterword, included in the original post:*\
 We've finally reached the point where the two of them are dating!\
 But it's not over yet, so I hope you'll stick with the story a while longer!
