@@ -23,7 +23,7 @@ This is the serialized version of a short story, "琥珀色恋愛遊戯" (Amber-
    </div>
    {% endif %}
 
----
+![antiqua](/assets/images/antiqua.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: [パラダイス農家] (Paradise Nouka).
