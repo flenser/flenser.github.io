@@ -1,7 +1,7 @@
 ---
 title: I Stopped Being Possessive, and Then She Fell Apart
 has_children: true
-tags: ["suggestive", "high school", "yandere", "co-dependence", "angst", "ongoing"]
+tags: ["suggestive", "high school", "yandere", "co-dependence", "angst", "complete"]
 ---
 ## Original Title
 

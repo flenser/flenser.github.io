@@ -1,7 +1,7 @@
 ---
 title: I Was Kissed by the Junior I Hate
 has_children: true
-tags: ["adult life", "suggestive", "slow-burn", "secret relationship", "enemies to lovers", "ongoing"]
+tags: ["adult life", "suggestive", "slow burn", "secret relationship", "enemies to lovers", "ongoing"]
 ---
 ## Original Title
 
