@@ -2,7 +2,7 @@
 grand_parent: My Crush on My Soon-to-Be-Stepsister Childhood Friend Is Just Too Convenient!
 layout: episode
 nav_order: 28
-parent: 'Chapter Three: Staying Together'
+parent: 'Chapter Four: Childhood-Friend Girlfriend'
 sequence: 28
 title: "Episode 28: Everyday Life With My Childhood-Friend Girlfriend Is Just Too Convenient!"
 ---
