@@ -187,4 +187,6 @@ The outcome was settled.
 
 *—Tonight's game of love: Mikoto, one win, four losses.*
 
+---
+
 [^moon]: "The moon looks lovely tonight": A nod to the famous (likely apocryphal) story of Natsume Sōseki instructing a student that "I love you" should be translated into Japanese as "月が綺麗ですね" ("The moon is beautiful tonight") rather than literally — a culturally coded way of confessing feelings without saying them outright. Mikoto's deflection is actually a loaded answer to Shandy's question, which is exactly why Shandy calls it a cliché line right after. Also doubles as another beat in the series' ongoing moon-phase motif tied to Shandy's eyes.
