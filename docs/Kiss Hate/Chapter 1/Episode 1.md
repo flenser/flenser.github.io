@@ -77,7 +77,7 @@ Irritation flared up in me, and my grip tightened on the wheel.
 This is exactly why I hate you, Hanamori Chisa.
 
 That "calculated cuteness, full deployment" mode of yours, and the impossibly icy way you treat me.\
-The gap between the two is strangely infuriating, strangely absurd, and, in the end, just plain infuriating.
+The gap between the two is strangely annoying, strangely absurd, and, in the end, just plain infuriating.
 
 ***
 
