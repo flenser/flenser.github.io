@@ -74,7 +74,7 @@ As she went on with her preparations at an unhurried pace, her eyes were a wanin
 The waning crescent shifted back into a waxing one.
 
 "Do you like me?"\
-"I was just thinking the moon looks lovely tonight."\
+"I was just thinking the moon looks lovely tonight."[^moon]\
 "You really do love a cliché. I already told you, Kurosu-sama. How do you woo a bartender?"\
 "I know, I know. Are you ready?"\
 "Yes, and tonight's prep went more smoothly than usual. Shall your first drink tonight be me — Shandy — again?"\
@@ -186,3 +186,7 @@ The outcome was settled.
 "Then, a toast. To the sweet little bit of candy I'm giving you, to soothe that heart of yours, worn out from work."
 
 *—Tonight's game of love: Mikoto, one win, four losses.*
+
+---
+
+[^moon]: "The moon looks lovely tonight": A nod to the famous (likely apocryphal) story of Natsume Sōseki instructing a student that "I love you" should be translated into Japanese as "月が綺麗ですね" ("The moon is beautiful tonight") rather than literally — a culturally coded way of confessing feelings without saying them outright. Mikoto's deflection is actually a loaded answer to Shandy's question, which is exactly why Shandy calls it a cliché line right after. Also doubles as another beat in the series' ongoing moon-phase motif tied to Shandy's eyes.
