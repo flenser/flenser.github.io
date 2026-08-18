@@ -78,7 +78,7 @@ We've both clearly, consciously recognized each other as "girlfriends," as someo
 Somehow, that realization started making me embarrassed too, little by little.
 
 I mean, come on — she kisses me over and over without hesitation.\
-But get all shy over one missing layer of clothes, one sheet of frosted glass? That's not fair.
+But getting all shy over one missing layer of clothes, one sheet of frosted glass? That's not fair.
 
 ...I mean, seriously, not fair at aaaaall!!
 
