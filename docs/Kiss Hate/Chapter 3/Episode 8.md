@@ -4,7 +4,7 @@ layout: episode
 nav_order: 8
 parent: 'Chapter 3: The Junior I Hate, and the Live Show'
 sequence: 8
-title: 'Episode 8: But She Said She Wasn't Drunk'
+title: "Episode 8: But She Said She Wasn't Drunk"
 ---
 ## Episode 8: But She Said She Wasn't Drunk
 
