@@ -9,7 +9,7 @@ title: '#12: Aroma Trap'
 ## #12: Aroma Trap
 
 \
-"Not a single idea's coming to us, is it..."
+"Not a single idea's coming to us, is it...?"
 
 Meiji Stationery's office. The brainstorm for the follow-up to the digital notepad project had wrapped up without a single usable result to show for it.\
 Rinko, sitting face to face with her the whole time, let out a matching sigh. Mikoto checked the clock. Past five. The end-of-day chime and the slanting afternoon sun both nudged her toward heading home.
@@ -192,7 +192,7 @@ Shandy dropped the mischievous-girl smile and let out a sigh instead. Her gaze t
 There was none of the usual joking lightness in her tone. The stern, scolding note in her voice left Mikoto feeling strangely, unexpectedly guilty.
 
 "Irresponsible? It's just a normal hug, isn't it?"\
-"Yes. But the other person involved isn't."
+"Yes. But for the other person involved it isn't."
 
 Leaving it at that, Shandy stepped away from the counter and walked over to Mikoto's seat. Sensing this meant *stand up,* Mikoto rose, not sure what was coming, in the narrow, eel's-nest sliver of space that was Antiqua.\
 Shandy's face, right in front of her now, was too dim to make out clearly. All Mikoto could tell was that the air around her had gone taut, on edge.\
@@ -252,7 +252,7 @@ Tonight's Shandy Gaff carried just a hint of extra bitterness.
 
 "Oh, that's right — I nearly forgot about your reward for winning the game, didn't I?"
 
-"Now, what should it be," Shandy murmured, laughing softly to herself.\
+"Now, what should it be?" Shandy murmured, laughing softly to herself.\
 There was something faintly dangerous in the air. Some instinct warned Mikoto that going any further than this might mean there'd be no turning back.\
 But instinct — her true feelings, pulse racing, blood roaring — wanted exactly that. To be pulled into a different, more dangerous trap than the one laced with Rinko's fragrance.
 
