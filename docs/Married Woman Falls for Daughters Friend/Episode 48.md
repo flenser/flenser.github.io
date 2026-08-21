@@ -51,11 +51,11 @@ Kai examined the box and read the shop's name aloud.\
 Kai finally turned a real smile toward her disappointing Santa.\
 "I'll make coffee. Suite rooms come with the ground coffee as a service."\
 "You told me that before, you know."\
-Perhaps Kai was a little more excited about this than she let on. She smiled, and her beard, my beard, swayed with the movement.\
-Is this all right, I wondered, sitting down, something like unease pressing in. Enjoying this, enjoying Kai's company, before I even sat down to cake with my own family. Do I enjoy being with Kai?\
+Perhaps Kai was a little more excited about this than she let on. I smiled, and my beard, swayed with the movement.\
+*Is this all right?* I wondered, sitting down, something like unease pressing in. Enjoying this, enjoying Kai's company, before I even sat down to cake with my own family. Do I enjoy being with Kai?\
 Some part of me insisted I shouldn't let myself feel that honestly. And yet with Kai, something in my chest genuinely did fill with something forward-looking, hopeful. Every glimpse of Kai's unguarded, childlike side made me want to build her a place inside that peace. Once, I'd been able to do so little for a cat. How much more could I actually give Kai now?\
 Looking up, I caught my own reflection in the window, dressed as Santa.\
-*Getting carried away, are we,* I thought, and gave the pompom on my hat a little pat.\
+*Getting carried away, are we?* I thought, and gave the pompom on my hat a little pat.\
 Then, alongside the coffee Kai had prepared, the cake came out of its box. Strawberries and cream, sponge layered with cream between each tier. Strawberries arranged on top, with gold lettering wishing, I assumed, a merry Christmas, though I couldn't quite make out what it said. I cut a slice for each of us first.\
 Kai received her slice with a soft, almost dreamlike look, as though gazing at something out of a dream.\
 "Thanks for the food."\
