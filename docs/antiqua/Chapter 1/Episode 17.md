@@ -261,4 +261,4 @@ Mikoto slumped against the counter, utterly spent.\
 
 ---
 
-[^cat]: Natsume Sōseki novel (the same author referenced back in Ep. 3's moon line).
+[^cat]: *I Am a Cat* is a real Natsume Sōseki novel (the same author referenced back in Ep. 3's moon line).
