@@ -92,7 +92,7 @@ Amber eyes shining, Shandy transferred the vegetables onto Mikoto's plate. A cle
 
 Playing at "say ahh," Mikoto brought the forkful of meunière to Shandy's mouth with trembling fingers. Facing her directly, Shandy flinched, clearly conscious of onlookers, before hurriedly taking the bite anyway.
 
-"...You really would do something like that, wouldn't you. Though for the record, that's *sole*, not *kisu* — no *kiss* about it.[kisu]"\
+"...You really would do something like that, wouldn't you. Though for the record, that's *sole*, not *kisu* — no *kiss* about it."[^kisu]\
 "Yes, my mistake. Though it seems you were the one who misread it as something else — so I suppose we're even."\
 "You're unusually talkative tonight. If only you'd put on airs like this a little more often — I'd enjoy myself even more."\
 "You can look forward to more of me from here on. I'll be sure to satisfy you."\
@@ -203,4 +203,4 @@ Stepping closer, Shandy whispered into her ear.
 
 ---
 
-[kisu]: 鱚 (kisu, a type of small fish, Japanese sillago) is a homophone of the English loanword キス (kisu, "kiss").
+[^kisu]: 鱚 (kisu, a type of small fish, Japanese sillago) is a homophone of the English loanword キス (kisu, "kiss").

@@ -180,7 +180,7 @@ She clearly had no intention of actually answering. Putting the mystery she'd su
 "Let me rephrase, then. What show did you like as a kid?"\
 "We never had a television at home."\
 "Any story from your school textbooks that stuck with you? Something like Swimmy, maybe."\
-"*I Am a Cat.* At the end, he drinks alcohol and dies. Did you know that?"[cat]\
+"*I Am a Cat.* At the end, he drinks alcohol and dies. Did you know that?"[^cat]\
 "Then what's your zodiac sign, Shandy-san?"\
 "Meow."
 
@@ -261,4 +261,4 @@ Mikoto slumped against the counter, utterly spent.\
 
 ---
 
-[cat]: Natsume Sōseki novel (the same author referenced back in Ep. 3's moon line).
+[^cat]: Natsume Sōseki novel (the same author referenced back in Ep. 3's moon line).
