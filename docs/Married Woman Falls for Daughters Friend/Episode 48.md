@@ -63,7 +63,8 @@ Kai received her slice with a soft, almost dreamlike look, as though gazing at s
 Breathing in the scent of the coffee she'd poured, I brought a bite of cake to my mouth.\
 "Mm... good."\
 It had been a while since I'd had one, but this shop's cake really was well made. A refined taste, something almost proud of itself. Neither the cream nor the sponge overreached. Perhaps the perfect flavour for something meant to accompany a celebration.\
-"Kai, this is good..." "Yes."\
+"Kai, this is good..."\
+"Yes."\
 She held out a strawberry, speared on her fork, toward me.\
 "What's that for?"\
 "You can have it. I'm not fond of strawberries."\
