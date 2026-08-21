@@ -2,7 +2,7 @@
 grand_parent: I Was Kissed by the Junior I Hate
 layout: episode
 nav_order: 11
-parent: 'Chapter 4: The Junior Coworker I Hate, and the Office Battle-Axe'
+parent: 'Chapter 4: The Junior I Hate, and the Office Battle-Axe'
 sequence: 11
 title: "Episode 11: The Calculating Rookie and the Empress of Crushing New Hires"
 ---
