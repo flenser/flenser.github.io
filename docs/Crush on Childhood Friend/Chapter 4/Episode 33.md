@@ -1,5 +1,14 @@
+---
+grand_parent: My Crush on My Soon-to-Be-Stepsister Childhood Friend Is Just Too Convenient!
+layout: episode
+nav_order: 33
+parent: 'Chapter Four: Childhood-Friend Girlfriend'
+sequence: 33
+title: "Episode 33: Having Something Important to Talk About Is Just Too Convenient!"
+---
 ## Episode 33: Having Something Important to Talk About Is Just Too Convenient!
 
+\
 Night. When I get home, the usual voice comes from the living room.
 
 "Welcome back, Yotsuka."\
@@ -139,7 +148,7 @@ Makina pats both hands against her own cheeks, quick and flustered.
 Makina's face goes red, all the way to the tips of her ears.
 
 "Wh-what, what's so embarrassing about it..."\
-"Um, so, you know? If Makina and I keep touching each other every day... I feel like, I'm going to stop being able to hold back."\
+"Um, so, you know? If Yotsuka and I keep touching each other every day... I feel like, I'm going to stop being able to hold back."\
 "Hold back on, what...?"\
 "So, that's why, I was keeping my distance. I'm sorry. It wasn't that I wanted to avoid you, that's, genuinely not it."\
 "No, wait, hold on. I don't get it."\
