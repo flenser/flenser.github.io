@@ -71,7 +71,7 @@ It looked exactly like the version of me thinking about Morishita, and it gave m
 "...I do."\
 "Eh, really?! What's that like?!"
 
-I asked with enough volume that I drew attention from all four corners of the classroom without meaning to. Yudzuki's face went bright red, and she pressed a finger to her nose.
+I asked with enough volume that I drew attention from all four corners of the classroom without meaning to. Yudzuki's face went bright red, and she pressed a finger to her lips.
 
 "Nanoha, your voice."\
 "Sorry, I just..."\
@@ -111,7 +111,7 @@ She reached out again and wound her fingers into my hair.
 "That doesn't sound like it has any good points at all."\
 "I think the parts of them that aren't perfect are beautiful."
 
-What was that supposed to mean.\
+What was that supposed to mean?\
 What Yudzuki was saying was so vague I couldn't grasp any of it.
 
 This is exactly why it's exhausting trying to understand what clever people mean.\
@@ -119,7 +119,7 @@ Here too, I felt the gap between Yudzuki and me being put on display, and it lef
 
 "And, someone with a nice face."\
 "I see."\
-"Take a bit more interest in me, would you."
+"Take a bit more interest in me, would you?"
 
 To begin with, dating someone with a better face than Yudzuki felt nearly impossible, she's that good-looking herself.
 
