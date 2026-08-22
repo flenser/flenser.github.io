@@ -195,9 +195,9 @@ Weighing Shandy's offer against her own unresolved indecision, still, no answer 
 "Really?! What is it—"\
 "I'll explain later. For now, please focus on hunting down our suspicious character."
 
-The lights dimmed. Yanase Sanae's voice, now settled at the emcee's podium, rang out across the hall — the opening address.
+The lights dimmed. Yanase Sanae's voice, now settled at the moderator's podium, rang out across the hall — the opening address.
 
-*"My apologies for interrupting your conversations. We'll now begin the final selection round of this year's New Product Competition. I'll be serving as your emcee — Yanase Sanae, from General Affairs. Thank you for your cooperation."*
+*"My apologies for interrupting your conversations. We'll now begin the final selection round of this year's New Product Competition. I'll be serving as your host — Yanase Sanae, from General Affairs. Thank you for your cooperation."*
 
 Amid a wave of applause, the game had finally begun.\
 Sanae's voice, from the podium, began explaining the selection round's purpose.

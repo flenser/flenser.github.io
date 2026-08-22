@@ -213,7 +213,7 @@ Shandy laughed, light and rolling, like bells tumbling together.
 
 "Someone as sharp as you would've landed on an idea this simple immediately. The fact that you haven't used it means there's a reason you don't want to. Am I wrong?"\
 "I already told you — it would put your girlfriend in danger. There's no telling what a cornered thief might do out of spite."\
-"No. Whatever happens to Mikoto-san isn't actually any of your concern, is it. Which means that reason's just a cover story. Shall I guess your real one instead?"\
+"No. Whatever happens to Mikoto-san isn't actually any of your concern, is it? Which means that reason's just a cover story. Shall I guess your real one instead?"\
 "Please, go ahead."
 
 Sanae's eyes had gone slightly unfocused. Quietly furious.\
@@ -248,7 +248,7 @@ Pursue the culprit quietly, steadily, in secret, and Mikoto could reclaim her pr
 Mikoto made up her mind.\
 Draining the *Shirley Temple* Shandy had brought her, she made her declaration.
 
-"...There's no time left, is there. Let's go find the culprit, quickly."\
+"...There's no time left, is there? Let's go find the culprit, quickly."\
 "Choosing the riskier path, after I went out of my way to help you."\
 "I've got three allies now. We'll manage. Isn't that right, Sanae-san?"\
 "I appreciate your decision. ...Is this glass non-alcoholic?"\
