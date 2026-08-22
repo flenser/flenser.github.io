@@ -29,7 +29,7 @@ Her long eyelashes blinked once, and a soft smile rose to her face.
 "I saw it, this morning."\
 "Huh?"
 
-I stopped what I was doing and looked at her. What was she talking about.\
+I stopped what I was doing and looked at her. What was she talking about?\
 The coins I'd dropped in front of the vending machine at lunch? Or that time I tripped on the step?
 
 "The thing with the section chief from sales admin. On the sales floor. That was pretty cool of you, Asami-san."

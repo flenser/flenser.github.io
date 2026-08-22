@@ -73,7 +73,7 @@ My grip tightened on my glass, my fingertips going pale. The condensation felt s
 
 "Not at all, it's thanks to your materials, Asami-san."
 
-Asakura-san answered with her perfectly styled hair and a graceful smile. Just looking at that smile made my heart skip again. Calm down, me. How many years have I been a working adult.
+Asakura-san answered with her perfectly styled hair and a graceful smile. Just looking at that smile made my heart skip again. Calm down, me. How many years have I been a working adult?
 
 "No, it was your design that did it. The client was completely hooked."\
 "I'm glad to hear you say that."
@@ -89,7 +89,7 @@ Maybe it was the alcohol, but Asakura-san's expression seemed softer than usual.
 
 Asakura-san reached for her vape, exhaling slowly. The gesture was unnervingly sultry, and I found myself staring despite myself.
 
-"The department head was pretty flustered back then, huh."\
+"The department head was pretty flustered back then, huh?"\
 "He really was. But you handled the follow-up so well, Asakura-san."\
 "No, no, it was your material structure that made it work, Asami-san."
 
@@ -128,7 +128,7 @@ I gave some vague agreement. Crap, I hadn't been listening to Asakura-san at all
 Asakura-san made a slightly pouty face.
 
 "Sorry, I think the alcohol's catching up to me, I'm a little spaced out."\
-"Fufu, is that so."
+"Fufu, is that so?"
 
 Asakura-san set her glass down. Her slender fingers were beautiful.
 
@@ -145,7 +145,7 @@ Asakura-san paused for a moment.
 Asakura-san leaned in closer. The distance between us shrank. Her perfume drifted over, sweet and mature, citrus with musk underneath. It smelled good.
 
 "It really was. I cried at that part."\
-"I know exactly what you mean. You're into that kind of thing, huh, Asami-san."
+"I know exactly what you mean. You're into that kind of thing, huh, Asami-san?"
 
 The conversation never lulled, we had so much common ground. Movies, books, how we each spent our days off. As the alcohol kicked in further, the conversation flowed more and more smoothly.\
 I felt the distance between us closing. My nerves had fully loosened, my shoulders relaxed, I was talking normally now.
@@ -231,7 +231,7 @@ I felt the gaze again. I flicked my eyes over, just my eyes. Sure enough, Hanamo
 The moment our eyes met, she looked away again.\
 This time I saw it clearly. She'd absolutely, definitely been looking this way.
 
-The unease in my chest grew. What is this.
+The unease in my chest grew. What is this?
 
 "Asami-san?"
 
@@ -243,9 +243,9 @@ I turned back to Asakura-san. But I couldn't focus. None of it was sinking in. M
 
 Time alone with the senior I've admired. There's no better chance than this, and yet my chest is churning with unease.
 
-What even is this.
+What even is this?
 
-Why does it feel this unsettled, this prickly.
+Why does it feel this unsettled, this prickly?
 
 I don't know the answer. And some part of me doesn't want to know it.\
 For now, I stopped thinking and drained the rest of my beer in one go.

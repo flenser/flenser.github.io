@@ -149,7 +149,7 @@ Hanamori suddenly changed the subject.
 "I am not."\
 "Then what are you doing?"\
 "...Haven't decided yet."\
-"See, that's the classic hikikomori move right there."
+"See? That's the classic hikikomori move right there."
 
 Hanamori said it, smirking. Infuriating.
 
@@ -157,7 +157,7 @@ Hanamori said it, smirking. Infuriating.
 "Wait, what's that supposed to mean?"\
 "No, just, you seem like exactly that type."\
 "That type, huh... well, I won't deny it."\
-"See."
+"See?"
 
 Hanamori laughed softly.
 
@@ -211,7 +211,7 @@ Hanamori's expression turned a little nostalgic.
 "What about you, Asami-san? Did you do any part-time work?"\
 "I did. Supermarket, mostly."\
 "Sounds about right. You seem like the type the part-timer aunties would've adored."\
-"What kind of image is that."
+"What kind of image is that?"
 
 I shot back, and Hanamori laughed.\
 A slightly teasing laugh, but with a warmth to it somewhere.
