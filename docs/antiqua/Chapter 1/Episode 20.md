@@ -57,8 +57,8 @@ Sanae worked the tablet, adding some kind of filter to the earlier list. The ros
 
 Keeping quiet about her own five years in Planning without much to show for it, Mikoto skimmed the three profiles—
 
-Number one: Kamishima Shōta (28), specialty in factory automation equipment.\
-Number two: Teramon Hitomi (25), specialty in lifestyle products.\
+Number one: Ueshima Shōta (28), specialty in factory automation equipment.\
+Number two: Terakado Hitomi (25), specialty in lifestyle products.\
 Number three: Higo Kazuma (31), specialty in HR management systems.
 
 —Sure enough, every single one of their specialties brushed uncomfortably close to the *Digital Memo.*\
@@ -193,7 +193,7 @@ A genuinely unpleasant kiss, however you measured it.
 
 Not a flicker of expression crossing her face, Sanae wiped her mouth pointedly with a handkerchief. Ignoring Shandy's resentful glare entirely, she pressed on.
 
-"In any case. Our top three suspects: Kamishima, Teramon, Higo. Kurosu-san, I'll leave these three to you. Method's up to you — for your own sake and your company's, pry a confession out of them by whatever means necessary. Tōko and I will handle the remaining suspects."\
+"In any case. Our top three suspects: Ueshima, Terakado, Higo. Kurosu-san, I'll leave these three to you. Method's up to you — for your own sake and your company's, pry a confession out of them by whatever means necessary. Tōko and I will handle the remaining suspects."\
 "U— understood... In that case, Shandy-san, could you support me—"\
 "...Mikoto-san? Still haven't noticed, have you?"
 
