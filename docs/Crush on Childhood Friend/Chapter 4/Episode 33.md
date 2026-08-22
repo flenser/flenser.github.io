@@ -161,7 +161,7 @@ Makina ruffles her own bangs, messing them up.
 
 Makina denies it forcefully.
 
-"Then what—"\
+"Then what?"\
 "So, that's, what I'm trying to explain, right now..."
 
 Makina covers her face with both hands.
