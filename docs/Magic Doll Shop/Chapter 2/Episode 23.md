@@ -13,7 +13,7 @@ Max, along with the rest of the villagers, pressed their faces to the windows, t
 
 "Fiine. I've got every last villager inside now."\
 "Thanks, Bianca. Could you put up a barrier around the fields? It'd be bad if they caught fire, or got splattered with monster blood."\
-"...You really work people hard, don't you."
+"...You really work people hard, don't you?"
 
 Grumbling all the while, Bianca traced a complex magic circle on the ground and began chanting a barrier spell.\
 White light burst from the barrier, wrapping the entire field in a dome shape.\
