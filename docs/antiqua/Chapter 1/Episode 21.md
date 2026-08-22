@@ -16,8 +16,8 @@ The three of them were easy enough to find, clustered together along the wall li
 
 "Whoa, so sparkly, so bright!"
 
-The one who spoke was Teramon Hitomi, specialty in lifestyle products — a short-haired woman with an easygoing, no-nonsense air.\
-Behind her, a sporty young man, Kamishima, and a composed Higo followed up with wry smiles.
+The one who spoke was Terakado Hitomi, specialty in lifestyle products — a short-haired woman with an easygoing, no-nonsense air.\
+Behind her, a sporty young man, Ueshima, and a composed Higo followed up with wry smiles.
 
 "Honestly, if anything we'd be the ones asking you, right, Higo-san?"\
 "Couldn't agree more. Sorry to say it, but our seats in Planning probably aren't going to last much longer."\
@@ -49,7 +49,7 @@ Tucked into a sofa in a corner of the hall, away from the crowd's chatter, Mikot
 "I see. So you got nothing and slunk right back."\
 "Something about it just felt off..."
 
-Mikoto looked off into the distance. The three of them hadn't moved from their spot, still chatting away amiably. Teramon caught her eye and waved; Mikoto waved back.\
+Mikoto looked off into the distance. The three of them hadn't moved from their spot, still chatting away amiably. Terakado caught her eye and waved; Mikoto waved back.\
 Watching them in the same direction, Shandy spoke.
 
 "Might be acting, you know. The whole team banding together to steal the project."\
@@ -156,7 +156,7 @@ Mikoto let the venom of Shiina's shrieking wash right past her. For Shandy's sak
 "Then tell me — the project materials I sent you, did you email them to Hibiya?"\
 *"Of course I did! I even sent that mockup you gave me before!"*\
 "Do you know the recipient's name?"\
-*"Higo, from Planning! And CC'd, his subordinates, Kamishima and Teramon! Are you implying I was slacking off?!"*
+*"Higo, from Planning! And CC'd, his subordinates, Ueshima and Terakado! Are you implying I was slacking off?!"*
 
 Shiina's hysterical protest went entirely unheard by Mikoto.\
 The three people Shiina had sent the project to were the exact same three people Mikoto had just interrogated. In other words, the assigned contacts happened, by sheer coincidence, to be the exact three people desperate enough to want the project.
