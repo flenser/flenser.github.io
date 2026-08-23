@@ -1,7 +1,7 @@
 ---
 title: Demon Lord Girl Self-Destructs ~The World Has Been Saved, But the Saint Won't Let Go of Me~
 has_children: true
-tags: ["suggestive", "fantasy", "yandere", "violence", "co-dependence", "ongoing"]
+tags: ["safe", "fantasy", "magic", "violence", "angst", "co-dependence", "complete"]
 ---
 ## Original Title
 
