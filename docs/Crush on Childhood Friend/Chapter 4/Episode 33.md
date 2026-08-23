@@ -103,12 +103,12 @@ In the lit-up living room, we sit side by side on the sofa.
 I take one big breath.\
 Under the room's light, Makina's staring right at me.
 
-"Lately, Makina, you've been... avoiding me, haven't you. You won't hold my hand anymore, you stopped sleeping together, even kissing's... gotten less."
+"Lately, Makina, you've been... avoiding me, haven't you? You won't hold my hand anymore, you stopped sleeping together, even kissing's... gotten less."
 
 The thing I'd been too scared to say, afraid of getting hurt.\
 I finally, finally said it.
 
-"I kept thinking about it. Did I do something wrong. Did you get turned off by me. Or maybe..."\
+"I kept thinking about it. Did I do something wrong? Did you get turned off by me? Or maybe..."\
 "...Maybe becoming girlfriends was the wrong call after all."
 
 Makina's expression freezes solid.
@@ -117,7 +117,7 @@ Makina's expression freezes solid.
 
 "I don't want to head into our birthday still carrying this feeling, half-finished, not knowing anything for sure."
 
-"You said it yourself, remember — that if anything happened, we'd still properly become sisters..."
+"You said it yourself, remember? — That if anything happened, we'd still properly become sisters..."
 
 My voice is shaking, and something feels like it's about to spill out of my eyes any second.\
 For a while, Makina can't say anything.\
@@ -149,8 +149,8 @@ Makina's face goes red, all the way to the tips of her ears.
 
 "Wh-what, what's so embarrassing about it..."\
 "Um, so, you know? If Yotsuka and I keep touching each other every day... I feel like, I'm going to stop being able to hold back."\
-"Hold back on, what...?"\
-"So, that's why, I was keeping my distance. I'm sorry. It wasn't that I wanted to avoid you, that's, genuinely not it."\
+"Hold back... on what...?"\
+"So, that's why I was keeping my distance. I'm sorry. It wasn't that I wanted to avoid you, that's, genuinely not it."\
 "No, wait, hold on. I don't get it."\
 "I don't really get it myself either, even while I'm explaining it, I feel like I'm saying something kind of insane."
 
