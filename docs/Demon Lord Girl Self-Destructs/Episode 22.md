@@ -12,7 +12,7 @@ I fell silent for a moment — my thoughts too, naturally — then scratched my 
 
 "'Take your power away' — that's not some figure of speech, is it."\
 "No. Starting now, I'm going to take the demon lord's power away from you."\
-"Teresia's not the type to joke around, so I'm guessing that means it's actually possible. But I'll ask anyway. Why?"\
+"Teresia, you're not the type to joke around, so I'm guessing that means it's actually possible. But I'll ask anyway. Why?"\
 "Because it's a power you don't need."
 
 Teresia said it flatly, her expression unreadable.
@@ -54,7 +54,7 @@ And beyond that.
 
 "Well, I can more or less guess your reasons. But Teresia — you're planning to deal with the demon lord's power through some pretty brute-force method, aren't you?"\
 "Why do you think that?"\
-"Because on that front, I actually understand it better than you do, saint or not — I'm the demon lord, remember. The demon lord's power doesn't just vanish that easily. If anything, 'the demon lord's power' isn't really energy so much as it's the power the demon lord itself wields — which means, to put it bluntly, even if I burned through every last bit of it right here, right now, it'd just recover over time."\
+"Because on that front, I actually understand it better than you do, saint or not — I'm the demon lord, remember? The demon lord's power doesn't just vanish that easily. If anything, 'the demon lord's power' isn't really energy so much as it's the power the demon lord itself wields — which means, to put it bluntly, even if I burned through every last bit of it right here, right now, it'd just recover over time."\
 "..."\
 "So — what you're planning to do is—"
 

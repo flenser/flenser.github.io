@@ -43,7 +43,7 @@ Teresia laughed — with an expression like she was suppressing some other feeli
 
 "Come to think of it, we've talked about sightseeing plans for ages, haven't we. Things like, once we got to Flower Lake, we'd go check out a perfume shop."\
 "Did we? Well, it's the town of our dreams, after all, so it makes sense it'd have famous sights."\
-"Yes. We talked about the potions too, didn't we. I remember you saying you wanted a potion that makes you taller, Yurina."\
+"Yes. We talked about the potions too, didn't we? I remember you saying you wanted a potion that makes you taller, Yurina."\
 "D-did I say something like that? No, wait, actually, I do feel like I might've said that once..."\
 "I remember every single memory I have with you, Yurina. Because they're precious. So very precious to me."\
 "I see."\

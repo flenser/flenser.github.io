@@ -10,11 +10,11 @@ title: Episode 26
 \
 Ultimately, the story of what happened afterward was quite complicated, yet simple at the same time.
 
-Waiting for us as we returned to the city were Monica and a few knights. Apparently, they had intended to rush to our aid at the first sign of trouble. That was a reflection of their kindness, and perhaps simply good judgment on their part. In the worst-case scenario, they would have been the ones to defeat the Demon King, and indeed, I could see a brief flash of tension cross their faces when they saw us coming back.
+Waiting for us as we returned to the city were Monica and a few knights. Apparently, they had intended to rush to our aid at the first sign of trouble. That was a reflection of their kindness, and perhaps simply good judgment on their part. In the worst-case scenario, they would have been the ones to defeat the demon lord, and indeed, I could see a brief flash of tension cross their faces when they saw us coming back.
 
 Before the knights could be given any orders, Monica looked to me to gauge my reaction. I bowed my head and said, "It's all right. Everything has been resolved."
 
-"We've defeated the Demon King. He is no longer in this world."\
+"We've defeated the demon lord. He is no longer in this world."\
 "Certainly, that terrifying demonic power can no longer be felt anywhere. But how on earth...?"\
 "Um—"
 
@@ -24,7 +24,7 @@ Would anyone ever believe an explanation like, *"I transferred the power into a 
 
 As I was trying to figure out how to explain it, Teresia anxiously piped up.
 
-"It's... it's true. Yurina put her life on the line to defeat the Demon King's power. Please believe her."
+"It's... it's true. Yurina put her life on the line to defeat the demon lord's power. Please believe her."
 
 Her tone and expression were serious in a way I hadn't seen before. Monica blinked in surprise, then murmured softly.
 
@@ -62,7 +62,7 @@ An awkward silence hung in the air before we launched into a comedy-routine-like
 
 Teresia gave a small nod, then said, "Well then, my turn."
 
-"I'm sorry for keeping things secret from you, working behind your scenes, and then launching a surprise attack to steal the Demon King's power. It's pretty pathetic how it all ended in failure anyway."\
+"I'm sorry for keeping things secret from you, working behind your scenes, and then launching a surprise attack to steal the demon lord's power. It's pretty pathetic how it all ended in failure anyway."\
 "…Yeah. It's okay, I understand your feelings properly, too."\
 "Is that so?"\
 "Yeah."\
