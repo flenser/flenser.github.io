@@ -131,7 +131,7 @@ Wait. What did she just say?
 
 Line number one on the list of things sober Hanamori would never, ever say. Without a doubt.\
 No, wait, did I mishear that? Me?\
-...This girl's brain is definitely broken from the alcohol. And me, getting my heart racing over drunk Hanamori, is completely broken by alcohol myself.
+...This girl's brain is definitely broken from the alcohol. And me, getting my heart racing over drunk Hanamori, I'm completely broken by alcohol myself.
 
 The song ended, and next Tamura-san started singing what was apparently his signature number. Everyone clapped along. Tamura-san could actually sing well.
 
@@ -218,9 +218,9 @@ All I could do was watch their backs in silence.
 
 ...Excuse me?
 
-What is with her.
+What is with her?
 
-...Hm? No, wait, this is fine, isn't it.\
+...Hm? No, wait, this is fine, isn't it?\
 Tamura-san, the guy she's been after this whole time, is worried about her and offering to walk her home.
 
 Even as I told myself that, unconsciously, a pink little fantasy started spreading through my head.

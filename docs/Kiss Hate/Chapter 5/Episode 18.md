@@ -82,14 +82,14 @@ Full "calculating mode" fully deployed.
 
 I kept my composure, mechanically replying to emails, but inside my head an emergency debate had convened.
 
-(Wait, what happened with Tamura-san after that?)\
-(He walked her home, right?)\
-(So did they actually... go home together?)\
-(Hanamori's place? Or Tamura-san's? ...No, wait, that's not what matters here—)\
-(Actually, maybe nothing happened at all...)\
-(But Tamura-san's still a guy... if she got clingy while drunk, he probably...)\
-(Did they at least kiss? ...No, that mood wouldn't have stopped at just a kiss...)\
-(Aaaaargh, I don't know anymore!!)
+*Wait, what happened with Tamura-san after that?*\
+*He walked her home, right?*\
+*So did they actually... go home together?*\
+*Hanamori's place? Or Tamura-san's? ...No, wait, that's not what matters here—*\
+*Actually, maybe nothing happened at all...*\
+*But Tamura-san's still a guy... if she got clingy while drunk, he probably...*\
+*Did they at least kiss? ...No, that mood wouldn't have stopped at just a kiss...*\
+*Aaaaargh, I don't know anymore!!*
 
 My head was unbearably noisy.\
 I was working myself up over my own imagination, getting irritated over my own thoughts.\
@@ -146,8 +146,8 @@ A smile. But that smile wasn't smiling at all. Her eyes were cold, and it was a 
 
 With a light bow, Hanamori walked away. All that was left was the scent of café au lait from her paper cup.
 
-What was that.\
-Why did I have to get talked to like that.\
+What was that?\
+Why did I have to get talked to like that?\
 Wait, did I even do something wrong?
 
 She's the one who was all clingy at karaoke.\
@@ -201,7 +201,7 @@ No, wait.\
 Why am I relieved?
 
 My hands stopped typing. My own face, faintly reflected in the monitor.\
-I was grinning, just a little. No, wait, why.
+I was grinning, just a little. No, wait, why?
 
 It's not like I care about that woman at all. It shouldn't be like that.\
 I let out a sigh in front of the screen.
@@ -211,7 +211,7 @@ Her eyes went wide for a second, then immediately looked away.
 
 My heart jumped, thudding loud enough to be annoying.
 
-...Seriously, what is this.
+...Seriously, what is this?
 
 I muttered it again in my head.\
 To no one in particular. Not even to myself.
