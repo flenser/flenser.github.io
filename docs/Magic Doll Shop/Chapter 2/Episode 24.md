@@ -4,7 +4,7 @@ layout: episode
 nav_order: 24
 parent: 'Chapter Two: The Frontier Hero'
 sequence: 24
-title: "Episode 24 (Conrad's POV): "A Way of Fighting He'd Never Known"
+title: "Episode 24 (Conrad's POV): A Way of Fighting He'd Never Known"
 ---
 ## Episode 24 (Conrad's POV): "A Way of Fighting He'd Never Known"
 
