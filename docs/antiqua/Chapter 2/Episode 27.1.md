@@ -2,7 +2,7 @@
 grand_parent: antiqua ~Amber-Colored Game of Love~
 layout: episode
 nav_order: 3
-parent: 'Chapter #2 : Vinum animi speculum'
+parent: 'Chapter #2: Vinum animi speculum'
 sequence: 32
 title: 'quiet talk #4: Mimosa'
 ---

@@ -2,7 +2,7 @@
 grand_parent: antiqua ~Amber-Colored Game of Love~
 layout: episode
 nav_order: 2
-parent: 'Chapter #2 : Vinum animi speculum'
+parent: 'Chapter #2: Vinum animi speculum'
 sequence: 31
 title: '#27: Devil'
 ---
