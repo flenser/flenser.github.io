@@ -13,7 +13,7 @@ nav_exclude: true
 - [A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague ✅](/docs/Arent You Gonna Do Anything/arent-you-gonna-do-anything.html)
 - [A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks ✅](/docs/Female CEO Yuri/female-ceo-yuri.html)
 - [antiqua ~Amber-Colored Game of Love~](/docs/antiqua/antiqua.html)
-- [Demon Lord Girl Self-Destructs ~The World Has Been Saved, But the Saint Won't Let Go of Me~](/docs/Demon Lord Girl Self-Destructs/demon-lord-girl.html)
+- [Demon Lord Girl Self-Destructs ~The World Has Been Saved, But the Saint Won't Let Go of Me~ ✅](/docs/Demon Lord Girl Self-Destructs/demon-lord-girl.html)
 - [Don't you feel ashamed to be overpowered by a maid? ✅](/docs/Don't you feel ashamed to be overpowered by a maid/overpowered-by-maid.html)
 - [Eternal Rest (I'm Just Tired) ❌](/docs/Eternal Rest/eternal-rest.html)
 - [From the Place Without Barlines ✅](/docs/From the Place Without Barlines/place-without-barlines.html)
