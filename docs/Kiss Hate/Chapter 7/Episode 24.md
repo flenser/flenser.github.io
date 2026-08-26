@@ -4,7 +4,7 @@ layout: episode
 nav_order: 24
 parent: 'Chapter 7: The Junior I Hate, and the Overnight Business Trip'
 sequence: 24
-title: "Episode 24: The Sales Car Is Hell"
+title: "Episode 24: Day One of the Trip, and Hell Continues"
 ---
 ## Episode 24: Day One of the Trip, and Hell Continues
 
