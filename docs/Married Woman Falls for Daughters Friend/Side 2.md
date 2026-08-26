@@ -9,7 +9,7 @@ title: "Chitaira Kai's Hotel Diary, Part Two"
 
 \
 Of all the long-term guests at the hotel, this person was, without question, the strangest to look at.\
-Strange enough to make even my own eyes feel unremarkable by comparison, genuinely alien. First, the height, nothing ordinary about it. I hadn't measured precisely, but it looked well over two metres. Looking up at that eccentric face required an angle steep enough to make my own neck ache. Eyes that shifted colour continuously depending on the light and angle, iridescent, hard on the viewer's own eyes. The hair seemed made of the same material, material? and shifted colour in perfect sync with the eyes. Against white walls or a sunlit window it blended in so completely it was almost transparent, easy to miss entirely, and somehow funny for it.\
+Strange enough to make even my own eyes feel unremarkable by comparison, genuinely alien. First, the height, nothing ordinary about it. I hadn't measured precisely, but it looked well over two metres. Looking up at that eccentric face required an angle steep enough to make my own neck ache. Eyes that shifted colour continuously depending on the light and angle, iridescent, hard on the viewer's own eyes. The hair seemed made of the same material. Material? And shifted colour in perfect sync with the eyes. Against white walls or a sunlit window it blended in so completely it was almost transparent, easy to miss entirely, and somehow funny for it.\
 This person, steam still rising faintly off them, was smiling faintly around what looked like an ice cream bought from the gift shop. I'd been seeing them constantly since staying here, and the moment my eyes so much as drifted their way, they always seemed to sense it instantly and look up, so I'd been making a real effort to keep them out of my field of view.\
 And yet, unluckily, our eyes met dead-on that day, and worse, they came straight toward me. The easy, familiar way they closed the distance, like spotting a friend, was somehow made overwhelming purely by the difference in size between us.\
 "Morning."\
@@ -47,7 +47,7 @@ A different kind of departure from human than the people at my own house.\
 "Sistaaars... no, I have over twenty siblings, myself. Impressive, isn't it?"\
 "...Huh."\
 On sheer numbers, I'm not exactly behind, myself.\
-Within that repugnant world where the number just kept climbing, unmanaged by anyone, unclaimed, I'd refused to be counted among them. The same current ran underneath both of us, but I wore the disguise of an ordinary human regardless.\
+Within that repugnant world where the number just kept climbing, unmanaged by anyone, unclaimed, I'd refused to be counted among them. The same current ran underneath both me and them, but I wore the disguise of an ordinary human regardless.\
 Because if I didn't, she'd never accept me.\
 I've been struggling against it, this whole time.\
 And then.\
@@ -63,7 +63,7 @@ Only after saying it did I realise, slowly, that must be the genius novelist. We
 "Oh, you're covered in sweat."\
 "You startled me."\
 Being touched so suddenly, on top of everything. Normally I'd have dodged it, but there hadn't even been time for that. It was as if the whole step of approaching had simply been skipped, they were just, all at once, touching me. It made my skin crawl.\
-"Then how about a trip to the hot spring together."\
+"Then how about a trip to the hot spring together?"\
 The hot spring. Right, I remembered, there was one a fair walk from the hotel that this person apparently visited constantly. They'd clearly only just come from there, and were apparently going back for more.\
 I declined that invitation with a smile, thinking, absolutely not.\
 "I'll pass."\
