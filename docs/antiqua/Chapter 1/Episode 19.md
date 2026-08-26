@@ -51,7 +51,7 @@ Whatever backstory she'd been halfway through building for Takahashi Marina evap
 "In any case," Sanae continued, clearing her throat awkwardly.
 
 "The target is somewhere among the forty employees in the main office's planning department. Draw information out of them without raising suspicion, and identify the culprit."\
-"F— forty people, one by one?"\
+"F-forty people, one by one?"\
 "We'll narrow it down somewhat on our end, but plan on that being the general approach. We'll continue once we're in the venue."
 
 With the brief briefing concluded, Mikoto stepped into the venue as Takahashi Marina.\
@@ -69,14 +69,14 @@ That was exactly when she caught a faint scent of orange. Turning around—
 —a white jacket, blonde hair pulled back, amber eyes.\
 Antiqua's proprietress, Shandy, stood there smiling.
 
-"Wh— what are you doing here?! Sh—"\
+"Wh-what are you doing here?! Sh—"\
 "Quiet, please. Won't you?"
 
 Giving a small nod toward the male bartender shaking a cocktail at the bar counter, Shandy held out a business card.
 
 "Tonight, I'm Charlotte Gabrielle. Feel free to call me Shirley."\
-"Th— that's not what I meant! Why is Sh— Shirley-san even here?!"\
-"I happen to have a little connection. Came in through entirely proper channels — as part-time hired help. A bartender."\
+"Th-that's not what I meant! Why is Sh-Shirley-san even here?!"\
+"I happen to have a little connection. Came in through entirely proper channels, as part-time hired help. A bartender."\
 "Wha—?!"
 
 Shandy's voice dropped to a sly, cat-like purr, careful not to carry beyond the two of them.
@@ -167,9 +167,9 @@ She remembered it now: yesterday, during her meeting with Sanae.
 "That won't work in time. We're currently holding off Legal through some personal favors, but once a decision's made, they'll have no choice but to act. We need to identify the culprit and extract a confession before the selection is finalized."\
 "How, exactly...?"\
 "That's precisely what I'm still working out, and it's proving... difficult."\
-"H— how about this, then! What if I bring up the project myself and gauge everyone's reactions?"\
+"H-how about this, then! What if I bring up the project myself and gauge everyone's reactions?"\
 "That would only put the culprit on guard. And consider this too — whoever we're dealing with is shameless enough to do anything for a promotion. There's no telling what they might do."\
-"Th— then what if I got up on stage and announced, 'someone here stole a project!'—"\
+"Th-then what if I got up on stage and announced, 'someone here stole a project!'—"\
 "As I already mentioned, proposals are anonymous. If our opponent were foolish enough to step forward honestly after a public accusation, I wouldn't be having this much trouble."
 
 Sanae had only scratched her head at every one of Mikoto's questions. Even someone as sharp as her hadn't landed on a workable plan—
@@ -179,11 +179,11 @@ Sanae had only scratched her head at every one of Mikoto's questions. Even someo
 Having relayed yesterday's details, Shandy fell silent. Mikoto glanced sideways, half-expecting even Shandy to be stumped this time. Her amber eyes had settled into a waning crescent moon, half-lidded, gazing off at something distant — the look of a Buddha statue seeing straight through everything at once.
 
 "...I've got it. Just have the culprit confess to their own achievement, willingly."\
-"That's — easy for you to say, but—"
+"That's... easy for you to say, but..."
 
 Her hand was taken. Fingers interlaced tightly, Shandy spoke in a genuinely serious tone.
 
-"You have my word — I'll protect you. I won't let anyone lay a hand on you."\
+"You have my word, I'll protect you. I won't let anyone lay a hand on you."\
 "That's reassuring to hear, at least."\
 "Ha. Feeling like making me your wife yet?"\
 "That's..."
@@ -192,7 +192,7 @@ Their interlocked fingers tightened.\
 Weighing Shandy's offer against her own unresolved indecision, still, no answer came.
 
 "Well, never mind that for now. I've thought of one method — though it'll need both Yanase-samas' cooperation."\
-"Really?! What is it—"\
+"Really?! What is it?"\
 "I'll explain later. For now, please focus on hunting down our suspicious character."
 
 The lights dimmed. Yanase Sanae's voice, now settled at the moderator's podium, rang out across the hall — the opening address.
@@ -247,7 +247,7 @@ Tōko had laughed off her own worry as *pointless* — but that was because she'
 Mikoto, right now, was still nothing more than a treasured regular customer to Shandy. Nothing more than that.
 
 "I want to put your mind at ease. I never want you to go back to being alone, Alice, ever again. So..."\
-"I— I see..."
+"I-I see..."
 
 Listening to the faint unsteadiness in Shandy's voice, Mikoto waited for Sanae to finish emceeing. Once the last project had been introduced and the lights came back up, the hall filled with the buzz of conversation once more.
 
