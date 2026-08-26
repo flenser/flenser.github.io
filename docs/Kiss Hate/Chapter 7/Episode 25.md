@@ -4,7 +4,7 @@ layout: episode
 nav_order: 25
 parent: 'Chapter 7: The Junior I Hate, and the Overnight Business Trip'
 sequence: 25
-title: "Episode 25: The Sales Car Is Hell"
+title: "Episode 25: This Has Gotta Be Laughing Through Tears"
 ---
 ## Episode 25: This Has Gotta Be Laughing Through Tears
 
