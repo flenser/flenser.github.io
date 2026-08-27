@@ -4,7 +4,7 @@ layout: episode
 nav_order: 38
 parent: 'Final Chapter - Childhood Girlfriend'
 sequence: 38
-title: "Episode 38: This Is a Story I Don't Want to Call "Too Convenient.""
+title: "Episode 38: This Is a Story I Don't Want to Call \"Too Convenient.\""
 ---
 ## Episode 38: This Is a Story I Don't Want to Call "Too Convenient."
 
