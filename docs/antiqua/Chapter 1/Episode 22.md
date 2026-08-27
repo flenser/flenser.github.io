@@ -64,7 +64,7 @@ The man who appeared in the waiting room wore square-rimmed glasses that gave hi
 Sanae introduced Mikoto and Tōko under their aliases. Shandy, the sole exception left out entirely, put on her business smile and offered her own alias herself.
 
 "I imagine a cramped little conversation like this could get rather stifling. Might I offer something to drink, as a bit of social lubrication?"\
-"A stylish bartender, is it. Go on, recommend me something."
+"A stylish bartender, is it? Go on, recommend me something."
 
 "Certainly," she said, and the click of her heels faded across the floor.\
 The instant she was gone, Mikoto's mouth went bone dry. Her heartbeat raced, her hands and feet tingled with restless energy. Pure tension. Whatever fear she'd thought she'd shaken off resurfaced at once.\
@@ -131,7 +131,7 @@ A knock at the door, and Kosugi finally withdrew his foot. Shandy appeared, carr
 
 "Oh my, did I interrupt something?"\
 "Just disciplining an underperforming employee. Now — the drinks?"\
-"Yes. For someone as black-hearted as yourself, might I recommend a *Black Velvet.*"
+"Yes. For someone as black-hearted as yourself, might I recommend a *Black Velvet?*"
 
 *Black Velvet.*\
 A beer-based cocktail using sparkling wine as its secondary ingredient — but this one comes out black. The name comes from its use of stout, dark beer, and the velvety, fine-textured foam it produces on the tongue.
@@ -164,8 +164,8 @@ A rage Mikoto had never once seen from her. Her amber eyes twisted with pure hos
 A second strike landed. Kosugi toppled onto the sofa from the impact, and Shandy's heel came down on his temple. Pressing one foot against the sofa's backrest, she stood over him.
 
 "I have pride in my work as a bartender. I make drinks wishing happiness on the person drinking them. Someone like you, using alcohol to degrade another human being — I don't consider you a customer at all."\
-"My pride is none of your concern!"\
-"No, of course not. You have none to speak of, do you. Nothing but garbage lower than livestock, calmly stealing someone's work without a shred of shame."\
+"Your pride is none of my concern!"\
+"No, of course not. You have none to speak of, do you? Nothing but garbage lower than livestock, calmly stealing someone's work without a shred of shame."\
 "Don't mock me, woman!"
 
 Shoved backward, Shandy was caught by Mikoto. Holding her slight frame steady, Mikoto felt the faint tremor running through Shandy's body — and something in her finally reached its limit.\
@@ -178,7 +178,7 @@ This was, absolutely, unforgivable.
 
 Kosugi, thoroughly enraged now, slammed down a paperback-sized model. Stuck with Hibiya's own asset-management sticker, it was the very thing Mikoto had painstakingly built — the *Digital Memo* mockup she'd made and entrusted to Shiina.
 
-"I poured my heart and soul into this prototype myself, they have nothing to do with it! Besides, what's Meiji Stationery even think it is, some pencil shop putting on airs!"
+"I poured my heart and soul into this prototype myself, they have nothing to do with it! Besides, what's Meiji Stationery even think it is? Some pencil shop putting on airs!"
 
 Mikoto picked up the prototype. Unmistakable. Nothing more than a hundred-yen-store plastic sheet, cut and assembled by hand — the world's one and only, dearly beloved child of her own making. Now fallen into Kosugi's hands.
 
@@ -210,7 +210,7 @@ Soaked through with cocktail, Sanae smiled all the same.\
 Kosugi hadn't noticed — while performing her *dogeza,* Sanae had shielded her phone with her own body, hiding it the entire time.
 
 "Ha! Recorded evidence like that has no legal standing. Sloppy work, from you of all people!"\
-"Is that so. Then shall I put this conversation directly to upper management for judgment?"\
+"Is that so? Then shall I put this conversation directly to upper management for judgment?"\
 "Know your place! I'm the division head of Planning, and you're an ordinary staff member! Which of us do you think benefits the company more, left standing?!"\
 "The outcome's already clear. What do you all think?"\
 "Wha—?!"
@@ -218,7 +218,7 @@ Kosugi hadn't noticed — while performing her *dogeza,* Sanae had shielded her 
 Sanae's phone hadn't been recording anything at all. Wearing an unsettling smile, she addressed the person on the other end of the call — the executives, still assembled in their meeting. Having heard every word of the exchange from start to finish, the higher-ups reached their verdict swiftly.
 
 *"Deeply disappointing. You've let us down badly, Kosugi-kun."*\
-"Th— tha— this is...... a trap......! Meant to bring me down......!"\
+"Th-tha... this is... a trap...! Meant to bring me down...!"\
 "...That's all from your hunting dog. Kurosu-san, any final words?"
 
 Mikoto glared at Kosugi with every last drop of fury she had, and shouted.
@@ -261,34 +261,34 @@ Soaked through earlier, Sanae had since changed — Tōko had rushed out to buy 
 
 In an uncharacteristically soft tone, sounding oddly uncomfortable, Sanae continued.
 
-"I work the way I do so I can build a life with Tōko. Being able to devote yourself entirely to someone you love — that's a real happiness, you know."\
-"You really do love her, don't you, Tōko-san."\
+"I work the way I do so I can build a life with Tōko. Being able to devote yourself entirely to someone you love — that's a real happiness, you know?"\
+"You really do love her, don't you, Tōko-san?"\
 "Yes. Enough that I could kill for her, if it came to that."
 
 Presumably a joke. Mikoto laughed without thinking too hard about it.
 
 "Didn't take you for someone who makes jokes, Sanae-san."\
 "A dark one, admittedly. Speaking of dark — what about her? Your girlfriend, the one who brought us that *Black Velvet.*"\
-"Shandy-san's still, well. Not quite my girlfriend yet..."\
+"Shandy-san's still... well... Not quite my girlfriend yet..."\
 "...Keeping her waiting too long seems a shame. Why not go find her? She should still be in the hall."\
 "That's..."
 
 Sanae's stony expression softened into something gentle.
 
 "Then let me be direct. Tōko and I are about to attend to our marital duties as a couple. You're in the way — please leave."\
-"U— understood...! Sorry, and about everything today—"\
+"U— understood...! Sorry, and about everything today..."\
 "That's enough. Neither Tōko nor I have any interest in performing our affection for an audience."
 
 There was nothing left to do but retreat as quickly as possible. Mikoto bolted from the room and headed back to the party venue.\
 Hibiya's employees had all long since dispersed. Amid hotel staff busy with cleanup, Mikoto searched the hall for Shandy. White jacket, blonde hair pulled back, amber eyes — nowhere to be found. Had she already gone home?\
 That was the moment someone wrapped their arms around her from behind.
 
-"Shandy-sa—"\
+"Shandy-sa-"\
 "I'm so glad you're safe, Kurosu-san—!"
 
 The one embracing Mikoto wasn't the person she'd been hoping for. It was Shirai Rinko. Beside her stood Aomi Shiina as well.
 
-"Finally showed up. Answer your phone next time, would you."\
+"Finally showed up. Answer your phone next time, would you?"\
 "Sorry. Wasn't exactly in a position to..."
 
 Checking her phone quickly, Mikoto found a mountain of missed calls. They'd probably been waiting the whole time for her to finish reporting everything after the fact.
@@ -299,7 +299,7 @@ Checking her phone quickly, Mikoto found a mountain of missed calls. They'd prob
 "Wh— what are you saying?! I told you not to bring that up!"
 
 Surrounded by Rinko still clinging tight and Shiina shouting over her, Mikoto finally felt her nerves settle.\
-Her project was back in her hands, and Meiji Stationery was safe. The relief of it drained every last bit of strength from her body, and she collapsed onto a lobby sofa. Tonight, she'd be staying at this luxury hotel — just the thought of not having to head home lifted a weight off her shoulders entirely, and—
+Her project was back in her hands, and Meiji Stationery was safe. The relief of it drained every last bit of strength from her body, and she collapsed onto a lobby sofa. Tonight, she'd be staying at this luxury hotel — just the thought of not having to head home lifted a weight off her shoulders entirely, and...
 
 "Kurosu? Kurosu? Chief Kuroooosu? ...She's actually asleep, right here in the lobby."\
 "Can't be helped, she really pushed herself hard today. I'll keep an eye on her, you head home, Aomi-san."\

@@ -120,11 +120,11 @@ Shandy's eyes curved into a waxing crescent as she smiled. To Rinko, it looked l
 
 "You and I are both loving the same woman, each in our own way. Which means, from now on, whenever her lingering scent clings to us, we'll each be reminded of the other, standing just behind her. Me, through perfume. You, through the smell of alcohol."\
 "What are you even trying to say?"\
-"There's no need to make such a frightening face. I don't actually hate you, you know."
+"There's no need to make such a frightening face. I don't actually hate you, you know?"
 
 *Nothing but lies,* Rinko thought. If she didn't hate her, there'd be no reason to have grabbed her arm to stop her from touching Mikoto. And she hadn't just grabbed it — she'd dug her nails in. Faint marks still remained on Rinko's left arm where Charlotte's nails had caught her.
 
-"...You may have come to hate me, but I find you interesting. Not as romance or love, of course. You're much the same, aren't you — you care for me too, in your own way."\
+"...You may have come to hate me, but I find you interesting. Not as romance or love, of course. You're much the same, aren't you? — You care for me too, in your own way."\
 "Don't be ridiculous! I hate you, more than anything!"\
 "Fufu."\
 "What's so funny?!"\

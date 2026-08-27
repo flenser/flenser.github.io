@@ -74,7 +74,7 @@ Directed toward the private room, Mikoto opened the door with a still-clinging T
 Inside: Shandy, blonde hair and amber eyes gleaming — and—
 
 "Why is Shirai-san here...?"\
-"K— Kurosu-san?!"
+"K-Kurosu-san?!"
 
 —her coworker, Shirai Rinko.
 
@@ -86,17 +86,17 @@ Iimori hadn't shown Mikoto and the others to this private room out of pure consi
 Luxual's private room was thick with tension. Rinko's expression was strained to the breaking point; Shandy's smile carried a sharp edge of its own.
 
 "Sorry for the intrusion...! Oh, but I've got no intention of butting into your yuri! Anyone who inserts themselves into a yuri pairing, man or woman, deserves to cut their own stomach open and die, I really believe that — although, actually, a love triangle has its own appeal too! Like, you think it's straight-up lesbian and it turns out she's actually bi! I want to be crushed under the weight of some enormous emotion!"\
-"Mikoto-san. What exactly is this delightfully unhinged married woman talking about?"\
+"Mikoto-san, what exactly is this delightfully unhinged married woman talking about?"\
 "I have no idea either."
 
-More than that, though, what really nagged at Mikoto was why Rinko was even here in the first place. She remembered making it to the hotel — everything after that was a blank.
+More than that, though, what really nagged at Mikoto was why Rinko was even here in the first place. She remembered making it to the hotel lobby — everything after that was a blank.
 
-"Shirai-san, do you know Shan— Charlotte-san?"\
-"N— no, that's not it?! She just said she was an acquaintance of yours, so wanted to grab a drink together—"\
+"Shirai-san, do you know Shan- Charlotte-san?"\
+"N-no, that's not it?! She just said she was an acquaintance of yours, so wanted to grab a drink together—"\
 "Meow."
 
 Shandy did an adorable little kitten impression.\
-Why a cat impression, of all things, right now.\
+Why a cat impression, of all things, right now?\
 Asking would only earn a deflection anyway. With her ordered *Martini* arriving just then, Mikoto swallowed the question down along with the drink. Unlike the shaken Martini served at Antiqua, this one carried a pleasantly sharp bite down her throat.\
 Shandy was the one to break the silence.
 
@@ -105,7 +105,7 @@ Shandy was the one to break the silence.
 Apparently she'd been planning to run one of Antiqua's usual games on Rinko. Given every prior game and the open hostility toward Shirai Rinko, Shandy's malicious intent was plain enough.
 
 "Please don't tease Shirai-san too much..."\
-"Oh my. Shirai-sama agreed to take on the game herself, didn't she? Isn't that right, Shirai-sama."
+"Oh my. Shirai-sama agreed to take on the game herself, didn't she? Isn't that right, Shirai-sama?"
 
 Shandy's profile spoke volumes. Presumably, exactly as usual, she'd talked circles around Rinko and forced her into agreeing. Rinko, meanwhile, had none of her usual easy composure — flustered, fumbling.
 
@@ -121,7 +121,7 @@ Shandy answered with a meaningfully loaded smile.
 
 "A love-talk game — each of us saying what we love about our *someone.* Falter on your words, or say the same thing as the other side, and you lose."\
 "What's the penalty game?"\
-"You'll know once the match is decided. And how fortunate — we happen to have an outside party, Yanase-sama here. Shall we let her judge?"\
+"You'll know once the match is decided. And how fortunate — we happen to have an outside party, Yanase-sama, here. Shall we let her judge?"\
 "I'll do it! But wait, Charlotte-san, is this... oh! Does that mean this is a public confession show?! Whoa, seriously?! Eeeeeee!"
 
 Mikoto regretted, needless to say, ever having brought Tōko along.\
@@ -133,7 +133,7 @@ Because Shandy's beloved was already an open secret. Whoever Rinko's *someone* w
 Merciless toward Rinko's stumbling was Yanase Tōko, self-appointed judge.\
 Mikoto sympathized with Rinko, stuck in a total away game against both a hostile opponent and a hostile judge — but this was, after all, just a love-talk game. Nothing like Shandy trying to start a real match with her beloved sitting right beside her.
 
-"Um...... They supported me back when I was still new and anxious at work, looked out for me in all sorts of ways...... that kind of thing."\
+"Um... They supported me back when I was still new and anxious at work, looked out for me in all sorts of ways... that kind of thing."\
 "Office romance! I can't handle it!"
 
 Listening to this, Mikoto privately thought Tōko herself was probably exactly the same — but there was no room left to make that observation out loud. Once Shandy's turn came around, Mikoto herself would be catching stray fire.
@@ -146,18 +146,18 @@ Laughing "fufu," Shandy let her amber eyes shine.\
 She was a genuine prodigy at humiliating people. Not just her opponent Rinko — now trying to drag Mikoto down with her too.\
 Mikoto fought to keep her face composed, forcing a mask of calm. She couldn't let her real reaction show in front of her coworker or Yanase Tōko.
 
-"So it's... 'Shamiko,' huh...... Reverse ship...... landmine......"\
+"So it's... 'Shamiko,' huh... Reverse ship... landmine..."\
 "What's 'Shamiko,' what's 'reverse ship'...?"\
 "Industry terminology. Don't mind it."\
-"What industry is that even from......"
+"What industry is that even from...?"
 
 Watching Tōko's grinning face, Mikoto decided not to press further. Whatever it was, it couldn't be anything good.\
 Shandy's turn ended; the second round began. Rinko's turn again.
 
-"How hard they work every day, even when they look busy...... makes me want to root for them."
+"How hard they work every day, even when they look busy... makes me want to root for them."
 
-Rinko's *someone* might well be a coworker. Either Meiji Stationery, or somewhere Rinko had worked before joining mid-career.\
-If it was Meiji Stationery, Mikoto found herself running through candidates. Someone who always looked busy — the only person who came to mind was sales' Aomi Shiina. Same gender, setting aside whether she was actually all that busy.
+Rinko's *someone* might well be a coworker. Either at Meiji Stationery, or somewhere Rinko had worked before joining mid-career.\
+If it was at Meiji Stationery, Mikoto found herself running through candidates. Someone who always looked busy — the only person who came to mind was sales' Aomi Shiina. Same gender, setting aside whether she was actually all that busy.
 
 "Personally, I've been thinking of having my *someone* quit their job and come help out at the shop instead."\
 "Absolutely not!"
@@ -200,7 +200,7 @@ She really must want to beat Shandy badly.
 More pressing, though, was the actual content of the penalty game. If Rinko was talking about "protecting" someone, whatever was being wagered probably had something to do with Mikoto. That much she could vaguely piece together — but the actual substance of it remained a mystery.\
 Rinko drew a breath and spoke.
 
-"I want to protect them. They're blessed with good looks, but maybe exactly because of that, they've had a hard time of it — I don't want them hurt any further. I don't want them caught by some awful woman...... I want to shelter them, as much as I possibly can......"
+"I want to protect them. They're blessed with good looks, but maybe exactly because of that, they've had a hard time of it — I don't want them hurt any further. I don't want them caught by some awful woman... I want to shelter them, as much as I possibly can..."
 
 Less a statement of what she loved than a raw confession of feeling. Whoever Rinko cared for this deeply, Mikoto thought, was genuinely fortunate.\
 In turn, taking in Rinko's outpouring, Shandy offered her own answer.
@@ -222,18 +222,18 @@ Would she find someone else, and approach them exactly the same way she had Miko
 The moment she pictured it, she was startled by how unpleasant the thought made her feel.
 
 "How embarrassing, isn't it, fufu."\
-"Whose fault do you think that i— is?!"
+"Whose fault do you think that i-is?!"
 
 The instant Shandy and Rinko had finished speaking, the sound of quiet sobbing reached them. Tōko, seated directly across from Mikoto, had her hand pressed over her eyes for some reason.
 
-"Both your loves are so huge...... I get both sides...... I get it too much to pick a winner......"\
+"Both your loves are so huge... I get both sides... I get it too much to pick a winner..."\
 "Seems we chose the wrong judge, didn't we?"
 
 Shandy stuck out her tongue slightly and laughed. Judge Yanase Tōko's empathy skills, apparently, ran off the charts. Setting the actual verdict entirely aside, she'd worked herself into a fit of sympathetic tears purely on her own.\
 This match had turned into a total stalemate. With neither side willing to concede, there was no point pushing further.
 
 "Given the state Tōko-san's in, shall we call it a draw?"\
-"But I still—"
+"But I still..."
 
 Cutting off Rinko mid-sentence, Shandy let out a sigh.
 
@@ -257,7 +257,7 @@ The instant Rinko left, Tōko's phone rang. "It's Sanae!" she cried, hesitating 
 
 Beaming with pure, unguarded happiness, Tōko left behind far more money than the tab actually called for and departed.
 
-"Truly, blissfully lovestruck, isn't she. What does she even see in a woman like that."\
+"Truly, blissfully lovestruck, isn't she? What does she even see in a woman like that?"\
 "...Are you heading home too, Shandy-san?"\
 "No. It's been a while since I've had a proper night at Luxual — I think I'll drink until morning. Iimori-san's a man, but playing against him isn't half bad either. Unlike a certain someone, he actually puts up a decent fight."\
 "About that, actually..."
@@ -283,7 +283,7 @@ Amber eyes curved fully into a waxing crescent, Shandy toyed and teased. Simply 
 
 "That's, um..."\
 "Do you want to be loved? Or do you want to love?"\
-"Ngh......"\
+"Ngh..."\
 "Fufu, understood. I'll stay the night, then."
 
 Relief at being accepted, yes — but a separate matter remained. She'd invited her to share the bed, but hadn't yet worked up the nerve for *that.*
