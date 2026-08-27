@@ -20,13 +20,13 @@ Without quite meaning to, her fingers had already opened her LINE chat. The othe
 Not that she distrusted Kotone. But this whole affair was under strict confidentiality. And besides, trying to explain the tangled mess she'd landed in felt genuinely difficult.\
 In the end, she pulled her eyes off her phone and looked up at the ceiling instead. If she was going to rely on whatever method Shandy had in mind, she'd first have to talk that Yanase Sanae into it.
 
-"...How exactly do I win over Yanase Sanae..."\
-"Is that so."
+"...How exactly do I win over Yanase Sanae...?"\
+"Is that so?"
 
 Mikoto spun around on reflex to find the Yanase couple standing in the waiting room's doorway.\
 Her muttering had been overheard. Both of them fixed her with a look like she'd tracked something filthy across the floor. Mikoto scrambled to correct herself.
 
-"N— no, that's not it! 'Win over' was just a figure of speech—"\
+"N-no, that's not it! 'Win over' was just a figure of speech..."\
 "So you've been looking at Sanae *that* way, Kurosu-san."\
 "I'm telling you, it's a misunderstanding! I was only thinking through strategy...!"
 
@@ -55,7 +55,7 @@ Sanae worked the tablet, adding some kind of filter to the earlier list. The ros
 "That's brutal, even for Hibiya..."\
 "Giving them a full three years is already generous, if anything."
 
-Keeping quiet about her own five years in Planning without much to show for it, Mikoto skimmed the three profiles—
+Keeping quiet about her own five years in Planning without much to show for it, Mikoto skimmed the three profiles...
 
 Number one: Ueshima Shōta (28), specialty in factory automation equipment.\
 Number two: Terakado Hitomi (25), specialty in lifestyle products.\
@@ -72,7 +72,7 @@ Mikoto looked up at Sanae's face. Her stony expression gave nothing away.
 
 "The two of you seemed to be talking for quite a while."\
 "And you were holding hands too, weren't you — the lovers' grip! With someone that lovely right in front of you, and you're still trying to make a move on Sanae?!"\
-"No, she's—"
+"No, she's..."
 
 Before she could finish, the waiting room door opened.
 
@@ -97,7 +97,7 @@ There was no talking her way out of this anymore. Mikoto steeled herself and for
 Not the slightest concern for the mess Mikoto now found herself in, Shandy smiled with pure, spiteful glee. Her rotten streak was showing.\
 Before Sanae could get a word in edgewise, Tōko, for whatever reason, burst out with excitement instead.
 
-"So they really are yuri after all! See, I told you, Sanae! Those two are definitely dating! Kurosu-san's the top and the bartender's the bottom! Oh, but actually it might be flipped right now. Maybe it changes depending on the mood that day—"\
+"So they really are yuri after all! See? I told you, Sanae! Those two are definitely dating! Kurosu-san's the top and the bartender's the bottom! Oh, but actually it might be flipped right now. Maybe it changes depending on the mood that day—"\
 "Please stay quiet for a moment, Tōko. I'll hear all the theories you want later."
 
 Tōko's suspicion had thawed, at least — though it felt like she'd landed on an equally inconvenient misunderstanding instead.\
@@ -147,8 +147,8 @@ Shandy laughed a meaningfully "ha," and Sanae shot her a sharp glare.
 Shandy answered with her most radiant smile.
 
 "Kiss, right in front of us. A proper, deep one — the passionate kind of *baiser* reserved only for when you're truly alone together."\
-"O— okay, got it! Let's show them, Sanae!"\
-"T— Tōko. We're in the middle of work, right now—"
+"O-okay, got it! Let's show them, Sanae!"\
+"T-Tōko. We're in the middle of work, right now..."
 
 Right in front of Mikoto, the two of them delivered exactly the kiss Shandy had demanded. Tōko sealed the smaller Sanae's lips from an angle above her. Sanae's stony, all-business expression melted into something softer than Mikoto had ever seen on her.
 
@@ -176,7 +176,7 @@ Sanae closed the distance, right in front of Mikoto. Small in stature, with a yo
 Glancing sideways at Shandy, Mikoto found her amber eyes narrowed into a waning crescent, glaring at her with a damp, unreadable intensity.
 
 "Hurry up, please. Surely you can manage a simple kiss."\
-"Th— that's not the issue here, but—!"\
+"Th-that's not the issue here, but...!"\
 "So you'll do it with someone who isn't me."\
 "Shandy-san, this is—!"\
 "Something amazing is happening right now...! Is this like — yuri NTR or something, Sanae?!"\
@@ -194,13 +194,13 @@ A genuinely unpleasant kiss, however you measured it.
 Not a flicker of expression crossing her face, Sanae wiped her mouth pointedly with a handkerchief. Ignoring Shandy's resentful glare entirely, she pressed on.
 
 "In any case. Our top three suspects: Ueshima, Terakado, Higo. Kurosu-san, I'll leave these three to you. Method's up to you — for your own sake and your company's, pry a confession out of them by whatever means necessary. Tōko and I will handle the remaining suspects."\
-"U— understood... In that case, Shandy-san, could you support me—"\
+"U-understood... In that case, Shandy-san, could you support me?"\
 "...Mikoto-san? Still haven't noticed, have you?"
 
 Wiping Mikoto's lips clean with a handkerchief, then overwriting the gesture with her own lips, Shandy spoke.
 
 "This woman... oh, my apologies. Yanase Sanae-san here has been sitting on the single easiest method of flushing out the project thief this whole time."\
-"Wh— what do you mean by that?"
+"Wh-what do you mean by that?"
 
 Eyes gleaming, Shandy fixed Sanae with a piercing look. Sanae, for her part, met it with an unreadable, expressionless calm.
 

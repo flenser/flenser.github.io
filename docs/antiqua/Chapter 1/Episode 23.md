@@ -57,13 +57,13 @@ Rinko went on guard at once. That voice. That manner of speaking. The same figur
 
 "No need to worry, please. I've no intention of eating you alive, or anything of the sort."\
 "Could you drop that way of speaking? It feels like you're mocking me, and it's making me angry."\
-"My, unexpected. The Peach Lady speaks her mind plainly, doesn't she. Fufu."
+"My, unexpected. The Peach Lady speaks her mind plainly, doesn't she? Fufu."
 
 A laugh with a faintly nasal, mocking edge caught in Rinko's ear. Charlotte was openly hostile. Rinko judged, almost instantly, that this was someone she simply wouldn't get along with, and hesitated over whether to bare her own teeth in turn.\
 But Mikoto was right there beside her. And whatever the truth of it, this woman was claiming to be Mikoto's friend. Better not to make an outward scene. Suppressing her anger, Rinko forced a smile — one carrying its own edge of hostility.
 
 "Kurosu-san's my coworker. My apologies for the late introduction — Shirai Rinko."\
-"I see. What a lovely name. Peach Lady-san."
+"I see. What a lovely name, Peach Lady-san."
 
 Still grinning, she made no move to drop the nickname. The unspoken message came through loud and clear: *your name means nothing to me.*\
 At last, Rinko settled her judgment.\
@@ -95,7 +95,7 @@ Rinko had been watching Mikoto this whole time. Not out of any special feeling �
 
 Wishing for exactly that, she'd kept up her quiet, aching watch.
 
-"...It's you, isn't it. The woman behind the orange scent."\
+"...It's you, isn't it? The woman behind the orange scent."\
 "That's right, Peach Lady-san."
 
 Earlier this year, Mikoto had changed. If it had just been different makeup, that would've been understandable enough — chasing a trend, or perhaps a boyfriend's preference. But a scent doesn't change so easily.
@@ -116,9 +116,9 @@ Why did Mikoto go drink at this woman's place at all?\
 For two whole years, Mikoto had never touched alcohol outside of work obligations. Never once worn the same outfit two days running. So why, all of a sudden these past few months, had she started going every single night?\
 She didn't need to think hard to know the answer.
 
-"You're dating that woman, aren't you."
+"You're dating that woman, aren't you?"
 
-It stung. For Rinko, who'd told herself *she isn't like that* and resigned herself to friendship, this felt like a betrayal in every sense. And then—
+It stung. For Rinko, who'd told herself *she isn't like that* and resigned herself to friendship, this felt like a betrayal in every sense. And then...
 
 "You knew I was pining for her the whole time, and you were laughing about it behind my back, weren't you...?!"
 

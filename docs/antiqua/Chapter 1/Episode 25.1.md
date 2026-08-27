@@ -40,7 +40,7 @@ Adding that clarification, Mikoto rested a hand on Shandy's forehead. The same c
 Mikoto kept stroking Shandy's hair for a while. Lowering her gaze, she found Shandy's amber eyes looking straight back up at her. Under this clearer light, so different from Antiqua's usual dim glow, her features stood out sharp and doll-like as ever, and Mikoto let out an unconscious sigh.
 
 "...You really do look like a doll, Shandy-san."\
-"You really do love my face, don't you. Ah — no, wait. Isn't it my heart you love most?"\
+"You really do love my face, don't you? Ah — no, wait. Isn't it my heart you love most?"\
 "Well, yes, that too."
 
 Her eyes curved into a waxing crescent, and Mikoto, refusing to let her own expression give anything away, covered her eyes with one hand. With the other, she combed through Shandy's blonde hair. Freed from whatever product usually held it in place, it fell in loose, natural waves, swaying softly.
@@ -63,7 +63,7 @@ Ostensibly a conversation about a third party — the two of them trading what t
 Shandy's hand was already exposed. Even in something close to a fit of desperation, even face to face, Mikoto had already confessed "I like you" to Shandy outright. Her *someone* was as good as identified — there was no need to name who, exactly.\
 A battle of wits, then.
 
-"Fine by me, but it's rather unfair to you, isn't it. That last game already made your own feelings more than clear."\
+"Fine by me, but it's rather unfair to you, isn't it? That last game already made your own feelings more than clear."\
 "I never said this would be a back-and-forth, though?"\
 "What do you mean by that?"\
 "This time, it's Mikoto-san doing all the talking about what she loves about her someone. I'm the one guessing who it is."\
@@ -72,7 +72,7 @@ A battle of wits, then.
 By those rules, there was no way Mikoto could win at all. The moment Shandy said her own name, the match would be settled instantly.\
 Still blindfolded, Shandy smiled, "fufu."
 
-"When you're tired, sometimes you just want sweet words, don't you. I win if I guess your someone correctly. You win if I can't."\
+"When you're tired, sometimes you just want sweet words, don't you? I win if I guess your someone correctly. You win if I can't."\
 "So I win by making you concede, is that it?"\
 "Yes. Go ahead and shoot me down with sweet words."
 
@@ -124,7 +124,7 @@ If so, Mikoto would play by the same rules right back. A little retaliation, aim
 
 "...Maybe that person's the anxious one, don't you think?"\
 "Anxious how? What do you think, Shandy-san?"\
-"Who knows. I'd need to hear more about what you love about her first."
+"Who knows? I'd need to hear more about what you love about her first."
 
 Laughing "fufu," Shandy deflected while pressing Mikoto to keep going.\
 She really was several steps ahead, as always. A half-baked bit of push-and-pull wasn't going to bring her down easily.
@@ -178,25 +178,25 @@ In truth, there was nothing to deduce. If Shandy wanted to win, she only had to 
 From the very start, this match had never been one Mikoto could win.\
 But losing didn't mean there was no way left to land one last blow.
 
-"Just a little more hint would—mm."
+"Just a few more hints would-mm."
 
 Blindfolded, Shandy had no way of reading Mikoto's expression or movements. No way of seeing her hopelessly flushed face, or the resolve hardening in her eyes.\
 Which was exactly why, before she could be seen through and humiliated for it, Mikoto sealed Shandy's lips with a sudden, unannounced kiss.\
 She refused to let anything show on her face. Covering those amber eyes tightly with one hand, and holding Shandy's body in place with the other so she couldn't slip away or deflect, Mikoto leaned over her. Tongues tangling together, their balance gave way, and they toppled together onto the sofa.
 
-"...Fufu. Being pushed down, am I—"
+"...Fufu. Being pushed down, am I..."
 
 Mikoto sealed her lips again before she could finish. Tangled together, the line between their two tongues blurred entirely — a strange sensation, as if she and Shandy were dissolving into each other inside a single mouth. Forcing her own dissolving thoughts back into focus, Mikoto finally pulled away.
 
 "...Say you give up, and I'll stop."\
-"Do you really think I wi—"
+"Do you really think I wi-"
 
 If sweet words couldn't settle the match, then sweet kisses would. That was Mikoto's plan. Of course, she knew perfectly well Shandy would never actually concede.\
 Which meant—\
 If she was going to lose regardless, she wanted to lose having shown her resolve first.
 
 "...I'll keep going until you concede."\
-"One more, and I might just say i—"
+"One more, and I might just say i-"
 
 She'd lost count of how many kisses that made. Pinning Shandy to the sofa, Mikoto kept stealing her lips again and again, punctuating each one with more words, pressing the assault further.\
 Her face, her voice — there was no need to guess at how flushed with embarrassment they'd become. But without those amber eyes — the ones that saw straight through everything — pinning her down, Mikoto found herself pressing forward more boldly than usual.
