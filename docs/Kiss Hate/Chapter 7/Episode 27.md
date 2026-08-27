@@ -15,7 +15,7 @@ The way she came in, hesitant and reserved, looked nothing like the cold Hanamor
 The click of the door locking behind her rang out unusually loud.
 
 Well. This cramped little hotel room only had one small single bed. The only other option for sleeping would be... a single armchair.\
-What to do about this.
+What to do about this?
 
 "Um..."
 
@@ -27,7 +27,7 @@ Hanamori started to say something, but I spoke first.
 Hanamori shook her head.
 
 "It's fine, really. I actually prefer sleeping on floors."\
-"What do you mean, you prefer sleeping on floors. Is that even a real thing?"\
+"What do you mean, you prefer sleeping on floors? Is that even a real thing?"\
 "It's true."\
 "That's a lie. Definitely a lie."
 
@@ -39,7 +39,7 @@ Hanamori stared at me with a faint glare, thoroughly unconvinced.
 
 The standoff continued. Neither of us backing down, we stared at the single bed in silence.
 
-"...This is fine, isn't it."
+"...This is fine, isn't it?"
 
 Hanamori said it, quietly.
 
@@ -54,7 +54,7 @@ My thoughts ground to a halt. What did she just say?
 Hanamori shot me a light glare, asking. Her face was a shade redder than before.
 
 "It's not unpleasant or anything, I just... isn't it small?"\
-"It's small, but this is fine, isn't it."
+"It's small, but this is fine, isn't it?"
 
 Hanamori said that and sat on the edge of the bed. I sat on the other side. A single bed... clearly too small for two people.
 
