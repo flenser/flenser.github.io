@@ -51,7 +51,7 @@ Somewhere along the way, even my own preferences ended up dyed completely in Mak
 
 On the TV, the morning news show reports on today's weather and the state of the commuter rush.
 
-"Ugh... seeing this stuff first thing in the morning really kills any motivation to go to work, doesn't it."\
+"Ugh... seeing this stuff first thing in the morning really kills any motivation to go to work, doesn't it?"\
 "...Agreed. I want to play hooky too."\
 "You've got it easy, Makina, you can go full remote if it really comes down to it, right?"\
 "...Maybe I'll just use a paid day off."\
@@ -86,7 +86,7 @@ Makina said it, offhand, after taking a sip of her miso soup.
 
 I very nearly sprayed toast everywhere.
 
-"What's with that, first thing in the morning."\
+"What's with that, first thing in the morning?"\
 "No particular reason?"\
 "That is not a 'no particular reason' face."\
 "You think?"\
@@ -103,8 +103,8 @@ Because, of course I want to.\
 With Makina.\
 I've thought that, like it's just an obvious fact, for so long now.
 
-"But it's just not possible, is it."\
-"That's the thing, isn't it."\
+"But it's just not possible, is it?"\
+"That's the thing, isn't it?"\
 "The partnership system, huh."\
 "Still has no legal force at all."\
 "Adoption, maybe?"\
