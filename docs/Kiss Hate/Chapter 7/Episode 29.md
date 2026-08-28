@@ -70,7 +70,7 @@ Hanamori answered instantly.
 
 "Why not?"\
 "You're heartless, Asami-san. You'd probably just leave me on the train without waking me."\
-"What kind of person do you think I am."
+"What kind of person do you think I am?"
 
 I couldn't help but burst out laughing.
 
@@ -91,7 +91,7 @@ And then, a soft thud.
 Hanamori's head landed on my shoulder.
 
 My heart gave a hard, loud jolt.\
-What is this feeling.
+What is this feeling?
 
 Hanamori's weight. Her warmth. The scent of shampoo drifting from her hair.\
 All of it felt unusually vivid.\

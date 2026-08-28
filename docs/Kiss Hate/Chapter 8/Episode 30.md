@@ -172,7 +172,7 @@ Hanamori pointed at the screen.
 
 Her finger.\
 Slender, pretty.\
-...Wait, what am I even looking at.
+...Wait, what am I even looking at?
 
 "Asami-san?"
 
@@ -180,7 +180,7 @@ She was staring right at me, her face right beside mine.\
 My body felt hot.
 
 "Ah, sorry. Where?"\
-"Here. Listen the first time, would you."
+"Here. Listen the first time, would you?"
 
 Hanamori said it with her usual bratty jab, pointing again.
 
@@ -194,7 +194,7 @@ Hanamori nodded, satisfied.
 
 That expression. What was that.\
 ...Cute.\
-Frustrating. Why does she look cute.
+Frustrating. Why does she look cute?
 
 "Thanks. I'll fix it."
 
@@ -214,7 +214,7 @@ In the afternoon, Hanamori spoke to me again.
 "I finished the corrections on that trade show document from earlier."\
 "Ah, right. Thanks."
 
-Why am I this awkward.
+Why am I this awkward?
 
 "Asami-san, something's off with you."
 
@@ -245,7 +245,7 @@ Hanamori narrowed her eyes, tilting her head.\
 That gesture, cute all over again.
 
 Damn it. Frustrating.\
-Why does she look cute.
+Why does she look cute?
 
 "Well, I'll head back."\
 "O-okay."
@@ -263,7 +263,7 @@ She likes Tamura-san.\
 Getting all giddy just from being able to talk to her, what an idiot.
 
 My chest gave a sharp stab of pain.\
-What is this feeling. It hurts.
+What is this feeling? It hurts.
 
 ***
 
