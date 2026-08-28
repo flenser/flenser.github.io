@@ -34,7 +34,7 @@ Every time I see Makina laughing beside me like this, it still catches me a litt
 Not a special day at all, really. Just an extension of an ordinary morning.\
 And yet — this kind of ordinary... happiness.
 
-"...Another year's gone by, huh."\
+"...Another year's gone by, huh?"\
 "That's right. Third year married. ...And it's already been ten years since we started dating."\
 "Feels like it went by in a flash, somehow."
 
@@ -65,7 +65,7 @@ Every one of those is a genuinely good option for us to build a family as we are
 
 Makina wraps both her hands over mine, still gripping the suitcase.
 
-"...It's just, that's still a little different, isn't it. ...I want a child that's mine and yours, Yotsuka."\
+"...It's just, that's still a little different, isn't it? ...I want a child that's mine and yours, Yotsuka."\
 "No, no, no, Makina, that's just way too much of a stretch."\
 "Is it a stretch?"\
 "It's a stretch. Do you know how human bodies actually work?"\
@@ -74,7 +74,7 @@ Makina wraps both her hands over mine, still gripping the suitcase.
 
 I throw in the retort as hard as I can, and Makina turns her face away with a pout, sulking like a kid.
 
-"But I still want it, don't I."
+"But I still want it, don't I?"
 
 That murmured line came out just slightly shaking, and the tips of her lowered lashes looked faintly damp.
 
@@ -113,7 +113,7 @@ The "what if" fairy tale we'd just been quietly, wistfully laughing about togeth
 
 *"The first child born to a same-sex married couple is currently reported to be in excellent health, and while the development has sparked ethical debate, legal frameworks toward practical implementation are said to be moving forward rapidly—"*
 
-"...Wait, what did they just... say..."
+"...Wait, what did they just... say...?!"
 
 *Thud, thud* — my own heartbeat pounds loud enough to be obnoxious in my own ears.
 
