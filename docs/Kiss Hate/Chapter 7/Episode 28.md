@@ -96,7 +96,7 @@ We walked in silence. Under the glittering lights, side by side, saying nothing.
 Nothing but couples around us.\
 Maybe from the outside, we looked like a couple too, the two of us. No, at this distance between us, probably not. I found myself thinking about it.
 
-"Haah. What did I do to deserve walking down a street like this with you, Asami-san."
+"Haah. What did I do to deserve walking down a street like this with you, Asami-san?"
 
 Hanamori muttered, out of nowhere.
 
@@ -114,7 +114,7 @@ Somewhere in me, I found myself happy that we could talk like this again.
 
 During the fight, we couldn't even manage this much conversation. Cold stares, being ignored, kept at a distance. And now, here we were, trading jabs like this again.
 
-"But the illuminations are pretty, huh."
+"But the illuminations are pretty, huh?"
 
 Hanamori said.
 
