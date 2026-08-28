@@ -1,5 +1,14 @@
+---
+grand_parent: antiqua ~Amber-Colored Game of Love~
+layout: episode
+nav_order: 15
+parent: 'Chapter #2: Vinum animi speculum'
+sequence: 44
+title: '#37: Earthquake / ep.1'
+---
 ## #37: Earthquake / ep.1
 
+\
 Friday. At the entrance gates of Hibiya Trading’s headquarters in Shimbashi, Mikoto held her ID card to the reader, then pressed herself into the corner of the glass-sided lift.\
 She came every week, but she was still an outsider. After confirming only that the lift stopped on the tenth floor, where General Affairs was located, she watched the view below grow gradually smaller.
 

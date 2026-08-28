@@ -1,5 +1,14 @@
+---
+grand_parent: antiqua ~Amber-Colored Game of Love~
+layout: episode
+nav_order: 16
+parent: 'Chapter #2: Vinum animi speculum'
+sequence: 45
+title: '#38: Earthquake / ep.2'
+---
 ## #38: Earthquake / ep.2
 
+\
 Mikoto explained the situation to Shandy over the phone.\
 That Akazawa had secretly photographed her confession the other day. That she intended to insist the woman in the pictures, who looked so much like Mikoto, was Mikoto’s younger sister Kotone, then spread the photographs on social media and in tabloid magazines in an attempt to end her acting career.\
 And more than anything, that Shandy herself might be in danger.\

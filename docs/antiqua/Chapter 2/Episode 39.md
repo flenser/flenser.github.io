@@ -1,5 +1,14 @@
-### #39: Earthquake / ep.3
+---
+grand_parent: antiqua ~Amber-Colored Game of Love~
+layout: episode
+nav_order: 17
+parent: 'Chapter #2: Vinum animi speculum'
+sequence: 46
+title: '#39: Earthquake / ep.3'
+---
+## #39: Earthquake / ep.3
 
+\
 About an hour later, Kotone appeared at antiqua on the outskirts of Roppongi. Having come three times now, she must have felt at home. She slipped into the seat beside Mikoto, who was nursing a drink in the preferred spot, and let out a breath.
 
 “It feels reassuring, like being at my parents’ house. My sister’s here, and so is my future sister-in-law.”\
