@@ -2,7 +2,7 @@
 grand_parent: I Was Kissed by the Junior I Hate
 layout: episode
 nav_order: 35
-parent: 'Chapter 8: Overtime With the Junior I Hate'
+parent: "Chapter 9: My Hated Junior's Poor Health"
 sequence: 35
 title: "Episode 35: What Kind of Situation Is This, Exactly?"
 ---
