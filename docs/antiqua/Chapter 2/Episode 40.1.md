@@ -311,5 +311,5 @@ Kotone hugged Rinko. There was a softness and warmth much like when Mikoto had h
 
 ---
 
-[^kei]: A kei car (軽自動車, keijidōsha) is a special category of very small car in Japan. The name literally means “light automobile.” They have yellow license plates, rather than the white plates used by ordinary passenger cars.\
+[^kei]: A kei car (軽自動車, keijidōsha) is a special category of very small car in Japan. The name literally means “light automobile.” They have yellow license plates, rather than the white plates used by ordinary passenger cars.
 [^mizuage]: Mizuage (水揚げ) historically referred to a payment associated with a courtesan's sexual debut, particularly within Japan's traditional licensed pleasure districts.
