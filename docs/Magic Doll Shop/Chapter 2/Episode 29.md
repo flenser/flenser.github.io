@@ -46,7 +46,7 @@ But reality had turned out to be far uglier than Fiine's ideals ever were.
 
 "Hey, Fiine."\
 "What?"\
-"You, of all people, really could become a true, genuine hero, you know."\
+"You, of all people, really could become a true, genuine hero, you know?"\
 "...I can't."
 
 What a hero needed, surely, wasn't raw combat strength alone. It was the resolve to go on living as a "hero."
