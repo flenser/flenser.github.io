@@ -57,7 +57,7 @@ The enclosed space of the car.\
 A space that, not long ago, hadn't meant anything to me.\
 Now, the presence beside me felt overwhelmingly concentrated. The scent of shampoo, the sweet peach perfume, mixing together, attacking my reason.
 
-I'm an idiot, aren't I.\
+I'm an idiot, aren't I?\
 Getting my own heart racing over every little thing, getting all giddy about it.
 
 Genuinely, an idiot, hopeless.
@@ -192,7 +192,7 @@ My heart jumped.
 
 I mumbled, trailing off. What am I even saying.
 
-"What's that supposed to mean. So vague."
+"What's that supposed to mean? So vague."
 
 Hanamori laughed, looking annoyed.\
 That cold, piercing look. Even that's cute. Frustrating. Really frustrating.
@@ -207,11 +207,11 @@ Hanamori smiled, faintly wicked.
 "What do you think would be good? Somewhere with drinks would be good, right? Tamura-san said he likes wine, so maybe a wine bar~. What do you think, Asami-san?"\
 "Ah, sure. Sounds good."
 
-Hanamori asked, deliberately. What is with this woman.\
+Hanamori asked, deliberately. What is with this woman?\
 I was desperately trying to answer "Ah, sure, sounds good" with a straight face. Like some robot only programmed to say that.
 
 Something deep in my chest throbbed with pain.\
-What is this feeling.\
+What is this feeling?\
 I don't want this.
 
 "...Hey, so."
@@ -225,7 +225,7 @@ Hanamori's feet seemed to stop, just slightly.
 
 "...What about it?"\
 "Why'd you go home alone?"\
-"Why, what do you..."\
+"Why, what do you...?"\
 "No, I mean, Tamura-san was about to walk you home. It was your chance, and yet."
 
 Hanamori stopped dead in her tracks. Then looked away.

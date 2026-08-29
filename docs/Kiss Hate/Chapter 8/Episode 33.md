@@ -33,10 +33,10 @@ Looking out the window, the rain was coming down hard.
 This girl's absolutely putting on a brave face.
 
 "Really?"\
-"...I said it's just a little, didn't I. Let's just hurry up and finish so we can go home."
+"...I said it's just a little, didn't I? Let's just hurry up and finish so we can go home."
 
 I teased her lightly, and Hanamori's lips pursed slightly. Clear proof she was getting worked up. Cute.\
-...Wait, there I go again, what am I even thinking.\
+...Wait, there I go again, what am I even thinking?\
 We kept working.
 
 *

@@ -41,7 +41,7 @@ Today's been so busy, the only words we've exchanged were this morning's "good m
 
 Lonely...
 
-No, wait. Lonely, what.\
+No, wait. Lonely, what?\
 I'm a working adult. This is a warzone right before a trade show. Way too love-brained, Asami Nagi.
 
 But I want to talk to her.\
@@ -79,7 +79,7 @@ Hanamori's eyes dropped, and she smiled softly. A small smile rose to her cheek.
 
 And then, as if nothing had happened, her serious expression returned as she looked back at her computer.
 
-...What was that.\
+...What was that?\
 That smile should be illegal.
 
 I turned back to my monitor and, with a straight face, replied to emails.\
@@ -225,7 +225,7 @@ Hanamori tilted her head slightly, the corner of her mouth lifting.
 
 "Hm, or maybe... you got worried about me and chased me down?"\
 "N-no, that's not it!"\
-"Is that so. That was surprisingly quick, ending your lovey-dovey time with Asakura-san."\
+"Is that so? That was surprisingly quick, ending your lovey-dovey time with Asakura-san."\
 "Eh, no, that's, um—"\
 "Kidding. Asami-san, if you're bored, come help with the trade show materials."
 
@@ -261,9 +261,9 @@ Ah, wait a second.
 "L-let's eat it together sometime! The super-spicy mapo tofu!"
 
 The moment I said it, I regretted it.\
-Why am I still dragging out this mapo tofu topic.
+Why am I still dragging out this mapo tofu topic?
 
-"...Pfft, what kind of invitation is that. I don't even like spicy food."\
+"...Pfft, what kind of invitation is that? I don't even like spicy food."\
 "Uuugh, right. Sorry."
 
 Hanamori looked exasperated, but she was smiling, just a little.\
@@ -286,7 +286,7 @@ Hanamori turned on her heel and headed back toward the sales floor.
 
 Wait.\
 Same icy, condescending treatment as always.\
-Why am I this happy about it. I catch myself practically dancing on the spot.\
+Why am I this happy about it? I catch myself practically dancing on the spot.\
 We were just standing around talking. Just talking about the cafeteria.
 
 I know it in my head.\
@@ -294,7 +294,7 @@ Hanamori likes Tamura-san, and Asakura-san might like me.
 
 So if Hanamori ends up with Tamura-san, and I end up with Asakura-san, everything would work out neatly.
 
-And yet, why.\
+And yet, why?\
 My body moves on its own.\
 Before I know it, I'm looking for Hanamori.\
 I'm listening for Hanamori's voice.
