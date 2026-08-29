@@ -2,7 +2,7 @@
 grand_parent: I Was Kissed by the Junior I Hate
 layout: episode
 nav_order: 37
-parent: 'Chapter 8: Overtime With the Junior I Hate'
+parent: "Chapter 9: My Hated Junior's Poor Health"
 sequence: 37
 title: "Episode 37: Why Did I Catch Her Cold, Anyway?"
 ---
