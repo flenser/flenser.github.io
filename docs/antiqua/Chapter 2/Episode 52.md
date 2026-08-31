@@ -431,5 +431,4 @@ Mikoto raised her head from the respectful bow she had given and saw the woman s
 
 “…Dance with me first, Kurosu-san.”
 
-It was her colleague and friend.\
-Shirai Rinko.
+It was her colleague and friend. Shirai Rinko.
