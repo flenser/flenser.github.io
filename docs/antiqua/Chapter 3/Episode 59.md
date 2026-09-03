@@ -1,9 +1,9 @@
 ---
 grand_parent: antiqua ~Amber-Colored Game of Love~
 layout: episode
-nav_order: 39
+nav_order: 41
 parent: 'Chapter #3 : Multae sunt causae bibendi'
-sequence: 68
+sequence: 70
 title: '#59: Cuba Libre / ep. 2'
 ---
 ## #59: Cuba Libre / ep. 2
