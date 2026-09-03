@@ -4,7 +4,7 @@ layout: episode
 nav_order: 35
 parent: 'Interlude: The Dream of the Two of Them'
 sequence: 35
-title: "Episode 35: "Except for Yuria-san""
+title: "Episode 35: Except for Yuria-san"
 ---
 ## Episode 35: "Except for Yuria-san"
 
