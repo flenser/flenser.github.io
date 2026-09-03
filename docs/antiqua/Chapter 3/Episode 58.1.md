@@ -1,9 +1,9 @@
 ---
 grand_parent: antiqua ~Amber-Colored Game of Love~
 layout: episode
-nav_order: 38
+nav_order: 40
 parent: 'Chapter #3 : Multae sunt causae bibendi'
-sequence: 67
+sequence: 69
 title: 'quiet talk #8: Home Sweet Home / As Told by Yanase Toko'
 ---
 ## quiet talk #8: Home Sweet Home / As Told by Yanase Toko
