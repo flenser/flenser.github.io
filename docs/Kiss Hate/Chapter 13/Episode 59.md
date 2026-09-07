@@ -4,7 +4,7 @@ layout: episode
 nav_order: 59
 parent: Side Stories
 sequence: 59
-title: "The Aquarium - \"Should We Continue?\""
+title: "The Aquarium - \"Should We Continue?\" ※"
 ---
 ## The Aquarium - "Should We Continue?" ※
 
