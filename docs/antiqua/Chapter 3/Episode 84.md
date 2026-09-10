@@ -224,5 +224,5 @@ Shandy told her.
 
 ---
 
-[^train]: **The Shinkansen wordplay** — *Hikari* means “light”, *Kodama* means “echo”.\
+[^train]: **The Shinkansen wordplay** — *Hikari* means “light”, *Kodama* means “echo”.
 [^lighthouse]: The proverb means that people often fail to notice what is closest to them.
