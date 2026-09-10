@@ -4,7 +4,7 @@ layout: episode
 nav_order: 66
 parent: Side Stories
 sequence: 66
-title: "Hot Spring Trip - \"Like this?\""
+title: "Hot Spring Trip - \"Like this?\" ※"
 ---
 ## Hot Spring Trip - "Like this?" ※
 
