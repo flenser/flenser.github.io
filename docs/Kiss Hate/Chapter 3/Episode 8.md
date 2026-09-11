@@ -196,7 +196,7 @@ The clerk checked the terminal.
 "I see..."\
 "We do have one couple's seat room available, though."
 
-the clerk said.
+The clerk said.
 
 "Eh."
 

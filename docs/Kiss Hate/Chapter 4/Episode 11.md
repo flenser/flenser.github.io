@@ -35,7 +35,7 @@ Usually she'd bluff her way through with attitude, but today she didn't even see
 
 ***
 
-Ten a.m. At the worst possible timing, *that woman* descended.
+Ten a.m. At the worst possible time, *that woman* descended.
 
 "Hanamori-san, got a minute?"
 

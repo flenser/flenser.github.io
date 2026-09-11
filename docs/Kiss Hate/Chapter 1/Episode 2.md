@@ -109,7 +109,7 @@ Hey, hey, stop. Stop it. I just decided that never happened. Don't remember it.
 "Liar. You were totally staring just now."\
 "I was not...!!"
 
-My face went hot. Completely caught. Why was I flustering? This was the worst.\
+My face went hot. Completely caught. Why was I getting flustered? This was the worst.\
 Hanamori smirked. That expression brought back her little-devil mode from last night. The honest, gentle air from a moment ago was gone without a trace.
 
 "Asami-san, your face is kind of red?"\

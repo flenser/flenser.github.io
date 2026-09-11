@@ -109,7 +109,7 @@ Hanamori laughed a little.
 "Yeah. Nothing like streaming."\
 "Haruto's guitar was so cool too."\
 "...Of course, Haruto."\
-"What's that reaction supposed to mean."
+"What's that reaction supposed to mean?"
 
 Hanamori shot me a light glare, then giggled.\
 A short silence passed.\
@@ -146,7 +146,7 @@ Annoyingly, my heart skipped a little.
 Hanamori's expression softened.\
 Seeing that smile, something in my chest warmed, just slightly.
 
-"There's a few places I know around here."\
+"There are a few places I know around here."\
 "Okay."
 
 Hanamori fell into step beside me.\

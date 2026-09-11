@@ -72,7 +72,7 @@ Time to be the adult and turn the teasing back on her.
 
 "Alright, alright. Guess I'll have to go on this trip in tip-top shape, then. Perfect health management."\
 "Huh?"\
-"So that Hanamori-san doesn't end up alone with Tamura-san alone, I'll just stick to you the whole time. Morning to night, glued together."
+"So that Hanamori-san doesn't end up alone with Tamura-san, I'll just stick to you the whole time. Morning to night, glued together."
 
 I said it playfully, meanly, on purpose, and Hanamori's face went red for a second.
 

@@ -74,7 +74,7 @@ Needing to say something, I opened my mouth.
 
 Hanamori glanced my way, briefly.
 
-"Is that right."
+"Is that right?"
 
 Then, a faint, unguarded smile rose to her face.
 
@@ -98,7 +98,7 @@ I shot back, and Hanamori glared at me, her expression turning sulky.
 "...Next year I'll be the senior for OJT, and get all cozy with some good-looking junior."\
 "Sure, sure. Sounds fun."
 
-"Really. Finally...,"\
+"Really. Finally..."\
 "Finally getting to end this pairing with you, Asami-san..."
 
 Hanamori kept stringing together taunting words.\

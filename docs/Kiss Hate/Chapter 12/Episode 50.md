@@ -51,10 +51,10 @@ The moment our eyes met, my face muscles went slack on their own.
 Hanamori answered, faintly sulky, curt. Probably covering embarrassment.\
 Business as usual, I thought, giving a wry laugh despite myself.
 
-I bought a can coffee and Hanamori's favorite café latte from the vending machine, and we sat side by side in the waiting seats.\
+I bought a can of coffee and Hanamori's favorite café latte from the vending machine, and we sat side by side in the waiting seats.\
 The corners of Hanamori's mouth were turned down. The cap cast a shadow over her face, hard to read her expression clearly.
 
-I sipped my can coffee, keeping composed on the surface, but inside, my heart was pounding hard.
+I sipped my can of coffee, keeping composed on the surface, but inside, my heart was pounding hard.
 
 Can I hold her hand?\
 Yesterday, that meant... it means something, right?\
@@ -113,7 +113,7 @@ She sniffled and wiped away a tear.
 
 "Is long-distance really gonna work out...?"\
 "'Long-distance,' that's a bit much."\
-"What do you mean, a bit much. There's a seventeen-hour time difference..."
+"What do you mean, 'a bit much'? There's a seventeen-hour time difference..."
 
 Hanamori's voice kept sinking lower.\
 At this rate, I'd end up leaving on an awkward note. Need to change the subject.\
@@ -196,7 +196,7 @@ A few steps in, I turned back, on impulse.
 I nearly stumbled from the momentum of turning around.\
 A small laugh slipped out, unable to help myself.\
 Seriously, that woman switches gears way too fast. Could've lingered a little longer.\
-But, well, that's exactly so Hanamori, I thought.
+But, well, that's exactly like Hanamori, I thought.
 
 My chest warmed, slowly, and I headed toward the gate.
 

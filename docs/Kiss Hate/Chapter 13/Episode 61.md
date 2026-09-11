@@ -57,7 +57,7 @@ After the morning meeting.
 
 "Heading out on rounds~. Kiritani, let's go."\
 "Yes ma'am, senpai!"\
-"What's with that nickname."
+"What's with that nickname?"
 
 Saying that, Hanamori stands up, bag in hand. She shoots Kiritani-san a light, joking glare, then laughs.\
 But she looks the tiniest bit happy about the "senpai" nickname.\

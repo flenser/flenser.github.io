@@ -48,7 +48,7 @@ The argument kept escalating, turning into something like an elementary-school f
 
 It was all so stupid, and the moment I snapped back to my senses, we caught each other's eyes and both burst out laughing.
 
-"What is this. What are we even arguing about."
+"What is this? What are we even arguing about?"
 
 Asami-san narrowed her eyes, shoulders shaking with laughter. That laugh sounded nice.\
 I couldn't stop laughing either. Pressing a hand to my stomach, I muttered, "Seriously, we're such idiots."
@@ -88,7 +88,7 @@ Asami-san laughed softly. The pendant lights hanging from the café ceiling cast
 A well-defined jawline, long eyelashes, softly smiling lips. I found myself staring, entranced, for a moment.\
 Snapping back to my senses, I pretended to pout and shot Asami-san a sideways glare.
 
-"What are you laughing at."\
+"What are you laughing at?"\
 "No, no, just thinking, still as much of a sucker for good-looking guys as ever."\
 "What, are you maybe jealous of Haruto-kun?"\
 "Wh-what!? Not at all."
