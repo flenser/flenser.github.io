@@ -35,7 +35,8 @@ Their paths had diverged in more than just life. The car turned off the national
 With nothing but a nasty smile curling at the corners of her mouth, Kaya drove the moving prison up into the mountains.\
 There was nowhere left to run. Kaya’s next destination was probably some deserted car park in the mountains. The mere thought made Rinko’s skin crawl.
 
-*"And now, let’s introduce our next email. From Yokohama City, a radio name… or perhaps her real name. This one comes from Takahashi Mikoto-san."*
+*"And now, let’s introduce our next email. From Yokohama City, a radio name… or perhaps her real name. This one comes from Takahashi Mikoto-san."*\
+"Ahaha. I wonder if this Takahashi Mikoto is the one Rinko likes."
 
 Rinko listened intently to the name that had suddenly been read out.
 
@@ -43,7 +44,8 @@ Rinko listened intently to the name that had suddenly been read out.
 
 The volume was barely loud enough to make out. They must have been beginning to leave the radio station’s broadcast range, because static was creeping into the transmission.\
 Rinko immediately turned up the car stereo.\
-At last, she was ready to listen to the truth hidden beneath Kotone’s static-ridden actress voice.\
+At last, she was ready to listen to the truth hidden beneath Kotone’s static-ridden actress voice.
+
 *"The other day, I had a fight with someone I love, and she won’t speak to me. I really want to go and see her right now and apologise, but I can’t just abandon my work, so in the end I can’t concentrate on my job either. What do you think I should do, Kotone-san?"*
 
 There was no doubt about it. The sender of the email was Kurosu Kotone herself. She was improvising, speaking directly to Rinko.\
@@ -73,8 +75,7 @@ Her words of resignation overlapped with Kotone’s voice.
 
 After inserting a little laugh in her capacity as a radio DJ, Kotone continued.
 
-*"So I really understand how Takahashi Mikoto-san feels. Which is why I think I’ll properly tell her how I feel. Over the phone."*
-
+*"So I really understand how Takahashi Mikoto-san feels. Which is why I think I’ll properly tell her how I feel. Over the phone."*\
 “What…?”
 
 One of the regular features on Kotone’s weekly radio show was calling a listener live on air whenever she found an email she particularly liked.\
@@ -195,8 +196,7 @@ Or perhaps she had only just now become embarrassed.
 
 “I can’t hear you very well. Could you tell me your feelings a little more clearly, Kotone-san?”\
 *"No, I mean, when you say something like this, it’s not really something you say over the radio…"*\
-“I’m waiting. I’m curious what you’re going to say.”
-
+“I’m waiting. I’m curious what you’re going to say.”\
 *"Ah… I’m saying it now!"*
 
 Kotone gave a small cough before speaking.
