@@ -254,7 +254,7 @@ She had no idea where she was. It was a mountain road somewhere, with dense tree
 Kaya turned the key. The kei car that had just climbed the mountain road deftly made a U-turn.\
 Rinko met Kaya’s gaze from the driver’s seat.
 
-“Anything you want me to tell my parents?”\
+“Anything you want me to tell your parents?”\
 “Not really.”\
 “What an ungrateful daughter.”\
 “Good luck, Sis-in-law. Look after my brother.”
