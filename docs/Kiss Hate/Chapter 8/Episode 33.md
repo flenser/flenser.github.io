@@ -93,7 +93,7 @@ The sound of hitting something, and Hanamori's voice.
 "You okay?"\
 "My foot... hit the desk..."
 
-Hanamori, completely in full panic. In the dark, I could hear a rustling sound, like she was searching for something.\
+Hanamori, completely full on panicking. In the dark, I could hear a rustling sound, like she was searching for something.\
 I reached my hand out. It touched something. Soft. Warm. Hanamori's hand.
 
 "Hyaaaaah!? What is this!"

@@ -45,8 +45,8 @@ But I couldn't turn back, and headed for the station as I was.
 ***
 
 Unable to even talk since then, Saturday arrived.\
-Of all the possible timing, the company-wide BBQ event landed right in the middle of this.\
-...What kind of face am I even supposed to make when I see her.
+Of all the possible times, the company-wide BBQ event landed right in the middle of this.\
+...What kind of face am I even supposed to make when I see her?
 
 Thankfully, the whole point was supposedly cross-department networking, so seats had already been assigned beforehand. I was at a table with Kiritani, one year below me, along with people from IT and accounting.
 

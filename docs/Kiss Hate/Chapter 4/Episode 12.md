@@ -111,7 +111,7 @@ I couldn't help laughing.
 
 Hanamori looked away, and the voice coming from her averted profile was small. Really small. But I definitely heard it.
 
-My heart made a strange sound. Not knowing how to react, I changed the subject. I popped the tab on the can coffee and took a sip.
+My heart made a strange sound. Not knowing how to react, I changed the subject. I popped the tab on the canned coffee and took a sip.
 
 "Anyway, don't worry about the chief. Yelling at people is basically her hobby."\
 "I usually forget about it once I sleep, so I'm fine."\
@@ -174,6 +174,6 @@ I went back to my desk and opened my computer. Checking my email, the conversati
 
 The wrong idea about what? By whom?
 
-I took a sip of the can coffee and let out a small breath.
+I took a sip of the canned coffee and let out a small breath.
 
 I saw Section Chief Miyashita stomping down the hallway and hurriedly pretended to focus on my email, avoiding eye contact.

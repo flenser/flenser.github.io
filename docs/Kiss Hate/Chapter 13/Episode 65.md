@@ -167,7 +167,7 @@ Hanamori turns toward me.
 "Hmm, I kind of get it, but."\
 "Right?"\
 "I don't want that."\
-"Why not."\
+"Why not?"\
 "Why... there's still so much I want to do with you, Asami-san."
 
 She murmurs it quietly, back still turned.

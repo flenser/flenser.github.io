@@ -37,7 +37,7 @@ About halfway through dinner, I set down my chopsticks and said, out of nowhere:
 
 *
 
-"Why don't just we move in together?"
+"Why don't we just move in together?"
 
 "...Fweh."
 

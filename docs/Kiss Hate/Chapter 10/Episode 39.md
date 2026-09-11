@@ -144,7 +144,7 @@ After another stretch of silence, Hanamori spoke up.
 Her face stayed expressionless, glaring at me as always, but her ears had gone faintly red. Her gaze drifted slightly too.
 
 "I—I'm not down, or anything."\
-"Is that so."
+"Is that so?"
 
 Hanamori swiftly started packing up her salad container, starting to stand.\
 Ah, wait, the conversation's ending. I hurriedly picked it back up.

@@ -146,7 +146,7 @@ Hanamori's expression loosened, bit by bit. This time, our eyes met, briefly.
 Bit by bit, the tension eased.\
 We picked at edamame, trading idle, meaningless conversation.
 
-"Bet you'll go all soft the eventually when you see some cute girl over there, Asami-san."\
+"Bet you'll go all soft immediately when you see some cute girl over there, Asami-san."\
 "Huh? What do you take me for."\
 "It's just true. You'd go weak in the knees unconditionally for anyone with a big chest."
 
@@ -158,7 +158,7 @@ I nearly choked on the beer I was drinking.
 There she goes again, teasing me about being a pervert. Hanamori looked at me, eyes narrowing, laughing softly. Hanamori's laughing face is, as always, cute.\
 The return of her usual sharp-tongued banter was a relief. This really is comfortable, I found myself thinking.
 
-"I mean, come on. 'Eventually,' that's—"
+"I mean, come on. 'Immediately,' that's—"
 
 "Hope you find a 'good match' over there."
 

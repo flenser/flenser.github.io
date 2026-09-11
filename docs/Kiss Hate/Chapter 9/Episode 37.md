@@ -118,7 +118,7 @@ Hanamori said it, her expression turning a little serious.
 
 I fumbled, flustered. Hanamori's gaze was unnervingly sharp.
 
-"Could it be."
+"Could it be?"
 
 Hanamori leaned in slightly.
 
@@ -209,8 +209,8 @@ A little warmer, somehow.
 Parked at the client's lot, I checked my phone. A LIME notification.\
 From Asakura-san.
 
-*"Want to grab drinks next Wednesday?*\
-*There's something I want to talk to you about."*
+*"Want to grab drinks next Wednesday?\
+There's something I want to talk to you about."*
 
 A short message, but it landed with unusual weight.\
 My heart gave one hard, heavy beat.

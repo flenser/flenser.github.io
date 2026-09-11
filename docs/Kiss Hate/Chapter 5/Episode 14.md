@@ -28,7 +28,7 @@ I took a sip from mine. A little ways off, Asakura-san sat at one table, and Tam
 
 Hanamori said it in a low voice, smirking.
 
-"What is."\
+"What is?"\
 "Your outfit."
 
 Straight to the point, no hesitation.
@@ -76,7 +76,7 @@ Hanamori suddenly changed the subject.
 
 "I heard it, I heard it. So good."\
 "Right? There'll be another solo live too."\
-"Ah, yeah. I already signed up.\
+"Ah, yeah. I already signed up."\
 "Oh, when is it?"\
 "Huh? February 20th."\
 "Huh... guess I'll sign up too, then."\

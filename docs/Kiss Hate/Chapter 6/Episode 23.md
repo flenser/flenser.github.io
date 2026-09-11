@@ -86,7 +86,7 @@ Hanamori's voice cut in, cold and sharp.
 
 "Besides, this is my own problem. It has nothing to do with you, Asami-san."\
 "No, but..."\
-"What is it. You're being pushy."
+"What is it? You're being pushy."
 
 Hanamori's eyes stared straight at me.\
 That gaze hurt.
@@ -152,7 +152,7 @@ Expressionless, eyes dead.\
 Scary. Genuinely scary.
 
 "...No, that's not it, I said—"\
-"What's not it. Never mind, it's fine."\
+"What's not it? Never mind, it's fine."\
 "No, it's not fine—"\
 "Turn right, up ahead."
 

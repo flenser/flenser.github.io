@@ -108,7 +108,7 @@ The moment the meeting ended, I grabbed Hanamori by the arm.
 
 I bowed briefly to Asakura-san, Tamura, and the others, then more or less dragged Hanamori into the break room.
 
-"What was that just now. Way too unnatural."
+"What was that just now? Way too unnatural."
 
 I pressed in, lowering my voice. Hanamori just blinked at me.
 
@@ -133,7 +133,7 @@ The words caught in my throat.
 
 She had been laughing, it was true.
 
-"Honestly you don't seem very into this at all. Do you actually like Asakura-san, Asami-san?"
+"Honestly, you don't seem very into this at all. Do you actually like Asakura-san, Asami-san?"
 
 Hanamori sighed and asked, dead serious.
 

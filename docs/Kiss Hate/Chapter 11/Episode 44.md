@@ -52,7 +52,7 @@ That's when it happened.
 It was Asami-san.
 
 "...Just your imagination."\
-"Don't lie. You're feeling sick, aren't you."\
+"Don't lie. You're feeling sick, aren't you?"\
 "I'm not, actually."
 
 Why does she always notice?\

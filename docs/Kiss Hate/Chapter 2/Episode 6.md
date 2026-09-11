@@ -160,7 +160,7 @@ Hanamori glanced at it but didn't reach for it.
 I cracked open my own coffee can and sat down beside her.
 
 "Um, could you not sit next to me?"\
-"Why not."\
+"Why not?"\
 "I can't concentrate with someone next to me."
 
 Hanamori shot me an annoyed look.
@@ -193,7 +193,7 @@ Hanamori laughed a little.
 "Yeah. You're normally so cold. It's only at times like this that you're nice."\
 "'Only at times like this.' I'm nice all the time."\
 "No, you're cold. An ice queen."\
-"What's that supposed to mean."
+"What's that supposed to mean?"
 
 I couldn't help but burst out laughing, and Hanamori giggled too.
 

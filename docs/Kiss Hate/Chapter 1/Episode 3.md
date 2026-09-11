@@ -136,7 +136,7 @@ Another sigh.
 
 I heard her muttering under her breath.
 
-"What is."\
+"What is?"\
 "What is? Everything. This pairing's the worst, and I haven't gotten to talk to Tamura-san at all today."\
 "That again? You should just give up already."
 

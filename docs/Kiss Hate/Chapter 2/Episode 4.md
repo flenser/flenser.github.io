@@ -90,7 +90,7 @@ Her real voice. Completely unguarded.
 "Should be fine as long as we're in the car."\
 "I'm just not great with thunder, in general..."\
 "Guess there's no one around right now to go '~thunder's so scaaary♡' and act cute at."\
-"What. Are you making fun of me?"
+"What? Are you making fun of me?"
 
 I teased her lightly, doing a falsetto impression of her high-pitched voice, and Hanamori spat back flatly, staring blankly out through the windshield.
 
@@ -98,7 +98,7 @@ Her usual rhythm gone, her voice strangely unguarded.\
 Only the sound of rain filled the car.\
 The red of the traffic light blurred and wavered against the wet glass.
 
-I opened the can coffee I'd bought at the convenience store earlier. Mine's black. Hanamori's is café au lait. Somehow even that choice feels like it says something about a person.
+I opened the can of coffee I'd bought at the convenience store earlier. Mine's black. Hanamori's is café au lait. Somehow even that choice feels like it says something about a person.
 
 "So, like, Asami-san."
 
