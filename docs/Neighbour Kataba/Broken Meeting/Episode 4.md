@@ -66,7 +66,7 @@ For some reason it was me scanning the shelves on both sides — and something c
 It was one of those kits — stir-fry the vegetables, pour in the sauce at the end, done. Fujishiro scurried over to peer at the packet.
 
 "Morishita, you're actually useful."\
-"Why are you talking down to me."
+"Why are you talking down to me?"
 
 Mildly irritated, I dropped the packet into her basket, gathered the few ingredients listed on the back, and we left the supermarket.
 
