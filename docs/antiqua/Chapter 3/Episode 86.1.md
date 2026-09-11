@@ -109,8 +109,8 @@ What sort of self should she show?\
 What sort of person would make Kotone happy?\
 And what sort of person would make Kotone continue to love her?\
 Once she started thinking about it, there was no end\
-A dead end with another name:\
-the troubles of love.\
+A dead end with another name: the troubles of love.
+
 Her throat felt slightly dry.\
 Rinko took a deep breath, breathing out the happy ache that had tightened her chest, a sensation she had forgotten for so long.\
 Then she answered.

@@ -12,7 +12,8 @@ title: '#85: On the Radio / ep.1'
 “Do you think she’ll be able to find you, Rinko?”
 
 Almost an hour had passed since Kotone’s call.\
-It was Kaya’s voice, suppressing a rising laugh, that finally broke the silence inside the car.\
+It was Kaya’s voice, suppressing a rising laugh, that finally broke the silence inside the car.
+
 Would Kotone come to pick Rinko up, or wouldn’t she?\
 It was a nasty little bet, a Game of love that Shandy had goaded her into playing.\
 Kotone probably knew little more than the fact that Rinko’s family home was in Hamamatsu. She had no further information. To make matters worse, they were currently in the car park of a shopping mall near Rinko’s parents’ house.\
@@ -69,8 +70,10 @@ Who had been the one to put the final nail in the coffin?
 “Hm.”
 
 Rinko was doing exactly as Shandy had instructed.\
-The bet, the Game of love she had set for Kotone, was simple.\
-*Come and pick me up right now, by the power of love.*\
+The bet, the Game of love she had set for Kotone, was simple.
+
+*Come and pick me up right now, by the power of love.*
+
 In truth, it was hardly a bet at all.\
 It was one-sided.\
 No matter how hard Kotone tried, she could not possibly move right now.\
@@ -124,8 +127,7 @@ It only hurt.
 
 “Let’s have some fun like we used to, Rinko.”\
 “…We can’t.”\
-“You don’t have to lie. Because this much—”
-
+“You don’t have to lie. Because this much—” \
 *"Wait, wait! I forgot to mention something."*
 
 Kaya’s fingers, moving further, were stopped by Kotone’s voice coming through the radio.
@@ -146,7 +148,6 @@ At the same time, hearing her oshi whisper the words *I love them* in that voice
 
 “What’s with you, Rinko? You like the radio that much?”\
 “Shut up!”
-
 *"I suppose there are many times in life when we lose our way. Even so, lighthouses remain standing for travellers who have lost their way. They tell them, \“I’m here. I’ll always be waiting for you.\”"*
 
 Rinko leaned closer to the car stereo speaker.\
@@ -158,7 +159,8 @@ She sounded happier than usual, yet there was a loneliness and melancholy in her
 The radio staff laughed, and Kotone began reading out messages from listeners about lighthouses.\
 Listeners who knew nothing about the circumstances would never realise that what they were hearing was practically a public declaration of love.\
 For Kotone, the lighthouse was none other than Rinko.\
-A sudden call from Yokohama made the lethargy weighing down Rinko’s entire body feel lighter.\
+A sudden call from Yokohama made the lethargy weighing down Rinko’s entire body feel lighter.
+
 Of course it did.\
 All this time, she had listened to her oshi’s voice, watched her on screen, and drawn strength from her.\
 And now that oshi was trying to tell her something, even going so far as to commandeer a radio programme to do it.\
@@ -262,7 +264,7 @@ The fact that the words came so smoothly was undoubtedly because she had been sp
 No.\
 For today, at least, Rinko secretly decided to call it *thanks to* her rather than *because of* her.
 
-“I’m so glad my big brother’s here. You know, the thing to have in the countryside is an eldest son. I’m a lesbian, so I can’t protect the family’s pathetic little *reputation*.”
+“I’m so glad my big brother’s there. You know, the thing to have in the countryside is an eldest son. I’m a lesbian, so I can’t protect the family’s pathetic little *reputation*.”
 
 Colour rose rapidly into Kaya’s face.\
 It was exhilarating.\
@@ -301,9 +303,7 @@ Unless she had a magic *Anywhere Door*, it was impossible to arrive immediately.
 *"And now, the highway j-jam… sorry, traffic information. Kagawa-san from the Road Traffic Information Centre, please. I stumbled over that."*
 
 After some light conversation, the road-traffic report began.
-
 There was congestion caused by an accident on the Shuto Expressway Bayshore Route, and lane restrictions due to construction on the Kan-Etsu Expressway.
-
 Then, unusually, Kotone added a question.
 
 *"Kagawa-san, what are conditions like on the Tomei Expressway? And, um, towards around five this afternoon…"*\
@@ -321,7 +321,8 @@ She was practically being abducted by her former lover and taken to a hotel.\
 Yet all Rinko could focus on was every little thing Kotone was doing as she desperately tried to reach her.\
 She was so anxious that she was stumbling over her script.\
 She was checking traffic conditions, something she normally never did.\
-She was making mistake after mistake.\
+She was making mistake after mistake.
+
 The image of Kurosu Kotone, the refined and perfect chameleon actress, had disappeared.\
 Kotone was not perfect.\
 She was still an inexperienced little boat, unable to hide her agitation and carry on with a flawless performance.\
