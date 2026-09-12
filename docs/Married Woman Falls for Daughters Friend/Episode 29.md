@@ -22,8 +22,8 @@ Kai kept her hand on my shoulder and smiled.\
 Kai's voice shook, her face bowed as if to hide it.\
 Her arms, stretched out like a bridge, and her shoulders, trembled in small, uneven waves.\
 "......................................."\
-How to put it. Something like this.\
-Was I a jaded adult for what crossed my mind, right here, right now.\
+How to put it? Something like this.\
+Was I a jaded adult for what crossed my mind, right here, right now?\
 "Are you faking it?"\
 Kai's trembling stopped instantly. Yes, that shaking had been rather too theatrical. Or rather, badly done.\
 Far too much of it.\

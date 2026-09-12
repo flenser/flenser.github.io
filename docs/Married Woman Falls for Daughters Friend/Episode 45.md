@@ -79,7 +79,10 @@ Kai's thin fingers pushed my hair aside, and the moment they brushed my ear, my 
 "...That's erotic, isn't it."\
 "Sorry, what was that?"\
 "Now, my first ever ear cleaning begins."\
-"Wait—"\
+"Wait—"
+
+![lap](/assets/images/married-falling-lap.jpg)
+
 Please don't casually turn someone's heart into a windswept wasteland with a comment like that. She wasn't wrong, though. My own mistake, entirely, entrusting my ear to someone who'd never even cleaned her own.\
 "Be careful with that. You understand? Careful."\
 "You be careful too, Yuki-san, don't go flipping up my skirt just because you're bored."\

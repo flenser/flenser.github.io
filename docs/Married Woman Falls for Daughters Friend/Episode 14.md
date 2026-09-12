@@ -58,7 +58,7 @@ It went left. I could face forward again without following it.\
 A simple movement practised in the heart, and finally I could leave this spot. The car turned and started moving, as if turning its back on Kai and her house, long since out of sight.\
 There was no need to think deeply about it. This kind of thing happened. Did it?\
 A fourteen-year-old girl had kissed me with a touch of mischief in it, nothing more, the most ordinary thing.\
-Did it?\
+Was it?\
 At the very least, I had never kissed my own daughter since she turned fourteen.\
 Even as the car moved, the lips I was holding firmly together pressed against each other, upper and lower, and the sensation kept replaying itself unbidden, as if to hold together something that might otherwise scatter to pieces.\
 Heedless of the voice telling it to stop, the feeling of Kai's thin lips came back again and again.\
@@ -67,7 +67,7 @@ Rapture.\
 From the way those eyes had melted, I was certain it hadn't been an accident. It had been deliberate. And.\
 What had been in my own eyes, receiving that gaze from a distance of almost nothing.\
 I pulled over, still only halfway home, and looked away from the road ahead as if giving up.\
-"What is that girl..."\
+"What is that girl...?"\
 My forehead against the steering wheel, something like anguish ran down my jaw like sweat.\
 Kisses just the two of us, our daughter not awake, inside the house.\
 The conditions I had set myself. Rising in my mind now, for some reason.

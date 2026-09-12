@@ -85,5 +85,5 @@ A sensation unpleasant enough to nearly lift me out of my seat.\
 The man who had greeted us earlier spoke, as if representing the rest.\
 "And you are, ah, we never did get your name."\
 "...What is this?"\
-Before giving my name, I let the simple question, *why are there seven of you*, carry in my tone instead.\
+Before giving my name, I let the simple question, *why are there seven of you?*, carry in my tone instead.\
 "My apologies. All of us here are Candidate Number One for Kai's father."

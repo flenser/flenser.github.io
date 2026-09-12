@@ -8,6 +8,8 @@ title: 'Chapter One: "The Clod of Earth Awaits the Snow" — Part Two'
 ## Chapter One: *"The Clod of Earth Awaits the Snow"* — Part Two
 
 \
+![umbrella](/assets/images/married-falling-umbrella.jpg)
+
 A small girl in a middle school uniform was spinning her umbrella in slow circles.\
 That was all the information there was — and what surprised me within it was a colour I hadn't expected.\
 Yellow-green eyes.\

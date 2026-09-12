@@ -85,6 +85,9 @@ What would my daughter think, if she knew how devotedly her mother had been look
 "I really am very grateful, you know."\
 "Hard to take seriously while you're bouncing."\
 Her words bounced along just as lightly, enjoying themselves, and none of it landed with any real weight. Only once she'd said it did Kai stop bouncing and sit up. Only then did I finally turn my whole body toward her on the bed. While she'd been bouncing, glimpses under her skirt kept flickering into view, awkward to avoid looking at.\
+
+![bouncing](/assets/images/married-falling-bouncing.jpg)
+
 "Um, can I ask something?"\
 "What?"\
 Kai resettled herself, shifting to the edge of the bed, closing the distance between us. I half-braced for her to launch herself straight at the sofa the way she sometimes did. But what came flying at me wasn't Kai herself, it was a request.\

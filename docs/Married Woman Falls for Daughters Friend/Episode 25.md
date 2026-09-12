@@ -31,11 +31,11 @@ Talking had settled me considerably, and the nausea had receded.\
 At my prompting, Kai climbed into the passenger seat and tossed her bag into the back. I followed her example and threw mine in too.\
 Free of her bag, Kai stretched her arms and legs out. Watching her do it loosened something in my own shoulders. Though it was too early to relax. I needed to put distance between us and that house as fast as possible, and started the car immediately. I twisted around to check, more than once, that no one was following.\
 "It's fine. They almost never come outside the house."\
-"What even are they, some kind of monster..."\
+"What even are they, some kind of monster...?"\
 At the very least, not people. Beyond anything I understood as human. Kai had been right about all of it, and I found myself marvelling that she'd managed to grow up able to communicate properly at all, in that kind of environment. She could hold a real conversation. There had apparently been someone who'd raised her, and perhaps that person was the reason.\
 But had even that person, in the end, never really intended to save her at the root of it.\
 Driving without any destination in mind, Kai murmured.\
-"What should we do from here, I wonder."\
+"What should we do from here, I wonder?"\
 "I wonder..."\
 There wasn't really an answer I could give. I'd acted with no plan at all.\
 What I had instead was simply the refusal to let *giving up* be the answer. Sending her back to that house, not an option, not even worth weighing. With that road closed off, what remained was one option, or two, really.\

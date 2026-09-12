@@ -14,7 +14,7 @@ It had been close to fifteen years, after all, mistakes were entirely possible. 
 The blurred photograph in my memory matched the hotel's night view exactly.\
 "Ah..."\
 I covered my eyes with a hand, as if grit carried on the wind had caught them.\
-Does causality really exist in a life.\
+Does fate really exist in a life?\
 I knew this hotel Shiho had led us to.\
 Memory surfaced of vows exchanged in a chapel where nothing but sea and sky showed through glass walls.\
 This was the hotel where I had held my wedding.\

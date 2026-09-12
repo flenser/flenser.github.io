@@ -54,6 +54,9 @@ I took hold of both of Kai's wrists, and just like that her hands went still. Ka
 Entirely fragile. The eyes that overwhelmed people had nothing to do with it, the difference in strength was exactly what it looked like.\
 Confronted with that plain physical reality, for a moment my back went cold.\
 I didn't know what feeling had surged through me, but something close to a chill came with it.\
+
+![car](/assets/images/married-falling-car.jpg)
+
 "Which one are you hiding? Or both?"\
 Kai asked with certainty. A straight unobstructed bridge extended between us, the kind that offered no room to deflect. Nowhere to put up a barrier, only a road made for running straight down.\
 This was my own careless mistake. I had asked the wrong thing, and now I would accept what came and let it show.\

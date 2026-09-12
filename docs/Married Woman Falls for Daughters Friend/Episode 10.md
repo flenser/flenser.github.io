@@ -25,7 +25,10 @@ A waffle cone wrapped in yellow wax paper, soft serve the faint colour of puddin
 "Don't worry about it, it's my treat."\
 Pay me back somehow... it was five hundred yen. What kind of allowance situation was she working with. Her house was a mansion that no number of *baka*s could adequately describe, though perhaps it was precisely because of that kind of old money that they were strict about such things.\
 Part of why I'd agreed to come was curiosity about Kai's home. My husband hadn't gone into specifics, but from Kai herself, I remembered her saying before that there was no one in that house worth calling decent. What they had in common was the complete absence of anything positive. It sounded like a world I couldn't picture.\
-Facing the main road, there was nothing much to see beyond the constant stream of people and cars passing in both directions.\
+Facing the main road, there was nothing much to see beyond the constant stream of people and cars passing in both directions.
+
+![icecream](/assets/images/married-falling-icecream.jpg)
+
 "So why are you in your uniform?"\
 I deliberately asked the thing she'd said was too much effort to explain. Kai stared at her soft serve and told another lie.\
 "I like wearing it."\
