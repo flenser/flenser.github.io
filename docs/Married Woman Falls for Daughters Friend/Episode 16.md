@@ -19,6 +19,9 @@ On impulse, I had slapped Chitaira Kai across the cheek.\
 No sensation of the contact remained in my palm.\
 "You're the one doing the mocking."\
 My own voice was shaking. Whether from anger or from the fear of having raised my hand against someone, I couldn't tell. Kai, having been slapped, staggered, her balance giving way until she nearly fell to the ground. Had I really hit her that hard. I instinctively moved to crouch down and check on her, then stopped, remembering I was the one who had hit her, and hovered there halfway. In that time Kai had righted herself and pressed her hand to her cheek, almost as though shaking hands with the mark left there.\
+
+![slap](/assets/images/married-falling-slap.jpg)
+
 "I'm relieved you're the kind of person who hits somewhere visible."\
 "...What?"\
 Kai said just that and headed straight for the front door. I nearly chased after her like an idiot, still holding the hose, but I spotted my daughter coming to meet her and quickly turned back toward the garage, affecting no involvement.\

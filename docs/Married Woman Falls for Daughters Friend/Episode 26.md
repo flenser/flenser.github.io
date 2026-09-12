@@ -14,7 +14,10 @@ Even as someone Kai had chosen to contact, the fact that she was from that house
 "Oh, she's already here."\
 In the direction Kai pointed from the lobby, a woman in a wisteria-coloured yukata, slightly out of season, was standing. She noticed us immediately and came toward us.\
 A presence that brought to mind someone walking beneath a summer sky, the kind of beauty that makes the person facing her feel ashamed of their own vocabulary and fall silent. And softening that shame, a gentle smile that dissolved whatever had contracted in you. A floral scent drifted from the air around her, something I couldn't identify the variety of. Objectively speaking, nine out of ten people would probably find in her the very pinnacle of beauty.\
-And as if to prove the blood connection, she had Kai's eyes. Yellow-green.\
+And as if to prove the blood connection, she had Kai's eyes. Yellow-green.
+
+![Shiho](/assets/images/married-falling-shiho.jpg)
+
 "Hey. I thought I'd never see you again."\
 "Same, Shio-nee-san."\
 "You've grown so much... no you haven't, not at all. Did you get any taller since fifth grade?"\

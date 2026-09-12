@@ -17,7 +17,7 @@ No matter how far I searched for somewhere to lay the blame, I could find nothin
 And so perhaps that day had simply been destined to be the day I and Kai met.
 
 I was still gripping the steering wheel, still dragging behind me the fact that I had gotten angry when a colleague teased me about being overprotective. Even between people who knew each other well, having someone make a joke at you when you were already flustered — I had reacted too strongly. The whole way here I had been replaying that moment over and over, as if running an investigation.\
-While I was at it, I began gradually to think: *had I really been that angry... maybe I'd just raised my voice a little...* — finding, by degrees, a more self-serving place to land. I made an effort to stop thinking about it. There was nothing to be gained from going further.\
+While I was at it, I began gradually to think: *had I really been that angry...? maybe I'd just raised my voice a little...* — finding, by degrees, a more self-serving place to land. I made an effort to stop thinking about it. There was nothing to be gained from going further.\
 I could apologise tomorrow, when I got to work. That was all there was to it.\
 More than that — right now, I needed to be thinking about my daughter.\
 The light changed, and I could see the car at the front of the queue finally beginning, slowly, to move. I glanced sideways at a wave of foreign tourists who had poured off a bus and filled the pavement, and eased the car forward.\

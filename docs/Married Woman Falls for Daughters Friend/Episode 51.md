@@ -22,7 +22,10 @@ Slick and heavy, Kai's small mouth crept forward, trying to swallow my big toe w
 My eyes met Kai's as she looked up at me while holding my toe between her lips, sending a sudden tremor through my frame. Only now did panic set in - the realisation that I was committing something utterly monstrous. It was far too late.\
 With a middle school student.\
 In a hotel.\
-I was letting her lick my toes.\
+I was letting her lick my toes.
+
+![toes](/assets/images/married-falling-toes.jpg)
+
 Not a single element of this situation was without fault.\
 What was more, this hotel was the very place where my husband and I had held our wedding.\
 In a place so steeped in precious memories, I was letting a middle school girl lick my foot.\

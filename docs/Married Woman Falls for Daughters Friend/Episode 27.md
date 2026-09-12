@@ -31,7 +31,7 @@ I asked the slightly tilted head in front of me.\
 "Yes. I was on the receiving end of group beatings myself, once."\
 In that case, I thought, and felt something sharpen, a readiness to bite down.\
 "You knew, and you left her there. Knowing."\
-*Ah, so that's where this is going,* Shiho said with a nod of understanding. Not a trace of guilt in the manner, and the disconnect of it, the sheer otherness of whatever this woman was running on, crackled and sparked behind my eyes alongside the anger that burned regardless.\
+*"Ah, so that's where this is going,"* Shiho said with a nod of understanding. Not a trace of guilt in the manner, and the disconnect of it, the sheer otherness of whatever this woman was running on, crackled and sparked behind my eyes alongside the anger that burned regardless.\
 "Even if you weren't directly involved... I find myself about to get angry at you."\
 She was right about herself, it seemed. She was not fully human. Because only a person with an inhuman heart could sit there unmoved with someone's unconcealed anger directed at them.\
 "How wonderful."\

@@ -50,7 +50,7 @@ My face hurt. Like sparks flying from a burning building were scorching and cutt
 Occasionally the clouded sound of accumulated saliva spilling over threatened to drown my brain.\
 "............ah............"\
 That face flushed with rapture, that face beginning to come apart under breathlessness, that figure still running its tongue regardless. Something nearly slipped out that I pulled back before it could fall toward Kai.\
-What was I about to say. Something I had barely used in my entire life.\
+What was I about to say? Something I had barely used in my entire life.\
 Having lived as someone considered refined, someone far removed from that kind of thing.\
 I was about to come undone as easily as sticking out my tongue.\
 "It's, over now... it's over."\

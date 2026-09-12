@@ -12,7 +12,7 @@ Whether fate truly exists in a person's life, I genuinely don't know.\
 But the one thing that is certain is that every person born will die. Birth, and death. Only those two points are fixed from the start. If that's so, perhaps there are other points fixed from the moment of birth too, points that any line you draw must pass through regardless of what path it takes.\
 In order to trace the shape a person was born with.\
 In order for me to be me.\
-Perhaps that day too, I found Kai.
+Perhaps that day, when I found Kai was one of those.
 
 ---
 
@@ -44,12 +44,12 @@ Sitting in the traffic, my daughter gazed along the pavement as if looking for s
 "What are you talking about?"\
 "Chitaira-san was absent yesterday."\
 I nearly let a beat pass before answering, and caught myself internally.\
-"Was she."\
+"Was she?"\
 "Yeah. If she doesn't come on cloudy days, I figured a downpour like this would be even less likely."\
 "Hmm, absent then..."\
 Playing truant? Unwell? Something at home? Not knowing Kai well enough, I couldn't narrow it down.\
 That was right. I knew almost nothing about that girl.\
-And yet I was letting her lick my fingers. ...What was that even about.\
+And yet I was letting her lick my fingers. ...What was that even about?\
 I dropped my daughter at school, left my husband and Maron in front of the onigiri shop, and set off alone for the office. Driving through rain that restricted visibility far more than usual, in the kind of darkness that swallowed the town and made everyone easy to overlook, with the loosened attention that came from having delivered my family safely — conditions working against me on every front, the kind where anyone else would have missed her, my daughter included.\
 And yet I found her.\
 Chitaira Kai was standing motionless in front of a sharpening shop with swords displayed in the window.\
@@ -59,12 +59,12 @@ I opened the window and leaned out, calling to her back. I had to raise my voice
 "At least put your umbrella up."\
 It was only after calling out that I noticed Kai wasn't carrying her school bag either.\
 The soaking-wet Kai turned around, saw me, pressed her fringe down with her hand, and broke into a full run.\
-"What? Just a — wait — what on earth."\
+"What? Just a — wait — what on earth?"\
 My first reaction was bewilderment at the sudden response. I had no intention of leaping out into the downpour. But when I saw her foot catch on the rain-slicked pavement and her knee hit the ground, I decided to follow. I pulled the car to a temporary stop at the side of the road and ran with small, careful steps, keeping my back straight to avoid slipping.\
 Kai, apparently realising she was being chased, ran with everything she had, trying to get away. She turned down a road I didn't usually take, cut past an empty lot for sale, and turned onto the road that led toward the station. It was only the difference in our leg lengths that finally let me catch up, grabbing her by the hand.\
 "You run... pretty hard... for someone trying to escape."\
 I had let stubbornness take over partway through, and the sudden exertion had me close to sick.\
-"What do you want."\
+"What do you want?"\
 Kai, arm caught, registered her objection.\
 I was the one who wanted to ask that. Running the moment she saw my face.\
 "I don't know, but you ran, so I chased."\
@@ -80,7 +80,10 @@ Feeling the helplessness of that impertinent Kai with my own hands.\
 Ah.\
 For just a moment, something ugly surfaced like sewage rising from a drain.\
 I bit down hard on my lower lip and pushed it back down as it tried to lift its head. What was I thinking, at a time like this. Perhaps thanks to the rain pouring over me, that impulse cooled almost immediately.\
-We were both already soaked beyond recovery, the hair and makeup I had prepared before leaving now simply a place for rainwater to collect. There was no point taking shelter under an eave at this stage, so I stayed where I was and looked down at Kai, and what I glimpsed through her wet fringe made me startle.\
+We were both already soaked beyond recovery, the hair and makeup I had prepared before leaving now simply a place for rainwater to collect. There was no point taking shelter under an eave at this stage, so I stayed where I was and looked down at Kai, and what I glimpsed through her wet fringe made me startle.
+
+![rain](/assets/images/married-falling-rain.jpg)
+
 I pushed her fringe back to get a better look. Kai tried to stop me, but her resistance was pointless, as I had just demonstrated. I held her arm aside easily, and at what was exposed on the uncovered skin, an unpleasant cold came over me.\
 "What is this."\
 Above her left eye, around the hairline, a large blue-black bruise spread across the skin.\
