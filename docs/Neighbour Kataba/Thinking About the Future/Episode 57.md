@@ -8,7 +8,6 @@ title: Episode 57
 ---
 Episode 57
 
-\
 Once again, I was agonising in front of my wardrobe.
 
 Every time I meet Fujishiro for something other than studying, it always ends up like this.
