@@ -103,7 +103,7 @@ But—
 “Because, because Mikoto-san looks so sad…”
 
 —now she understood why she couldn’t feel any anger, disappointment, or sadness.\
-Hiroo Michelle had absolutely no sense of timing.
+Hirose Michelle had absolutely no sense of timing.
 
 “Won’t you show me your face already, Mikoto?”
 
@@ -293,7 +293,7 @@ Apparently she still intended to drink. Shandy looked exasperated, while Michell
 
 Shandy cracked her neck and assumed a fighting stance. She glared at Michelle with such a terrifying smile that even Mikoto and the three spectators recoiled.\
 It made no difference how much Shandy hinted at whatever feelings lay beneath the surface. Michelle simply didn’t respond.\
-Hiroo Michelle was a woman to whom social niceties and suggestive remarks meant nothing. She took words at face value and nothing more.\
+Hirose Michelle was a woman to whom social niceties and suggestive remarks meant nothing. She took words at face value and nothing more.\
 Shandy’s natural enemy.
 
 “Let’s have a proper game, then. We’ll see whether you scream first, or my arms get torn off!”\
