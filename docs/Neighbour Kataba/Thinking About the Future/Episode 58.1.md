@@ -4,7 +4,7 @@ layout: episode
 nav_order: 59
 parent: Thinking About the Future
 sequence: 59
-title: 'Supporter Bonus: "Fujishiro's Rice Balls"'
+title: 'Supporter Bonus: "Fujishiro''s Rice Balls"'
 ---
 ## Supporter Bonus: "Fujishiro's Rice Balls"
 
