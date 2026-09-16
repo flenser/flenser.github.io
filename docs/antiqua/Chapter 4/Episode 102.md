@@ -452,7 +452,7 @@ I didn’t want to say it.
 
 “You’ve become a little more stubborn over these four years. Perhaps being left alone has made you rough around the edges. It pains me to see it.”\
 “Don’t mock me.”\
-“Rest assured. Those dreary days are over. From now on, I shall once again cherish you as my doll, Ashiya Chie. Close down this shop and devote yourself to me.”
+“Rest assured. Those dreary days are over. From now on, I, Ashiya Chie, shall once again cherish you as my doll. Close down this shop and devote yourself to me.”
 
 Ah.\
 Of course.\
