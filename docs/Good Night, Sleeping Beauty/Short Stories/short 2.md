@@ -3,7 +3,7 @@ grand_parent: Good Night, Sleeping Beauty
 layout: episode
 nav_order: 2
 parent: 'Good Night, Sleeping Beauty: Short Stories'
-sequence: 144
+sequence: 502
 title: "Sleeping Beauty and Valentine's Day, Just a Little into the Future"
 ---
 **Sleeping Beauty and Valentine's Day, Just a Little into the Future**
