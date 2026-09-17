@@ -17,7 +17,7 @@ nav_exclude: true
 - [Don't you feel ashamed to be overpowered by a maid? ✅](/docs/Don't you feel ashamed to be overpowered by a maid/overpowered-by-maid.html)
 - [Eternal Rest (I'm Just Tired) ❌](/docs/Eternal Rest/eternal-rest.html)
 - [From the Place Without Barlines ✅](/docs/From the Place Without Barlines/place-without-barlines.html)
-- [Good Night, Sleeping Beauty](/docs/Good Night, Sleeping Beauty/sleeping-beauty.html)
+- [Good Night, Sleeping Beauty ✅](/docs/Good Night, Sleeping Beauty/sleeping-beauty.html)
 - [How about afternoon tea? ✅](/docs/How about afternoon tea/how-about-afternoon-tea.html)
 - [I Stopped Being Possessive, and Then She Fell Apart ✅](/docs/Stopped Being Possessive/stopped-being-possessive.html)
 - [I Was Kissed by the Junior I Hate ✅](/docs/Kiss Hate/kiss-hate.html)

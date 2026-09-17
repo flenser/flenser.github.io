@@ -1,7 +1,7 @@
 ---
 title: Good Night, Sleeping Beauty
 has_children: true
-tags: ["slow burn", "adult life", "high school", "age gap", "co-dependence", "seduction", "parental neglect", "suggestive", "artists", "time jump", "angst", "published as light novel", "ongoing"]
+tags: ["slow burn", "adult life", "high school", "age gap", "co-dependence", "seduction", "parental neglect", "suggestive", "artists", "time jump", "angst", "published as light novel", "adapted to manga", "complete"]
 ---
 ## Original Title
 
