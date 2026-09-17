@@ -1,5 +1,14 @@
+---
+grand_parent: antiqua ~Amber-Colored Game of Love~
+layout: episode
+nav_order: 92
+parent: 'Chapter #4: Amor magister est optimus'
+sequence: 121
+title: '#107: Camp Fire / ep.3'
+---
 ## #107: Camp Fire / ep.3
 
+\
 "What... did you just say?"
 
 She'd had no warning at all that a breakup was coming. Thinking she must have misheard, she asked again, only to be met with the same merciless words returned to her.
@@ -86,8 +95,10 @@ In the end, no word ever came from Shandy. Unable to sleep a wink, all Mikoto co
 Sent off by Kotone and Rinko's exasperated sighs, written plainly across both their faces, Mikoto left the campsite behind. More precisely, Kotone drove her down to the bus stop at the foot of the mountain, and from there it was transfer after transfer until she finally made it back to the city.\
 The whole way, rattling along on buses and trains, her eyes stayed glued to her phone screen. She lost count of how many times she watched the clock tick over, or the battery percentage tick down.\
 Once the shop closed for the night and morning came, surely some word would arrive. Clinging to that thought, she waited for contact, and tried reaching out herself in turn — met each time with nothing but silence.\
-The breakup was starting, finally, to feel real. Whatever hope she'd had that this was just some prank, as Kotone and Rinko insisted, wore thinner with every passing hour.\
-*What sort of person is Chesha, really?*\
+The breakup was starting, finally, to feel real. Whatever hope she'd had that this was just some prank, as Kotone and Rinko insisted, wore thinner with every passing hour.
+
+*What sort of person is Chesha, really?*
+
 The identity of the former lover who'd stolen Shandy away remained even more of a mystery than Shandy herself. Knowing wouldn't actually let her do anything about it, and yet the question wouldn't leave her alone.\
 Or rather — it was the only thing left within Mikoto's power to do. However long she waited, Shandy sent no word. And even if she asked outright, Shandy surely had no intention of answering.\
 On the shinkansen bound for Tokyo Station, Mikoto turned it over in her mind.\

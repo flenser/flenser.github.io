@@ -1,5 +1,14 @@
+---
+grand_parent: antiqua ~Amber-Colored Game of Love~
+layout: episode
+nav_order: 91
+parent: 'Chapter #4: Amor magister est optimus'
+sequence: 120
+title: '#106: Camp Fire / ep.2'
+---
 ## #106: Camp Fire / ep.2
 
+\
 Stepping out of the cottage's built-in bathroom, Rinko dug her cosmetics out of her travel kit.\
 Campfires scorch the skin and dry out the air. Out here in raw nature, staying "natural" simply wasn't an option Rinko was willing to entertain.\
 She was twenty-eight already. Long past whatever turning point her skin was supposed to have hit, and always standing next to the very embodiment of beauty besides. She simply wanted to stay beautiful, as a woman, on her own terms.\
@@ -31,7 +40,8 @@ Being brought this far felt maddening, somehow.
 "Well, fine, I suppose."
 
 The phrase *soulmate* drifted across her mind, and she found herself disgusted at her own naive, love-drunk foolishness.\
-But all of it was something she'd wanted, and something wanted of her in turn. She couldn't lie to herself, so this childish inability to be honest with herself about certain things was just something to correct, little by little, over time.\
+But all of it was something she'd wanted, and something wanted of her in turn. She couldn't lie to herself, so this childish inability to be honest with herself about certain things was just something to correct, little by little, over time.
+
 She couldn't marry Kotone. That was for Kotone's own sake, and for the sake of Rinko herself, a fan waiting eagerly for that actress's career to flourish.\
 A contract that limited an actress's career wasn't something she needed. Supporting her, devoting herself to her, being allowed to stay by her side — that was enough.
 
@@ -250,8 +260,10 @@ Mikoto's own worries, meanwhile, showed no sign of letting up. She couldn't quit
 "I mean, with me here. She's supposedly hopelessly distrustful of people, seems like she'd be paranoid I might steal her away."
 
 Rinko had a point. Shandy knew about the morning-after with Rinko, knew about the venue viewing. Given everything up to now, this seemed like exactly the sort of thing she'd corner Mikoto over with that quiet smile of hers.\
-When Mikoto had nervously mentioned the camping trip, the reply that came back had been almost disarmingly simple.\
-—*I don't mind at all. Please, spread your wings and enjoy yourself.*\
+When Mikoto had nervously mentioned the camping trip, the reply that came back had been almost disarmingly simple.
+
+—*I don't mind at all. Please, spread your wings and enjoy yourself.*
+
 Whether to take it at face value, or whether it was a cold sort of dismissal, was impossible to say. Shandy's tone had been the usual soft, playful one that gave nothing away, and there'd been nothing to read from it over the phone. Even face to face, honestly, her expression probably wouldn't have given anything away either.
 
 "What d'you make of it, sis?"\

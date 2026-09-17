@@ -1,5 +1,14 @@
+---
+grand_parent: antiqua ~Amber-Colored Game of Love~
+layout: episode
+nav_order: 90
+parent: 'Chapter #4: Amor magister est optimus'
+sequence: 119
+title: '#105: Camp Fire / ep.1'
+---
 ## #105: Camp Fire / ep.1
 
+\
 The Special Missions Office, 26th floor, Hibiya Trading.\
 Sanae sat in the section chief's compact office chair, spinning round and round. Not out of boredom, and not for fun. Her workload was piled higher than a mountain, its severity deeper than the ocean floor. Without spinning her brain like a propeller, or a screw, there was no hope of solving any of it.\
 And yet, she couldn't get a single thing done.
