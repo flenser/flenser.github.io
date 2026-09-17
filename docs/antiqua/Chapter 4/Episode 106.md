@@ -88,7 +88,7 @@ Of course, she had countermeasures ready in case any of them tried to pull somet
 "...Sorry."\
 "Go get some proper rest, would you. Pushing yourself never does anyone any good."
 
-With that, Kuto took her leave. Before Sanae could even fully process whatever mix of gratitude and irritation those parting words deserved, her phone buzzed. Touko, apparently having caught wind of the situation from somewhere, had come to pick her up near the head office.
+With that, Kuto took her leave. Before Sanae could even fully process whatever mix of gratitude and irritation those parting words deserved, her phone buzzed. Toko, apparently having caught wind of the situation from somewhere, had come to pick her up near the head office.
 
 "Such a worrywart..."
 
@@ -108,25 +108,25 @@ It concerned the true identity of the reporter who'd come to interview Mikoto: M
 Her brain had already stopped working entirely. Her wavering vision blacked out, and the ground gave way beneath her feet. Iida's worried voice echoed somewhere distant.\
 She regained consciousness in the back seat of a taxi. A coat had been draped over her like a blanket, and her head rested on someone's lap. That familiar softness, that familiar scent. The quadruple affliction seemed to ease, just slightly.
 
-"...Touko."\
+"...Toko."\
 "Geez, I was so worried!? I told you this morning not to push yourself!"
 
-Underneath the worried tone, something like anger and exasperation both leaked through. Turning her head to look up at Touko felt somehow pathetic, so instead Sanae buried her face against a thigh, no doubt still in the thin leggings Touko had thrown on before dashing out.
+Underneath the worried tone, something like anger and exasperation both leaked through. Turning her head to look up at Toko felt somehow pathetic, so instead Sanae buried her face against a thigh, no doubt still in the thin leggings Toko had thrown on before dashing out.
 
 "Anything to say for yourself?"\
 "...Sorry to have worried you."\
 "You really should be!"
 
-Sanae let herself be thoroughly mussed, hair rumpled under Touko's hand, as the taxi carried them from Shimbashi toward home in Kawasaki.\
-Touko's anger, however, wasn't really aimed at Sanae for overworking herself. It was aimed somewhere else entirely.
+Sanae let herself be thoroughly mussed, hair rumpled under Toko's hand, as the taxi carried them from Shimbashi toward home in Kawasaki.\
+Toko's anger, however, wasn't really aimed at Sanae for overworking herself. It was aimed somewhere else entirely.
 
 "Iida-kun's seriously not okay for this! Even in a state like this, he kept insisting he absolutely had to tell you something!? Can you believe it!?"
 
-Iida was loyal to a fault. No doubt he'd stuck rigidly to proper reporting procedure even with Touko glaring daggers at him the whole time. She'd have to apologise to him later.
+Iida was loyal to a fault. No doubt he'd stuck rigidly to proper reporting procedure even with Toko glaring daggers at him the whole time. She'd have to apologise to him later.
 
 "What did he say?"
 
-Apparently disgusted by her workaholic tendency to put the job ahead of her own health, Touko spat it out.
+Apparently disgusted by her workaholic tendency to put the job ahead of her own health, Toko spat it out.
 
 "Something about the reporter who came to interview Mikoto-san being the enemy, or whatever..."\
 "The enemy..."
@@ -141,7 +141,7 @@ She felt herself dissolving into that soft warmth. But falling all the way into 
 
 "Tell Charlotte. Tell her Mikoto-san is being targeted by Cheshire."
 
-In place of an answer, Touko stroked her hair.\
+In place of an answer, Toko stroked her hair.\
 Things were about to get brutally busy from here. So for now, just rest, and prepare for what was coming.\
 With that, Sanae let herself sink fully into the comfort surrounding her.
 
@@ -185,7 +185,7 @@ Sending Mikoto off camping had been the right call. The Kyodo apartment's locati
 "We don't allow discussion of matters outside the shop."\
 "I'll have to insist, in that case."
 
-The phone she held up to show me displayed the name of her loyal little puppet. The reporter, Miyashita Kanade, PR for Cheshire — I already knew, thanks to Touko's message. One signal from her, and the Kurosu sisters are finished.\
+The phone she held up to show me displayed the name of her loyal little puppet. The reporter, Miyashita Kanade, PR for Cheshire — I already knew, thanks to Toko's message. One signal from her, and the Kurosu sisters are finished.\
 Coward.
 
 "You can't run anymore, my dear Shal."\
