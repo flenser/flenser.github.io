@@ -6,7 +6,7 @@ parent: 'Chapter Three: The Weak'
 sequence: 56
 title: "Episode 56: Enviable"
 ---
-## Episode 56 — "Enviable"
+## Episode 56: "Enviable"
 
 \
 "Is that... all Dad did?"
