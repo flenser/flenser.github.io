@@ -8,8 +8,10 @@ nav_order: 0
 ### Stories completed so far
 
 - [A Closet Romance](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/A.Closet.Romance.epub)
+- [A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend Volume One](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/A.Story.About.a.Happily.Married.Woman.Who.Falls.Completely.For.Her.Daughter.s.Friend.Volume.One.epub)
 - [A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/A.Yuri.About.Being.Asked.Hey.Aren.t.You.Gonna.Do.Anything.by.an.Older.Colleague.epub)
 - [A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/A.Yuri.Story.About.an.Elite.Female.CEO.Who.Picked.Up.a.Younger.Woman.in.an.Alley.and.Is.Utterly.Spoiled.Until.She.Sinks.epub)
+- [antiqua - Amber-Colored Game of Love](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/Antiqua.Amber-Colored.Game.of.Love.epub)
 - [Demon Lord Girl Self-Destructs ~The World Has Been Saved, But the Saint Won't Let Go of Me~](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/Demon.Lord.Girl.Self-Destructs.The.World.Has.Been.Saved.But.the.Saint.Won.t.Let.Go.of.Me.epub)
 - [Don't you feel ashamed to be overpowered by a maid?](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/Don.t.You.Feel.Ashamed.to.be.Overpowered.by.a.Maid.Epub)
 - [From the Place Without Barlines](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/From.the.Place.Without.Barlines.epub)
