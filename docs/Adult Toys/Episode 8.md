@@ -34,7 +34,11 @@ Though "baseless" might not be entirely fair, she decided to set the details asi
 
 Sakura stared back at Aya, looking tense. Aya nodded slightly, then asked:
 
+*
+
 "—So, what's the real reason? What's your actual goal?"
+
+*
 
 Something in her expression shifted, her temperature dropping ever so slightly.
 
