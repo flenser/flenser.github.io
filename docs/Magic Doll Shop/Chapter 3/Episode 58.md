@@ -4,9 +4,9 @@ layout: episode
 nav_order: 58
 parent: 'Chapter Three: The Weak'
 sequence: 58
-title: "Episode 58 — Yuria's Wish"
+title: "Episode 58: Yuria's Wish"
 ---
-## Episode 58 — "Yuria's Wish"
+## Episode 58: "Yuria's Wish"
 
 \
 "I'm really glad we were able to take this commission."
