@@ -40,17 +40,17 @@ Holding it to her ear, quietly swallowing a faint tension, she greeted them.
 
 A bright, cheerful voice came back.
 
-"Oh, Mizuki-san! We just talked! Thank you so much for everything."
-"Ah, please, there's no need. It's just what a friend would do. More importantly — I imagine Yuki-san's already mentioned this, but I'd like to have her stay at my place tonight."
+"Oh, Mizuki-san! We just talked! Thank you so much for everything."\
+"Ah, please, there's no need. It's just what a friend would do. More importantly — I imagine Yuki-san's already mentioned this, but I'd like to have her stay at my place tonight."\
 "Oh my, honestly, we're the ones who should be thanking you. Our daughter's seemed like she's been cramming too much lately, looking pretty worn out, so I hope this gives her a good chance to breathe. But — are you sure it's not too much trouble?"
 
 Judging from how she spoke, they really were a kind family. Yuki's problem, too, could probably be solved if she just talked it through with them.
 
 Which meant the problem wasn't the environment, but Yuki herself. Whether she could gather the courage, and which path she'd choose.
 
-"Not at all — if anything, my father won't be home tonight, so I hope that itself doesn't worry you."
-"Oh, not at all! Don't worry about our end! We feel completely at ease with you looking after her, Mizuki-san."
-"You're very kind. Then... I believe Yuki-san will contact you herself about what comes after, but I wanted to let you know in advance that we're both fully aware and in agreement on all of it."
+"Not at all — if anything, my father won't be home tonight, so I hope that itself doesn't worry you."\
+"Oh, not at all! Don't worry about our end! We feel completely at ease with you looking after her, Mizuki-san."\
+"You're very kind. Then... I believe Yuki-san will contact you herself about what comes after, but I wanted to let you know in advance that we're both fully aware and in agreement on all of it."\
 "Yes, thank you so much~!"
 
 After exchanging a few more pleasantries, Aya looked at Yuki, silently asking with her eyes whether to continue the call.
@@ -65,8 +65,8 @@ They watched a variety show on TV in silence for a while, and then Yuki laughed,
 
 Aya, exasperated that she'd start with an apology even now, gave back only a flat "mm."
 
-"Well, I'm just meddling because I want to. No need to worry about it."
-"I will worry, though."
+"Well, I'm just meddling because I want to. No need to worry about it."\
+"I will worry, though."\
 "Figured. That's how you are."
 
 Aya nodded without pushing further, conceding the point, and propped her cheek on her hand against the arm of the sofa.
@@ -95,13 +95,13 @@ Glancing up at her flustered, embarrassed face, Aya let out a blatant sigh.
 
 At Yuki's murmured continuation, Aya nodded without meeting her eyes.
 
-"Yeah, I figured. I get how they feel."
+"Yeah, I figured. I get how they feel."\
 "I get it too. I was born into that kind of family, and I have the grades to make it happen. But I... don't want to hold someone's life in my hands just because of how things turned out. I don't want to devote my life to someone else's will."
 
 That confession, almost a monologue, carried a heavy heat.
 
-"But even so, I'm scared to tell my family."
-"...She sounded like a kind mother, though."
+"But even so, I'm scared to tell my family."\
+"...She sounded like a kind mother, though."\
 "I think so too. Actually, they really are a kind family. But — I don't know. I don't know, but I keep thinking: they're kind because my grades are good, because I'm walking the path my parents want. If I changed course, wouldn't they be disappointed? When it comes down to it, that's how I end up thinking. Even setting that aside, I feel like I'd be betraying that kind expectation..."
 
 Aya considered that this wasn't a fear that could simply be waved away.
@@ -180,7 +180,7 @@ While she was caught in that agonizing conflict, a buzzing sound came from Yuki'
 
 Aya tapped Yuki's now carefully medicated arm lightly, and Yuki looked at it fondly and nodded.
 
-"...Sorry, and thanks. For everything."
+"...Sorry, and thanks. For everything."\
 "It's fine. Go answer that."
 
 Aya stood from the sofa with the medicine, tossed it back into the first aid box, and headed toward her own room. Behind her, she heard Yuki's voice: "Hello, sorry I'm late." — Surprising that there was some connection between the two of them worth a phone call; what could it possibly be about?

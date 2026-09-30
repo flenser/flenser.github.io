@@ -20,13 +20,13 @@ The instructor sat in her own chair and began preparing a demonstration. Glancin
 
 But the instructor just laughed, amused. "Right?"
 
-"There's a separate room for the pieces made to sell, and that one only gets the minimum cleaning needed to not interfere with the work. Want to see it after, if you're curious? Some kind of research thing?"
-"Just idle curiosity. But if it's disgustingly filthy, I might want a peek."
+"There's a separate room for the pieces made to sell, and that one only gets the minimum cleaning needed to not interfere with the work. Want to see it after, if you're curious? Some kind of research thing?"\
+"Just idle curiosity. But if it's disgustingly filthy, I might want a peek."\
 "Ha, sure, no problem. — Nice, you two talk easy. Students? Playing hooky?"
 
 The instructor asked this, touching the clay with wet hands, and Yuki answered.
 
-"Um, yes — a little embarrassing to admit, but playing hooky."
+"Um, yes — a little embarrassing to admit, but playing hooky."\
 "Nothing to be embarrassed about. If class is only something you can take while you're a student, then skipping class to soak in that special feeling is also a privilege only students get. Alright, let's get started!"
 
 At the woman's clap, Aya and Yuki said "please look after us" in unison.
@@ -47,7 +47,7 @@ That it turned out to be a pottery experience once they actually arrived was a s
 
 Yuki looked at Aya, who wet her lips and, gazing happily at the clay, answered.
 
-"Never experienced pottery before. Figured it was worth knowing."
+"Never experienced pottery before. Figured it was worth knowing."\
 "Nice, healthy intellectual curiosity. My grandpa used to say your eagerness to learn scales with your promotion potential. Though he stayed a lifer at the same rank forever."
 
 Yuki, unsure how to react, put on a polite social smile, while Aya and the woman laughed together — "cautionary tale!" "Right, he really had zero interest in anything!" What impressive social skill. Yuki had always thought of herself as the one with more friends, but she'd realized something these past weeks.
@@ -62,12 +62,12 @@ But the woman, showing not a hint of alarm, said breezily, "here, let me borrow 
 
 The speed of it left Yuki's mouth hanging open. Her eyes, sparkling, looked at the woman.
 
-"A pro...!"
+"A pro...!"\
 "Ha ha, don't flatter me too much. Well, you can redo it as many times as you want, so fail all you like."
 
 Yuki said "thank you" and turned back to the clay, then, suddenly curious, looked up.
 
-"Speaking of which, I always get the image from TV of throwing away failed clay..."
+"Speaking of which, I always get the image from TV of throwing away failed clay..."\
 "Ah, that. Well, that's not entirely wrong either. If you knead it back too many times it gets too hard, or takes on too much water, and if trash gets mixed in, that's a lost cause."
 
 Not minding her clay-wet hands, the woman crossed her arms, and Yuki looked at her own clay with some apprehension.
@@ -148,7 +148,7 @@ She hadn't meant to spend that long on the piece, but by the time she noticed, t
 
 They walked side by side along the narrow, one-lane road's guardrail-lined sidewalk, faintly tinged orange now.
 
-"So that's what it's like, huh. I figured an electric wheel would be a much bolder, faster kind of device."
+"So that's what it's like, huh. I figured an electric wheel would be a much bolder, faster kind of device."\
 "Apparently electric ones make it easier to get a clean shape, in exchange for being harder to use. Guess each style has its own strength."
 
 Yuki shared this bit of trivia she'd just looked up online, and Aya smirked, hand on her chin. "Might be worth trying hand-building next time." Noticing a faint smear of clay on Aya's navy hoodie, Yuki burst out laughing despite herself, agreeing, "true."
@@ -193,8 +193,8 @@ Thinking this, Yuki immediately caught her own mistake.
 
 It was true it might weigh them down. But just as much as the mother had supported the family, now, in turn, it was the family's turn to support her, should she ever want to start over. Or maybe that day would come, someday.
 
-"'No matter how many times.'"
-"Yeah."
+"'No matter how many times.'"\
+"Yeah."\
 "I see. So, clay — pottery, huh."
 
 Yuki received the message clearly meant for her, but felt pathetic, frustrated with herself for being unable to promise to actually act on it. Seeing Yuki's dejected face, Aya smiled and continued.
@@ -225,7 +225,7 @@ Yuki stopped walking on the spot. Aya, tilting her head, stopped too, following 
 
 At that, Aya, without blame or exasperation, laughed.
 
-"People don't change that fast."
+"People don't change that fast."\
 "But if I keep standing still, I'll be an adult before I know it. Right?"
 
 Repeating back the words Aya had once said to her, Aya found herself at a loss for an answer, falling silent.
@@ -280,8 +280,8 @@ Startled, but relieved to see Yuki safe and sound, they let out breaths and said
 
 Setting her heels down in the entryway, she remembered the comfort of the air in this house. She realized she'd been holding her shoulders tense this whole time. Her mother peered at her face and asked:
 
-"Did you eat dinner already?"
-"Ah, no. I figured I'd eat at home. Oh, is there nothing ready?"
+"Did you eat dinner already?"\
+"Ah, no. I figured I'd eat at home. Oh, is there nothing ready?"\
 "Not at all, it's already made. Let's have dinner in a bit."
 
 Yuki said "okay!" to her parents treating her exactly as usual, and climbed the stairs lightly into her own room. She tossed her bag onto the bed, then immediately left the room again.
@@ -290,7 +290,7 @@ She knocked on her sister's door and got an "oh" in response.
 
 After a moment, her sister peeked out, smiling. "Welcome back."
 
-"I'm home. Sorry for the trouble."
+"I'm home. Sorry for the trouble."\
 "Forgot what you're even talking about."
 
 Her sister said this, patting Yuki's head, and Yuki, fighting back sudden tears, steadied herself. Her heart gave an unpleasant lurch. A sensation like her head going foggy from lack of oxygen. She swallowed down a feeling like her blood running cold. Her sister tilted her head, puzzled.
@@ -333,7 +333,7 @@ As Aya, intrigued, pressed for details, he gave a thumbs up.
 
 Daigo asked, watching Aya in the kitchen.
 
-"Yeah, why, got a request?"
+"Yeah, why, got a request?"\
 "If you're up for it, let's just order out tonight. Take it easy for once."
 
 After a moment's thought, Aya smiled faintly, put the frying pan back, and took off her apron.
@@ -342,7 +342,7 @@ After a moment's thought, Aya smiled faintly, put the frying pan back, and took 
 
 Saying this, she headed to the living room table, and Daigo pulled up a pizza place's website on his phone and set it down where she could see.
 
-"Pick whatever you want, Dad'll eat whatever's left over."
+"Pick whatever you want, Dad'll eat whatever's left over."\
 "Okay, you said it. Well, don't worry, I won't pick anything too outrageous."
 
 Aya sat at the table and quickly worked through the site, picking out an amount the two of them could reasonably finish. Daigo hung his coat on the rack, washed his hands, came back, and, after watching the room and Aya's profile in silence for a moment, said, casually:

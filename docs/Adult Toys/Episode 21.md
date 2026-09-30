@@ -40,7 +40,7 @@ Struck as if hit sideways in the head with a hammer, Yuki's eyes went round, and
 
 —*Was this just a kind excuse meant to lift her spirits?* But thinking back, Sakura really hadn't ever made a demand like that, and it was doubtful she even knew this much about Yuki's circumstances in the first place. More than anything, the tone in her voice, even over the phone, was full of guilt and urgency.
 
-"Ugh, seriously... I'm so sorry! I should've realized sooner. I basically took away a precious place you had to rest... this doesn't sit right with me, so I'm coming to apologize in person! Are you at the shop right now?! I'll head over right away, just wait a bit!"
+"Ugh, seriously... I'm so sorry! I should've realized sooner. I basically took away a precious place you had to rest... this doesn't sit right with me, so I'm coming to apologize in person! Are you at the shop right now?! I'll head over right away, just wait a bit!"\
 "N-no, it's fine, really fine! It's already gotten pretty late!"
 
 Coming back to her senses with a start, Yuki managed to voice some kind of restraint, and Sakura reluctantly accepted it. Relieved to have somehow calmed her down, Yuki was still a little dazed.
@@ -63,7 +63,7 @@ Yuki looked down, eyes welling with tears, and listened earnestly to Sakura's wo
 
 A tear dropped onto her knee. An unstoppable sob slipped out, and a startled voice came back.
 
-"W-wait, are you crying?! Um, sorry, I think I went a bit too far..."
+"W-wait, are you crying?! Um, sorry, I think I went a bit too far..."\
 "...No, that's not it. Sorry, there's a lot going on."
 
 Yuki desperately wiped her tears and spoke, half-explaining herself.
@@ -122,14 +122,14 @@ Answering Aya's call, Mahiru opened with that carefree question, oblivious to th
 
 Aya laughed wryly, leaned her weight back against the dim hallway wall, and answered with arms crossed.
 
-"Sorry, I'm a bit busy. Might be hard today."
-"Oh my, that's rare. What, don't even have time for a call?"
+"Sorry, I'm a bit busy. Might be hard today."\
+"Oh my, that's rare. What, don't even have time for a call?"\
 "No, I've got that much room — it's about that doctor girl thing I mentioned before."
 
 When Aya explained, staying within the bounds of not compromising Yuki's privacy, an excited "ah, that one!" of recognition came back.
 
-"I see, you should prioritize that. No need to worry about me."
-"I appreciate the consideration. I like it when you're quick on the uptake like this, senpai."
+"I see, you should prioritize that. No need to worry about me."\
+"I appreciate the consideration. I like it when you're quick on the uptake like this, senpai."\
 "—So? Sounds like a situation where hearing you out would help. What's going on?"
 
 As always, she really was quick. Grateful, but following her lead in keeping things brief, Aya skipped the compliments and went straight to the point.
@@ -162,7 +162,7 @@ Mahiru called her name, short but with a resonance that irresistibly drew her at
 
 Eyes wide, staring at the floor, Aya still narrowed her eyes, unable to digest the words. Her eyes wandered as she tried to make sense of it herself, and eventually she scratched her head. Her tone sharpened without meaning to.
 
-"So — are you saying I should just let it slide? That pushing her was the right call?"
+"So — are you saying I should just let it slide? That pushing her was the right call?"\
 "If someone close to me is heading in a bad direction, I'll stop them. I think that's what love does. But stripping away the very right to head in a bad direction — that's overreach, and arrogant."
 
 At the smoothly prepared answer, this time Aya truly understood, and fell silent.
