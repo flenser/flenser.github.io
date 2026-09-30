@@ -1,4 +1,10 @@
-Episode 23
+---
+layout: episode-flat
+nav_order: 23
+parent: The Honor Student Came to Buy Adult Toys
+sequence: 23
+title: Episode 23
+---
 
 After school. When Yuki arrived at Sagara Books, someone else was already waiting outside.
 

@@ -1,4 +1,10 @@
-Episode 22
+---
+layout: episode-flat
+nav_order: 22
+parent: The Honor Student Came to Buy Adult Toys
+sequence: 22
+title: Episode 22
+---
 
 The next day, the two of them headed to a pottery workshop studio in the outskirts of the city.
 

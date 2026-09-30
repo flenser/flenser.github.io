@@ -1,4 +1,10 @@
-Episode 21
+---
+layout: episode-flat
+nav_order: 21
+parent: The Honor Student Came to Buy Adult Toys
+sequence: 21
+title: Episode 21
+---
 
 "H-hello? Um — I heard you're at Mizuki-senpai's place right now."
 

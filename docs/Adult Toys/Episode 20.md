@@ -1,4 +1,10 @@
-Episode 20
+---
+layout: episode-flat
+nav_order: 20
+parent: The Honor Student Came to Buy Adult Toys
+sequence: 20
+title: Episode 20
+---
 
 In truth, the distance from that park to either of their homes hadn't been all that different.
 
