@@ -12,8 +12,8 @@ Tokiwa Sakura, fiddling with her phone, watching the setting sun.
 
 Noticing Yuki, Sakura's eyes widened, then narrowed into a smile. "Yo," Yuki said, a little worn out, shoving her hands into her coat pockets and standing beside her.
 
-"Mizuki-senpai not here?"
-"Nope. She said she'd come today, but apparently she's stopping somewhere on the way. Should be soon, so I'm killing time around here. You, senpai?"
+"Mizuki-senpai not here?"\
+"Nope. She said she'd come today, but apparently she's stopping somewhere on the way. Should be soon, so I'm killing time around here. You, senpai?"\
 "I just wanted to talk to Mizuki-san without any particular weight on it, for once, after a while."
 
 Hearing that happily, Sakura thought for a moment, then brought something up.
@@ -32,8 +32,8 @@ They say pain fades once the danger's passed, but now, it already felt almost ri
 
 Saying this with a smile, Sakura's cheeks twisted into a grin back at her, and she made a circle with her fingers.
 
-"Oh my, still haven't cured that naivety of yours. Gratitude isn't words. It's money."
-"Ha ha! ...Fine, want me to treat you to something? I'm genuinely, seriously grateful to you, Sakura-chan."
+"Oh my, still haven't cured that naivety of yours. Gratitude isn't words. It's money."\
+"Ha ha! ...Fine, want me to treat you to something? I'm genuinely, seriously grateful to you, Sakura-chan."\
 "...No, if you take it that seriously I end up looking like the bad guy here. Well, my motto's to take what I can get, though. Buy me a cocoa."
 
 Sakura pointed at the vending machine, and Yuki said "yes, yes," feeding in coins. "Started a part-time job, so I can spend freely now," she said, pressing the button, and as the can dropped with a clunk, Sakura's round eyes turned to her. "A job?" "Yeah." "Doing what?"
@@ -50,16 +50,16 @@ That part of herself might owe a lot to the pottery experience she'd shared with
 
 Yuki asked, pulling the tab on her can, and Sakura did the same. She took a sip of her cocoa with a somewhat bold smile, then, drawing it out, answered with obvious pride.
 
-"Started an SNS account for my work, and one of my pieces blew up."
-"Oh!"
+"Started an SNS account for my work, and one of my pieces blew up."\
+"Oh!"\
 "Got a commission from it."
 
 Yuki watched, speechless, as Sakura threw up a confident V-sign.
 
 It was enough of a leap forward to make Yuki's own part-time job story seem trivial by comparison. Still visibly rattled, watching her, Sakura laughed a little self-deprecatingly and added:
 
-"Not like it's some huge company, and the pay wasn't great either."
-"Aww... but still, that's amazing. Finding what you want to do and actually acting on it."
+"Not like it's some huge company, and the pay wasn't great either."\
+"Aww... but still, that's amazing. Finding what you want to do and actually acting on it."\
 "Yeah. I'm starting to think, whatever else, maybe I'm actually kind of a big deal."
 
 Sakura laughed a proud little "hmph," then, looking at Yuki, narrowed her eyes. "Your turn next, senpai." Yuki gave an evasive smile, looked away, and answered breezily, without much weight, "I'll do my best."
@@ -78,7 +78,7 @@ Deciding it was pointless to stay silent forever, she steeled herself with a sla
 
 At that, Sakura's eyes widened, and she flashed her canines teasingly.
 
-"What, getting all serious. Did you fall for me or something?"
+"What, getting all serious. Did you fall for me or something?"\
 "Hmm, close. The falling-for-someone part's right. Wrong target."
 
 Yuki played along with the joke, and Sakura's smile briefly disappeared, blinking repeatedly.
@@ -89,9 +89,9 @@ Eventually, she must have grasped the meaning. Her expression shifted into under
 
 Sakura's lips curled into a smirk, and she lifted her face, narrowing her eyes as if testing her. Seeing that Yuki's resolve was unshaken, she abandoned her side tactics and faced her head-on.
 
-"I see, I see. Well, even against you, senpai, I don't intend to lose."
-"Oh, look at you. Sure, Sakura-chan's cute, but I do get called beautiful myself, you know."
-"Ahh, no, no. Trying to win on looks is already shallow thinking. That's not where this fight is."
+"I see, I see. Well, even against you, senpai, I don't intend to lose."\
+"Oh, look at you. Sure, Sakura-chan's cute, but I do get called beautiful myself, you know."\
+"Ahh, no, no. Trying to win on looks is already shallow thinking. That's not where this fight is."\
 "Even so. Isn't the only thing you beat me on your foul mouth?"
 
 Hit with Yuki's critical strike, delivered from a place of newfound comfort with her, Sakura's cheeks flushed with anger, and she bared her teeth like a mad dog, looking ready to bite. Round one's winner was decided. The winner wanted to savor the sweet wine of victory, but found it too funny not to laugh instead. Laughing with a hand on her stomach, Sakura, watching, glared at her, looking a little pleased despite herself.
@@ -122,17 +122,17 @@ A strange woman. A third-year, maybe. A face she'd never seen before at all. Won
 
 Hashimoto answered, bristling with open wariness, and the woman laughed.
 
-"Wanted to have a chat with you."
-"...I need to study."
+"Wanted to have a chat with you."\
+"...I need to study."\
 "Even though you got second in midterms. Still pushing hard? Impressive!"
 
 Wondering how this stranger even knew her ranking, Hashimoto glared, confused.
 
 But the woman, waving off a flippant smile, ignored Hashimoto's resistance entirely and pulled up the neighboring chair to sit. It felt like being coiled around by a snake, deeply uncomfortable.
 
-"How do you know my ranking?"
-"Asked around. Some second-year nearby."
-"...Y-you asked about my ranking? Why?"
+"How do you know my ranking?"\
+"Asked around. Some second-year nearby."\
+"...Y-you asked about my ranking? Why?"\
 "No, no, the other way. Asked who was second in the year. Turned out to be Hashimoto Mana."
 
 Feeling like she was peering into some bottomless darkness, Hashimoto's spine went cold. Her knees trembling, she quietly planted her heels on the floor and looked down, unable to meet her eyes.
@@ -167,7 +167,7 @@ This wasn't a courtroom. Vigilante justice needs no proof.
 
 Her heart raced faster and faster. Her blood pressure climbed high enough that it felt like it might burst from somewhere it shouldn't. Thinking *why did this happen*, heat pooled behind her eyes, and, humiliatingly, she nearly cried. Even if she kept playing dumb now, the other side was already convinced she'd done it. If that was the case, arguing her way out was the better option.
 
-"So what — if it was me, so what, is that a crime? I just thought they were dating because they were watching a movie together, is that really something I need to be attacked over?!"
+"So what — if it was me, so what, is that a crime? I just thought they were dating because they were watching a movie together, is that really something I need to be attacked over?!"\
 "As long as there was no malice behind it, sure."
 
 Said with a cold smile, a chill ran down Hashimoto's spine. Guilt smeared thick, dark stains across her chest, and to cover it, she flared up in a burst of fiery emotion and shouted back.
@@ -178,8 +178,8 @@ She shouted, face flushed red, breathless. Before she knew it, hot tears traced 
 
 The woman watched Hashimoto in silence, hand over her mouth, thinking. Then, expressionless, she answered.
 
-"I see. So, now that Yuki-chan's given up on being a doctor, this is your moment to shine."
-"...What's wrong with that?"
+"I see. So, now that Yuki-chan's given up on being a doctor, this is your moment to shine."\
+"...What's wrong with that?"\
 "Do you know why she gave up her dream of becoming a doctor? Someone who'd dreamed of it since childhood, repeated bloody effort, endured strict parental discipline, and clawed her way to first place with everything she had — why, of all times, now, has she given up on medicine? You really have no idea, do you?"
 
 Guilt tightened around her heart, bit by bit, like a vise.
@@ -200,8 +200,8 @@ Only now, an overwhelming guilt began eating away at her.
 
 But the woman laughed off Hashimoto's question breezily.
 
-"Nah, not really. Her quitting medicine has nothing to do with you at all."
-"—Eh?"
+"Nah, not really. Her quitting medicine has nothing to do with you at all."\
+"—Eh?"\
 "For that matter, the whole 'wanted to be a doctor' thing was a lie too. My own fabrication."
 
 The strength drained out of Hashimoto enough to make her want to punch something. She stared, dumbfounded, at the woman's infuriatingly amused smile.
@@ -278,7 +278,7 @@ Aya took a deep breath, steeled herself, and knocked on the staff room door. Ope
 
 He raised his eyebrows in mild surprise, but greeted her with a calm expression. "What's up?"
 
-"It's about the career survey. I'd like to change it a little."
+"It's about the career survey. I'd like to change it a little."\
 "Oh! What, found something you want to try?"
 
 Saying this, he pulled out the bundle of survey forms and quickly located Aya's, sorted by student number. On the survey she'd submitted the other day, Aya had written, with no specifics at all, just the two words: "Further education."
