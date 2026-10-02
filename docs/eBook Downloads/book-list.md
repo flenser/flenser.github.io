@@ -1,5 +1,5 @@
 ---
-title: "* eBook Downloads *"
+title: '* eBook Downloads'
 nav_order: 0
 ---
 

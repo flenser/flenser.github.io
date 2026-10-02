@@ -1,5 +1,5 @@
 ---
-title: Authors
+title: '* Authors'
 nav_order: 2
 ---
 
