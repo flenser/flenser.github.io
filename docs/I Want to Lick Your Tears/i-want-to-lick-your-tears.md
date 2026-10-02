@@ -1,6 +1,7 @@
 ---
 title: I Want to Lick Your Tears. I Want You to Glare at Me
 author_ja: "紅日もも"
+author_romaji: "Momo Akabi"
 has_children: true
 tags: ["suggestive", "secret relationship", "high school", "honor student", "co-dependence", "crumbling facade", "angst", "ongoing"]
 ---
@@ -56,7 +57,7 @@ Content warnings: Cruel depictions / Violence / Sexual content
 ---
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [紅日もも]
+Author: Momo Akabi [紅日もも]
 
 [kakuyomu]: https://kakuyomu.jp/works/2912051595464620426
 [紅日もも]: https://kakuyomu.jp/users/momo_akabi

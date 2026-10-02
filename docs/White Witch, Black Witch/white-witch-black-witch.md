@@ -1,6 +1,7 @@
 ---
 title: The White Witch and the Black Witch — A Twisted Secret Between Them
 author_ja: "莉乃"
+author_romaji: "Rino"
 has_children: true
 tags: ["adult life", "angst", "magic", "fantasy", "co-dependence", "yandere", "slow burn", "suggestive", "complete"]
 ---
@@ -35,7 +36,7 @@ What am I supposed to do?
 ![The White Witch and the Black Witch](/assets/images/white-witch-black-witch.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [莉乃]
+Author: Rino [莉乃]
 
 [kakuyomu]: https://kakuyomu.jp/works/2912051597460598777
 [莉乃]: https://kakuyomu.jp/users/Rino_yr0

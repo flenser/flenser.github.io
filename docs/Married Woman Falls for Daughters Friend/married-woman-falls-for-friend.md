@@ -1,6 +1,7 @@
 ---
 title: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
 author_ja: "入間人間"
+author_romaji: "Hitoma Iruma"
 has_children: true
 tags: ["secret relationship", "age gap", "taboo", "abuse", "violence", "middle school", "adult life", "crumbling facade", "seduction", "angst", "slow burn", "suggestive", "published as light novel", "ongoing"]
 ---
@@ -32,7 +33,7 @@ This is the story of a happily married woman who meets her daughter's friend, an
 ![A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend](/assets/images/married-woman-falls-for-friend.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [入間人間]\
+Author: Hitoma Iruma [入間人間]\
 If you like this story, please consider supporting the author by buying the book version on [kadokawa].
 
 [kakuyomu]: https://kakuyomu.jp/works/2912051597587650311

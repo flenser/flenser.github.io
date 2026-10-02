@@ -1,6 +1,7 @@
 ---
 title: You Bleed Into My Colourless World
 author_ja: "莉乃"
+author_romaji: "Rino"
 has_children: true
 tags: ["secret relationship", "adult life", "slow burn", "co-dependence", "angst", "time jump", "fluffy", "safe", "complete"]
 ---
@@ -30,7 +31,7 @@ A workplace yuri about an office worker who tends to shut herself away in her ow
 ![My Colourless World](/assets/images/my-colourless-world.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [莉乃]
+Author: Rino [莉乃]
 
 [kakuyomu]: https://kakuyomu.jp/works/822139845676938738
 [莉乃]: https://kakuyomu.jp/users/Rino_yr0
