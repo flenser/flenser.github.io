@@ -1,5 +1,6 @@
 ---
 title: Monofilament Witch
+author_ja: "村山朱一"
 has_children: true
 ---
 ## Original Title

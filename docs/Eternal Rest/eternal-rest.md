@@ -1,5 +1,6 @@
 ---
 title: Eternal Rest (I'm Just Tired)
+author_ja: "紅日もも"
 has_children: true
 ---
 ## Original Title

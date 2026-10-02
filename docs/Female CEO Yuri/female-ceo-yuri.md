@@ -1,5 +1,7 @@
 ---
 title: A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks
+author_ja: "灰庭たま"
+author_romaji: "Hainiwa Tama"
 has_children: true
 tags: ["adult life", "seduction", "explicit", "angst", "yandere", "tsundere", "slow burn", "parental neglect", "age gap", "complete"]
 ---

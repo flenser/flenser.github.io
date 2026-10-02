@@ -1,5 +1,6 @@
 ---
 title: The Honor Student Came to Buy Adult Toys
+author_ja: "4kaえんぴつ"
 has_children: true
 tags: ["slow burn", "high school", "short", "parental neglect", "artists", "high pressure", "crumbling facade", "angst", "suggestive", "adapted to manga", "complete"]
 ---

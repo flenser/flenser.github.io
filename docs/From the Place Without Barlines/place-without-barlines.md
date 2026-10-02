@@ -1,5 +1,7 @@
 ---
 title: From the Place Without Barlines
+author_ja: "無銘"
+author_romaji: "Mumei"
 has_children: true
 tags: ["slow burn", "high school", "parental neglect", "artists", "co-dependence", "high pressure", "angst", "safe", "complete"]
 ---

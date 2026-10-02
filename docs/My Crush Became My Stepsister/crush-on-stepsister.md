@@ -1,5 +1,6 @@
 ---
 title: My Crush Became My Stepsister
+author_ja: "莉乃"
 has_children: true
 tags: ["slow burn", "secret relationship", "siblings", "high school", "fluffy", "taboo", "angst", "safe", "time jump", "complete"]
 ---

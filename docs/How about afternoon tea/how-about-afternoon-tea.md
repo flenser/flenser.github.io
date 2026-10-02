@@ -1,5 +1,7 @@
 ---
 title: How About Some Afternoon Tea?
+author_ja: "桃田ロウ"
+author_romaji: "Momota Rou"
 has_children: true
 tags: ["slow burn", "secret relationship", "university", "adult life", "straight to gay", "suggestive", "time jump", "angst", "tsundere", "published as light novel", "adapted to manga", "complete"]
 ---

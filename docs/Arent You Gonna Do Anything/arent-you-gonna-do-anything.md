@@ -1,5 +1,7 @@
 ---
 title: 'A Yuri About Being Asked "Hey, Aren''t You Gonna Do Anything?" by an Older Colleague'
+author_ja: "しきもと ホノ"
+author_romaji: "Shikimoto Hono"
 has_children: true
 tags: ["adult life", "seduction", "fluffy", "short", "yandere", "suggestive", "complete"]
 ---

@@ -1,5 +1,6 @@
 ---
 title: Love Grows in the Classroom After School
+author_ja: "日日綴郎"
 has_children: true
 tags: ["secret relationship", "high school", "teacher", "age gap", "taboo", "seduction", "slow burn", "safe", "time jump", "published as light novel", "complete"]
 ---

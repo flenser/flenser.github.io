@@ -1,5 +1,7 @@
 ---
 title: A Closet Romance
+author_ja: "桃田ロウ"
+author_romaji: "Momota Rou"
 has_children: true
 tags: ["slow burn", "secret relationship", "straight to gay", "high school", "seduction", "suggestive", "parental neglect", "time jump", "angst", "complete"]
 ---
