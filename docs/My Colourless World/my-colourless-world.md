@@ -1,5 +1,6 @@
 ---
 title: You Bleed Into My Colourless World
+author_ja: "莉乃"
 has_children: true
 tags: ["secret relationship", "adult life", "slow burn", "co-dependence", "angst", "time jump", "fluffy", "safe", "complete"]
 ---

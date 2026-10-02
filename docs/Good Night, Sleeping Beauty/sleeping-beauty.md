@@ -1,5 +1,6 @@
 ---
 title: Good Night, Sleeping Beauty
+author_ja: "深水紅茶（リプトン）"
 has_children: true
 tags: ["slow burn", "adult life", "high school", "age gap", "co-dependence", "seduction", "parental neglect", "suggestive", "artists", "time jump", "angst", "published as light novel", "adapted to manga", "complete"]
 ---

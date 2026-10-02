@@ -1,5 +1,7 @@
 ---
 title: antiqua ~Amber-Colored Game of Love~
+author_ja: "パラダイス農家"
+author_romaji: "Paradise Nouka"
 has_children: true
 tags: ["adult life", "seduction", "ongoing"]
 ---

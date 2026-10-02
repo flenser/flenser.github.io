@@ -1,5 +1,6 @@
 ---
 title: She, expressionless and transparent, seems to be someone you could hold tight if you paid the price
+author_ja: "紅日もも"
 has_children: true
 tags: ["abuse", "violence", "su1cidal behaviour", "self-harm", "co-dependence", "secret relationship", "seduction", "suggestive", "high school", "parental neglect", "high pressure", "angst", "complete"]
 ---

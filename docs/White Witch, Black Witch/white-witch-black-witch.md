@@ -1,5 +1,6 @@
 ---
 title: The White Witch and the Black Witch — A Twisted Secret Between Them
+author_ja: "莉乃"
 has_children: true
 tags: ["adult life", "angst", "magic", "fantasy", "co-dependence", "yandere", "slow burn", "suggestive", "complete"]
 ---

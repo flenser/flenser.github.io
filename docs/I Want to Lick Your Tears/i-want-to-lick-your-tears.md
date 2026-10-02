@@ -1,5 +1,6 @@
 ---
 title: I Want to Lick Your Tears. I Want You to Glare at Me
+author_ja: "紅日もも"
 has_children: true
 tags: ["suggestive", "secret relationship", "high school", "honor student", "co-dependence", "crumbling facade", "angst", "ongoing"]
 ---

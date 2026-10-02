@@ -1,5 +1,6 @@
 ---
 title: Don't you feel ashamed to be overpowered by a maid
+author_ja: "笹塔五郎"
 has_children: true
 tags: ["adult life", "suggestive", "fluffy", "fantasy", "published as light novel", "complete"]
 ---

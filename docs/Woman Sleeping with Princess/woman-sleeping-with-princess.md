@@ -1,5 +1,6 @@
 ---
 title: The Story of the Woman Who Ended Up Sleeping with the Club Princess
+author_ja: "4kaえんぴつ"
 has_children: true
 tags: ["slow burn", "university", "short", "enemies to lovers", "parental neglect", "artists", "high pressure", "angst", "safe", "published as light novel", "complete"]
 ---
