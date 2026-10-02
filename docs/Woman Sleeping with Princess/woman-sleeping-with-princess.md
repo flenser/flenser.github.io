@@ -1,6 +1,7 @@
 ---
 title: The Story of the Woman Who Ended Up Sleeping with the Club Princess
 author_ja: "4kaえんぴつ"
+author_romaji: "Touka Yoru"
 has_children: true
 tags: ["slow burn", "university", "short", "enemies to lovers", "parental neglect", "artists", "high pressure", "angst", "safe", "published as light novel", "complete"]
 ---
@@ -29,7 +30,7 @@ This is the story of two people who hate each other, learning to walk through li
 ![The Story of the Woman Who Ended Up Sleeping with the Club Princess](/assets/images/woman-sleeping-with-princess-cover.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [4kaえんぴつ]\
+Author: Touka Yoru [4kaえんぴつ]\
 If you like this story, please consider supporting the author by buying the book version "A Night's Mistake Between Two Who Couldn't Stand Each Other" on [kadokawa].
 
 [kakuyomu]: https://kakuyomu.jp/works/16817139555062294515

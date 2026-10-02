@@ -34,7 +34,7 @@ This is the story of a lesbian high schooler utterly swept along by a straight g
 ![A Closet Romance](/assets/images/a-closet-romance.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [桃田ロウ]
+Author: Momota Rou [桃田ロウ]
 
 [kakuyomu]: https://kakuyomu.jp/works/7667601420032554218
 [桃田ロウ]: https://kakuyomu.jp/users/momotarou123

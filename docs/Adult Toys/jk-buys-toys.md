@@ -1,6 +1,7 @@
 ---
 title: The Honor Student Came to Buy Adult Toys
 author_ja: "4kaえんぴつ"
+author_romaji: "Touka Yoru"
 has_children: true
 tags: ["slow burn", "high school", "short", "parental neglect", "artists", "high pressure", "crumbling facade", "angst", "suggestive", "adapted to manga", "complete"]
 ---
@@ -23,7 +24,7 @@ tags: ["slow burn", "high school", "short", "parental neglect", "artists", "high
 ![The Honor Student Came to Buy Adult Toys](/assets/images/jk-adult-toys.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [4kaえんぴつ]
+Author: Touka Yoru [4kaえんぴつ]
 
 [kakuyomu]: https://kakuyomu.jp/works/16818093090848717778
 [4kaえんぴつ]: https://kakuyomu.jp/users/touka_yoru

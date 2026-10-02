@@ -1,6 +1,7 @@
 ---
 title: Eternal Rest (I'm Just Tired)
 author_ja: "紅日もも"
+author_romaji: "Momo Akabi"
 has_children: true
 ---
 ## Original Title
@@ -32,7 +33,7 @@ Something appears to be here.
 ![Eternal Rest](/assets/images/eternal-rest.png)
 
 The original Japanese Web Novel can be found on [kakuyomu]. \
-Author: [紅日もも]
+Author: Momo Akabi [紅日もも]
 
 [kakuyomu]: https://kakuyomu.jp/works/822139846317558330
 [紅日もも]: https://kakuyomu.jp/users/momo_akabi

@@ -1,6 +1,7 @@
 ---
 title: Good Night, Sleeping Beauty
 author_ja: "深水紅茶（リプトン）"
+author_romaji: "Lipton"
 has_children: true
 tags: ["slow burn", "adult life", "high school", "age gap", "co-dependence", "seduction", "parental neglect", "suggestive", "artists", "time jump", "angst", "published as light novel", "adapted to manga", "complete"]
 ---
@@ -31,7 +32,7 @@ This is a yuri story where a socially awkward adult who's easily persuaded and a
 ![Good Night, Sleeping Beauty](/assets/images/sleeping-beauty.png)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [深水紅茶（リプトン）]\
+Author: Lipton [深水紅茶（リプトン）]\
 If you like the story, please support the author by buying their [book].
 
 [book]: https://kakuyomu.jp/publication/entry/9784040762067

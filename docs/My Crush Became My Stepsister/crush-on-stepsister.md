@@ -1,6 +1,7 @@
 ---
 title: My Crush Became My Stepsister
 author_ja: "莉乃"
+author_romaji: "Rino"
 has_children: true
 tags: ["slow burn", "secret relationship", "siblings", "high school", "fluffy", "taboo", "angst", "safe", "time jump", "complete"]
 ---
@@ -35,7 +36,7 @@ Sisters and lovers. Two relationships that should never intersect. Caught betwee
 ![My Crush Became My Stepsister](/assets/images/my-crush-became-my-stepsister.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: [莉乃]
+Author: Rino [莉乃]
 
 [kakuyomu]: https://kakuyomu.jp/works/2912051599858905910
 [莉乃]: https://kakuyomu.jp/users/Rino_yr0
