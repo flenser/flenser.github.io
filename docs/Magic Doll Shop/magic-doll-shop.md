@@ -7,6 +7,8 @@ tags: ["safe", "magic", "fantasy", "angst", "adult life", "ongoing"]
 
 厭世の魔法人形屋～最強魔女とやり直す、大切な人との最期の1日～
 
+The book version is being published under the name コミュ障の天才魔法使いは、王都の片隅でのんびりお店経営はじめます～魔法学園主席の少女は実力を隠して静かに暮らしたい～ (The Socially Awkward Genius Wizard Starts a Relaxing Shop in a Corner of the Royal Capital: The Top Graduate of the Magic Academy Wants to Live Quietly While Hiding Her True Abilities)
+
 ## Synopsis
 
 ### The magic doll shop's job is to bring back the dead — for one day only.
