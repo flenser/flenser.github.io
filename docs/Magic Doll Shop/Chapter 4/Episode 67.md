@@ -32,7 +32,7 @@ But leaving them alone risked drawing higher-level monsters that preyed on them.
 
 "Alright, I'll just clear them out quickly."
 
-When it came to wiping out low-level monsters all at once, the fastest method was a rain of light-attribute magic, the same spell she'd used in the fight against Conrad.\
+When it came to wiping out low-level monsters all at once, the fastest method was a rain of light-attribute magic, the same spell she'd used in the fight with Conrad.\
 She quickly drew a magic circle and cast the spell.\
 Where the glowing raindrops touched them, the dorn worms let out groans and vanished.
 
