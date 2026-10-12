@@ -1,124 +1,142 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter One: Another Day, Another Run'
+parent: 'Another Day / Another Run'
 sequence: 5
-title: 'Episode 5: Backflow'
+title: 'Episode 5: Reversal'
 ---
-The magic cyberdeck's wand pierces the heart-shaped Magus Engine.\
-Black and peach phosphorescent energy surges backwards.\
-An operational sound akin to a girl's scream pierces Strawberry Pink's ears.
+## Episode 5: Reversal
 
-Turrets resembling a school of fish target Strawberry Pink —yet their movements lack vigour. Naturally.\
-　Now that they were within striking distance.\
-Targeting Strawberry Pink was tantamount to targeting their own heart.
+\
+The staff of a magic cyberdeck pierced the heart, the Magus Engine.\
+Black and pink phosphorescence, magic power, flowed in reverse.\
+The operating noise, like the scream of a girl, pierced Strawberry Pink's ears.
 
-"■■■■■■■■■■■■■■■■■■!!!"\
-"Shut up...!"
+The turrets, like a shoal of fish, took aim at Strawberry Pink, but their movements lacked their usual vigour. Naturally enough.\
+Now that she was at point-blank range, aiming at Strawberry Pink was tantamount to aiming at their own hearts.
 
-The magical cyber deck unfolds.\
-Heart-shaped ornaments emit light.\
-Peach-coloured light flows into the witch's heart, the Magus Engine.
+“■■■■■■■■■■■■■■■■■■!!!”\
+“Shut up...!”
 
-　Hacking.
+She deployed her magic cyberdeck.\
+The heart-shaped ornament glowed.\
+Pink light flowed into the Witch's black Magus Engine.
 
-The Magus Engine is, quite literally, the magical girl's heart.\
-Magical cyberware that generates M-Particles, enhances affinity with the magical girl, and enables free operation. Precisely because it is the crystallisation of advanced technology, it possesses vulnerabilities.
+It was hacking.
 
-No matter how much the M-Particles protect the skin.\
-No matter how much the M-Particles block fatal wounds.\
-If the heart is hacked, the M-Particles cease operation.\
-　The witch becomes killable.
+The Magus Engine was, quite literally, a magical girl's heart.\
+It generated M-particles, enhanced their affinity with the magical girl, and enabled her to manipulate them at will. It was a form of magic cyberwear, the culmination of advanced technology. And precisely because of that, it had vulnerabilities.
 
-"No... way! This...! Don't you get cocky, old model!\
-This is me! 【Strawberry Pink】! Magical Girl 【Strawberry Pink】!\
-My hacking grades were bottom of the class, but —I'm not losing to some twenty-year-old, outdated security system!"
+No matter how well M-particles protected the skin.\
+No matter how effectively M-particles shielded against fatal wounds.\
+If the heart was hacked, the M-particles would cease to function.\
+The Witch could be killed.
 
-And so it came to pass.\
-　Pink light corroded the witch's black Magus Engine.
+“I knew it...! You...! Don't get cocky just because you're an old model!\
+I'm... **[Strawberry Pink]!** The magical girl **[Strawberry Pink]!**\
+I may have come last in the class at hacking, but I'm not about to lose to some decrepit security system from twenty years ago!”
 
-Ultra-high-speed calculations burned Strawberry Pink's brain. Hacking via M-particles at such velocity equated to a battle of wits, placing immense strain on the brain.\
-Blood trickled down Strawberry Pink's pale cheeks.\
-Her star-speckled pink eyes clouded over.
+And so it proved.\
+The pink light began to eat away at the Witch's black Magus Engine.
 
-　Victory.
+Ultra-high-speed calculations tore through Strawberry Pink's brain. Hacking with M-particles at such speeds was equivalent to a battle to the death waged through thought, placing an enormous burden on the brain.\
+A nosebleed trickled down Strawberry Pink's pale cheek.\
+The star-flecked pink of her eyes grew cloudy and white.
 
-The moment she was certain.\
-Black light surged back.
+She had won.
 
-"――!?"
+The instant she was certain of it,\
+the black light flowed back.
 
-M-particles transmit thought.\
-To wield weapons at will, one must convey intent.\
-The ability to manipulate devices freely through thought alone is identical in meaning to transmitting thought to the device.
+*
 
-The witch's overflowing M-particles.
+“...?!”
 
-"Bloody hell —I'm being swallowed!"
+M-particles transmitted thought.\
+To control weapons at will, one had to transmit one's intentions to them.\
+The function that allowed a device to be controlled freely by thought alone was, in essence, identical to transmitting thought directly to the device.
 
-That was the thought of the Pisces Witch.
+The Witch's M-particles surged forth, overflowing.
+
+“Shit...! I'm going to be *swallowed*!”
+
+They were the thoughts of the Witch of Pisces.
+
+---
 
 A warm home.
 
-"...Ah."
+“...Ah.”
 
-The fire in the hearth burns.
+The fire burned in the hearth.
 
-"Escape sequence—error. Forced awakening—error. Reinforcement request—error. Error. Error."
+“Escape sequence... error. Forced awakening... error. Requesting reinforcements... error. Error. Error.”
 
-I'm sitting in the chair before the fireplace.\
-It's my favourite chair.\
-Leaning forward makes it creak and tilt. Leaning back does the same. I used to love how my view would swing like a swing, and I'd sit playing like that all season long.
+*I* sat in a chair before the hearth.\
+My favourite chair.\
+When I leaned forwards, it creaked and tilted. It did the same when I leaned backwards. I loved watching the room sway before my eyes like a swing, and I had spent the whole season sitting there, playing.
 
-"Stop it."
+“Stop...”
 
-Daddy told me it happened because the legs were bent.\
-He was a cabinetmaker and often made toys like this for me.
+Papa had told me that it happened because the legs were crooked.\
+Papa was a furniture maker, and he often made toys like this for me.
 
-"No."
+“No.”
 
-At Christmas time, Daddy became terribly busy.\
-Though he was a cabinetmaker, he was also skilled at making wooden toys, so he had plenty of such work.\
-I asked Daddy for one too.\
-He must have been absolutely swamped.
+At Christmas, Papa became terribly busy.\
+He was a furniture maker, but he was also good at making wooden toys, so he had lots of work of that kind.\
+*I* had asked Papa to make one for me, too.\
+He must have been ever so busy.
 
-"You're—"
+“You...”
 
-That night was no different.\
-A night when we'd decorated the Christmas tree before the fireplace, its ornaments glistening in the reflected firelight.
+That night had been the same.\
+The Christmas tree stood before the hearth. The ornaments glittered in the firelight.
 
-"You're not my daddy!"
+“You! You're not my papa!”
 
-Daddy died.\
+---
+
+Papa died.\
 The chair burned.\
 Our home was gone.\
-My city, Moscow, vanished in flames.
+My city, Moscow, vanished into the flames.
 
-"A-aaaaaahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+*
 
-　As her thoughts returned, the M-Particles circulated reflexively.\
-The flames were repelled, protecting her young, soft skin.
+“Ah... Aaaaaaaaahhhhhhhhhh!!!”
 
-But.
+*
 
-"—Don't forget, my dear. My dear junior."
+The sensation of flames burning her body dragged Strawberry Pink's thoughts back.\
+The circulation of M-particles had stopped.\
+The blazing wreckage of the unmanned turret emplacements was burning Strawberry Pink's skin, and the Witch pinned beneath her.
 
-The witch's Magus Engine had ceased.
+As soon as her thoughts returned, M-particles began circulating again by reflex.\
+Her young, tender skin was protected from the flames.
+
+But...
+
+“Don't forget, my sweet, sweet junior.”
+
+The Witch's Magus Engine had stopped.
 
 The jet-black mask cracked. The black dress vanished into the flames.\
-The fate of a magical girl whose Magus Engine had stopped —a witch's end— was predetermined. Her heart had stopped. It had to be so.\
-Blood trickled from the corner of her mouth.\
-The Magus Engine crackled and sparked, flickering within her chest.\
-The witch with the shattered mask —the Pisces Witch— smiled at Strawberry Pink with eyes that had lost their light.
+The fate of a magical girl whose Magus Engine had stopped, a Witch, was already decided. Her heart had stopped. It was only natural that *this* should happen.\
+Blood ran from the corner of her mouth.\
+The Magus Engine flickered against her chest, discharging sparks of electricity.\
+The Witch's shattered mask fell apart. The Witch of Pisces smiled at Strawberry Pink with eyes that had lost their light.
 
-"【Flashbacks】 are forbidden."
+“**[Reminiscing]** is forbidden.”
 
-　Silver hair.\
-Frosty white skin.\
-Translucent, sapphire eyes like an ice castle.
+Silver hair.\
+Skin as white as ice.\
+Blue-green eyes, clear as a castle made of ice.
 
-"...Isn't that terribly sad?"
+“...Isn't that terribly sad?”
 
-The Pisces Witch died.\
-Viola Purple's corpse was recovered.\
-Another Day, the usual night; Another Run, the usual job, concluded in an atmosphere utterly indistinguishable from any other.
+---
+
+The Witch of Pisces was dead.\
+Viola Purple's body was recovered.\
+Another ordinary night, *Another Day*. Another ordinary job, *Another Run*. It all came to an end in an atmosphere no different from any other.

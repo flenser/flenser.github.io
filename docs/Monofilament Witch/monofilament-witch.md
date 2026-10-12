@@ -1,7 +1,7 @@
 ---
 title: Monofilament Witch
 author_ja: "村山朱一"
-author_romaji: "Shuichi Murayama"
+author_romaji: "Murayama Shūichi"
 has_children: true
 ---
 ## Original Title
@@ -10,24 +10,25 @@ has_children: true
 
 ## Description
 
-Cyberpunk × Magical Girl
-Near future, Magus City Tokyo.
-Within a dystopia where cyberspace expanded and information and science reigned supreme, 'Magical Girls' existed.
+Cyberpunk × Magical Girls
 
-Girls clad in cyber decks/cybernetic armour, known as 'magic', raced through the city's shadows.
-Their foes were 'witches' consumed by 'magic'.
-What they must protect is the city's peace.
-The truths uncovered sometimes wound the girls.
+The near future: Magus City Tokyo.\
+In a dystopia ruled by information and science, where the cyber world keeps expanding, “magical girls” exist.
 
-Run through the shadows.
-Shoot without hesitation.
-Never let your magic wane.
-Never, ever get involved with a 'witch'.
+Girls race through the city’s darkness, clad in what is called “magic”: cyberdecks, or cybernetic armaments.\
+Their enemies are the “witches,” those who have been consumed by “magic.”\
+What they are sworn to protect is the “peace” of the “city.”\
+The truths laid bare can, at times, wound a girl.
+
+Run through the shadows.\
+Shoot without hesitation.\
+Don’t let your magic run dry.\
+Whatever you do, never get involved with a “witch.”
 
 ![Monofilament Witch](/assets/images/monofilament-witch.png)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
-Author: Shuichi Murayama [村山朱一]
+Author: Murayama Shūichi [村山朱一]
 
 [kakuyomu]: https://kakuyomu.jp/works/822139837868515448
 [村山朱一]: https://kakuyomu.jp/users/syusyu101
