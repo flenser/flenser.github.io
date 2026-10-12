@@ -1,46 +1,53 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter One: Another Day, Another Run'
+parent: 'Another Day / Another Run'
 sequence: 1
-title: 'Episode 1: The Magical Girl`s Job'
+title: 'Episode 1: A Magical Girl`s Job'
 ---
-Science taken too far becomes indistinguishable from magic.\
-—That is why the populace called it magic.
+## Episode 1: A Magical Girl’s Job
 
-HQ to Strawberry Pink. Authorisation granted for [Magic] use.\
+\
+Overdeveloped science is indistinguishable from magic.\
+And so, the masses called *it* magic.
+
+***
+
+"From HQ to [Strawberry Pink]. You are authorised to use [magic]."\
 "That was quick. Did someone die?"\
-...Viola Purple's transmission was lost. An explosion occurred in Block B.
+"...[Viola Purple] has lost contact, and an explosion has occurred in Block B."
 
-The girl whistled softly.\
-Another night, Another Day. Another job, Another Run.\
-　Her comrades died, the terrorists gained momentum, and the girl's work always began in such circumstances. So today too, with a touch of loneliness and a heart full of excitement, the girl's delicate voice echoed through the night sky.
+The girl let out a low whistle.\
+Another day, another night. Another run, another job.\
+Her comrades died, the terrorists gained momentum, and the girl’s *work* always began in circumstances like these. So today, too, her lovely voice rang out into the night sky, carrying just a little loneliness and a heart full of excitement.
 
-"'For peace. For tranquillity.'"
+"*'For peace and for tranquillity.'*"
 
-The incantation.\
-Floating M-particles —the glow of magical power.\
-　The Magus Engine implanted in the girl's heart activates, staining the skyscraper sky with a peach-coloured light. Shadows fall, and within them, the girl transforms.
+An incantation.\
+Floating M-particles, the radiance of magic power.\
+The Magus Engine embedded in the girl’s heart sprang to life, and pink light dyed the skies above the forest of skyscrapers. A shadow fell, and within it, the girl began to transform.
 
-"'For the sake of order, I forge this and grant the power to wield it.'"
+"*'For the sake of order, this shall be forged, and its power wielded by leave divine.'*"
 
-The black twin tails turn pink.\
-The pink hoodie worn home from school now drapes her body like an adorned dress.
+Her black twin tails turned pink.\
+The pink hoodie she had worn home from school enveloped her body like an elaborately ornamented dress.
 
-"'Therefore'."
+"*'Therefore...'*"
 
-Her wide-open eyes shimmered pink, sparkling like scattered stars.\
-Her lips, weaving the incantation, were coloured as if reflecting the girl's flushed cheeks.\
-Chrome steel gloves adorned her slender fingers.\
-A rod protruded from her liberated chest.\
-White fingers drew it out.
+Her eyes flew wide, glowing pink and sparkling as though scattered with stars.\
+Her lips, weaving the incantation, were tinted to reflect the flush of excitement rising within her.\
+Chrome-steel gloves adorned her slender fingers.\
+From her exposed chest, a rod protruded.\
+Her white fingers reached out and pulled it free.
 
-"'Thou art without sin.'"
+"*'Thou art without sin.'*"
 
-A magic cyberdeck staff.\
-A magic cyberware dress.\
-Magic M-particles, blinking so brightly they erode at the cellular level, coating hair and eyes.
+A staff: a magic cyberdeck.\
+A dress: magic cyberwear.\
+Magic power, M-particles, invading at the cellular level, shining so fiercely that they painted over her hair and eyes.
 
-"――【Strawberry Pink】! Summoned, I arrive!"
+***
 
-The girl 【Haruka Momotsuki】's work began, as it always did.
+"**[Strawberry Pink]!** Answering the call and making my grand entrance!"
+
+The work of the girl **[Momotsuki Haruka]** had begun, just as it always did.

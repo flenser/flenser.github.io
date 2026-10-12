@@ -1,105 +1,109 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter One: Another Day, Another Run'
+parent: 'Another Day / Another Run'
 sequence: 4
 title: 'Episode 4: The Witch of Pisces'
 ---
+## Episode 4: The Witch of Pisces
+
+\
 Black phosphorescence.\
 Flashes of gunfire.\
-Countless muzzles, connected, communicating, commanded by M-particle magic, grazed the scattered fragments of Viola Purple flesh, Strawberry Pink's cheek protected by M-particles.
+Countless gun barrels, connected, communicating, and commanded through M-particles, grazed the scattered fragments of Viola Purple's flesh and the cheek of Strawberry Pink, protected by M-particles.
 
-Amidst the gunpowder dust, it stood.
+**Within the gunfire's haze, *it* was there.**
 
-　A non-human entity, smiling, levitating countless turreted unmanned gun emplacements.\
-A magical cyberware dress, eroded by M-particles, stained black, its edges frayed.\
-Peeking from beneath a frill-laden skirt were legs not human. Streamlined, fish-like, overloaded with magical cyberware —a tail.
+An inhuman being, smiling as countless unmanned turret emplacements floated in the air around her.\
+A dress of magic cyberwear, corrupted by M-particles, dyed black, its edges fraying and coming undone.\
+Beneath a skirt overflowing with frills were legs that were *not human*. Sleek, streamlined, reminiscent of a fish, and grotesquely overburdened with magic cyberwear: a tail.
 
-　Legs were absent.\
-Her expression concealed by a jet-black mask.\
-A gaunt, emaciated girl, floating by M-Particle, possessing a fish's tail.\
-A demonic being, pointing at strawberry pink with her withered fingertips, commanding countless turrets.
+No legs.\
+Her expression concealed behind a jet-black mask.\
+A gaunt, emaciated girl, floating by the power of M-particles, with the tail of a fish.\
+A demon, commanding countless turrets as she pointed her thin, wasted fingers at Strawberry Pink.
 
-"Referencing database—error. Attempting communication—error. Requesting reinforcements—error. Ha! I see, I see!"
+"Consulting database... error. Attempting communications... error. Requesting reinforcements... error. Hah! I see, I see!"
 
-　Strawberry Pink reeled in the M-Particles. Yet what her fingertips sensed was not the feedback of thought communication. It was the sensation of everything being obstructed.\
-Jamming.\
-The reason her communication with Viola Purple had been severed was condensed within the presence before her... within the 【Witch】.
+Strawberry Pink tried to manipulate the M-particles. But what she felt at her fingertips was not the familiar response of thought-communication. It was the sensation of everything being obstructed.\
+*Jamming.*\
+The reason her communications with Viola Purple had been severed was concentrated in the being before her... in the [Witch].
 
-"It's you, isn't it! The Pisces Witch!\
-The survivor of the Hakodate decisive battle!\
-The poor grown-up girl who could no longer be a magical girl!"
+"So it's you! The [Witch of Pisces]!\
+"A survivor of the Battle of Hakodate!\
+"A poor, pitiful adult girl who could no longer be a magical girl!"
 
-Dodging the concentrated fire of the turrets with pink light, Strawberry Pink narrowed her eyes.
+Strawberry Pink narrowed her eyes as she dodged the turrets' concentrated barrage in a flash of pink light.
 
-"—I'll defeat you. I'll kill you."
+"Then I'll defeat you. I'll fucking kill you."
 
-A flash of pink streaked past, the Monofilament Whip.\
-　Dust was torn apart.\
-Fragments of buildings, shattered by blast and cutting force, were sliced at terrifying speeds, dancing countless through the air. The turrets were no exception —or so it should have been.
+A streak of pink raced forward: the Monofilament Whip.\
+The haze was sliced apart.\
+Fragments of buildings, pulverised by explosions and cutting strikes, were themselves carved to pieces at tremendous speed. The countless turrets dancing through the air were no exception. They should have been—
 
-"Whoosh."
+"Heh."
 
 Black phosphorescence.\
-Colliding with the peach, exploding.\
-The turrets did not die. Countless muzzles continued to target Strawberry Pink.
+It collided with the pink and burst.\
+The turrets did not fall. Their countless gun barrels continued to take aim at Strawberry Pink.
 
-"Oh, right. Of course. We're the same... aren't we?!"
+"Ah, I get it. Of course. We're the *same*, aren't we...!"
 
-Strawberry Pink pulled at the thread. A wall of pink thread formed.\
-Gunfire pierced through.
+Strawberry Pink drew out her thread. Pink filaments formed a wall.\
+Gunfire pierced it.
 
-The wall was pierced.\
-Threads snapped and flew.\
-Closing in: bullets wrapped in black phosphorescent magic.\
-Dodged at the last moment —blood flowed down Strawberry Pink's cheek.
+The wall was punctured.\
+Threads snapped and flew apart.\
+Bullets wreathed in black phosphorescence, in M-particles, bore down on her.\
+She dodged at the last possible instant, but blood trickled down Strawberry Pink's cheek.
 
-　M-particles can be neutralised by M-particles.\
-The magic protecting the girl from all impact can only be pierced by the same magic.\
-Only a magical girl can kill a witch, and only a witch can kill a magical girl.
+M-particles could be neutralised by M-particles.\
+The magic that shielded a girl from every impact could be pierced only by that same magic.\
+Only a magical girl could kill a witch, and only a witch could kill a magical girl.
 
-A battle to the death between girls equipped with the same Magus Engine. Neglecting defence means death.
+A battle to the death between girls equipped with the same Magus Engine. Let your defences slip, and you died.
 
-It resembled a school of fish.\
-　Countless turrets, suspended by M-particles, powered by M-particles.\
-Mounted with machine guns, rocket launchers, shotguns – swarms of unmanned artillery acting in unison, as if obeying a single will.
+They resembled a school of fish.\
+Countless turrets, floating through the air on M-particles and operating through M-particles.\
+Fitted with machine guns, rocket launchers, shotguns. A swarm of unmanned gun emplacements, moving together as though obeying a single will.
 
-It resembled a shoal of sardines.\
-Each one a mere speck.\
-Yet when they surged together, they struck like a storm――.
+They were just like a shoal of sardines.\
+Each one was small and insignificant.\
+But when they moved in unison, surging and twisting together, they descended like a storm...
 
-"Bloody hell! Enough!"
+"Urgh, come *on*! Enough already!"
 
-Bullets whistled past.\
-Pink threads flew.\
-The target: the witch's neck. Its severance.\
-But emaciated fingers, glowing black, grasped the thread.
+A bullet grazed her.\
+She sent a pink thread flying.\
+Her target was the witch's neck. To sever it.\
+But the witch's emaciated fingers, suffused with black light, reached out and—\
+**Caught the thread.**
 
-"Shit."
+"Shit!"
 
-By the time she realised, it was too late.\
-　The operational hum of the Magus Engine, akin to a girl's scream.\
-The roaring energy grants the emaciated body vitality beyond its limits—grasping, pulling, drawing it closer, into the kill zone...!
+By the time she realised what had happened, it was too late.\
+The Magus Engine roared, its operating noise resembling a girl's scream.\
+The surging energy granted vitality beyond all natural limits to the witch's wasted body. She gripped the thread, pulled, and reeled Strawberry Pink in, drawing her towards the kill zone at point-blank range...!
 
-"Not... by any chance!"
+"Not... a chance!"
 
-The instant it was pulled in.\
-The Magus Engine's pink operational hum.\
-The right arm, clad in the glove —is severed.
+The instant she was pulled in—\
+The Magus Engine roared again, this time with a pink resonance.\
+Strawberry Pink's right arm, glove and all, was **severed**.
 
-　The severed forearm. Peering through the cut surface were cables circulating M-particles. Chrome steel bones. Synthetic bioplastic flesh. The very essence of a magical girl. The remnants of modification.\
-Sacrificing the magical cyberware arm.\
-Kill zone range —the concentrated fire from the turrets scorched the severed forearm. Exploding, shooting, trampling, soft flesh dances.
+Her severed forearm revealed what lay beneath the cut: cables carrying circulating M-particles, chrome-steel bones, flesh made of synthetic bioplastic. The very things that made a magical girl a magical girl. The remnants of her modifications.\
+Sacrificing the arm of her magic cyberwear—\
+At point-blank range, the concentrated turret barrage scorched the severed forearm black. Blew it apart. Shot it to pieces. Pounded it into submission, sending soft flesh dancing through the air.
 
-All the turrets attacked the severed strawberry-pink forearm.\
-Strawberry Pink had been aiming for that.\
-The instant all the muzzles missed.
+Every turret attacked Strawberry Pink's severed forearm.\
+That was exactly what Strawberry Pink had been counting on.\
+The single instant when every gun barrel was pointed elsewhere.
 
-"Check"
+"Check."
 
-Strawberry Pink held it in her remaining left arm.
+In her remaining left hand, Strawberry Pink held it.
 
-"―Mate!"
+"**Mate!**"
 
-The magic cyberdeck's staff.\
-Strawberry Pink smashed the rod-shaped device into the witch's heart...!
+The staff of her magic cyberdeck.\
+Strawberry Pink brought the rod-shaped device crashing down against the witch's heart...!
