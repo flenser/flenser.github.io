@@ -1,10 +1,10 @@
 ---
 grand_parent: The World-Weary Magic Doll Shop — A Redo With the Strongest Witch, One Final Day With Someone Precious to You
 layout: episode
-nav_order: 74
+nav_order: 75
 parent: 'Chapter Four: A Request to Fiine Fellner'
-sequence: 74
-title: "Episode 74: Burkhardt's Dream"
+sequence: 75
+title: "Episode 75: Something Feels Off"
 ---
 ## Episode 75: Something Feels Off
 
