@@ -1,101 +1,118 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter Three: Lost Girls'
+parent: 'Lost Girls'
 sequence: 17
 title: 'Episode 17: Surgery'
 ---
-"Today. It's surgery day."
+## Episode 17: Surgery
 
-Chiwawa Yellow hugged her stuffed toy and told Momotsuki Haruka this in that square, where the sunlight felt pleasantly warm.
+\
+“Today. I’m having sur-gery.”
 
-"The tumour in my stomach and the cancer... well, the condition has improved."
+Clutching her stuffed animal, Chihuahua Yellow told Momotsuki Haruka this in the little clearing where the sunlight felt warm against their skin.
 
-Chiwawa Yellow stammered through the difficult words, her speech still a little slurred.\
-The girl clutched the pink bear stuffed toy tightly, her eyes downcast with unease. Even her bright golden eyes seemed to lack their usual sparkle today.
+“My *Magus Engine* is more synchronised, and my… anti-rejection… suppressants are working better, so…”
 
-"Right."
+Chihuahua Yellow struggled over the difficult words, stumbling through their pronunciation in her childish voice.\
+The girl hugged her pink teddy bear tightly, her round golden eyes lowered anxiously. Even those bright, sparkling eyes seemed dimmer than usual today.
 
-Haruka Momotsuki replied with only that.\
-Thought itself was forbidden.\
-Therefore, she acted accordingly. Haruka Momotsuki did not think. She did not think about the inner workings of a tearful girl who was merely a junior, merely a roommate, merely someone she'd spent a week or two with.
+“I see.”
 
-—‘Isn’t it rather sad?’
+That was all Momotsuki Haruka said in reply.\
+Thinking was forbidden.\
+So she behaved accordingly. Momotsuki Haruka did not think. She did not think about the feelings of a girl who was merely her junior, a roommate, a teary-eyed child she had spent only a week or two with.
 
-　She drowned out the troublesome thought with strawberry milk.\
-Cow's milk.\
-Even the thought of disgust was swallowed deep into her throat by the astonishing sweetness, washed away.
+*“Isn’t that sad?”*
 
-"...Weren't you scared, Senpai?"\
-"It's gone now, thanks to the surgery."\
-"What about before the surgery?"
+She drowned out the intrusive thought with strawberry milk.\
+Cow’s milk.\
+She swallowed even her revulsion at the thought, washing it down her throat with a sweetness so overwhelming it was almost astonishing.
 
-Thought.\
+“…Senior, weren’t you scared?”\
+“That sort of thing gets removed during surgery.”\
+“What about before the surgery?”
+
+Thinking.\
 Reset with strawberry milk.
 
-"【Recollection】 is forbidden... Can you manage it properly? Yellow."\
-"Oh dear, y-yes... I forgot... Ugh... It's difficult..."\
-"It's alright. After the surgery, everyone just becomes like that automatically."
+“[Reminiscing] is forbidden… Can you manage it properly, Yellow?”\
+“Eep! I-I’m sorry… Uuuh… It’s difficult…”\
+“It’ll be all right. Once you’ve had the surgery, everyone becomes *like that* on their own.”
 
-There was no thought of reassuring her.\
-Just the facts.\
-Just the facts, calmly conveyed to a girl five years younger than herself.
+She had not thought about reassuring the girl.\
+She had merely stated the facts.\
+Simply and calmly, she had conveyed those facts to a girl five years younger than herself.
 
-"...You really forget your name too? Is that true?"\
-"Yes."\
-"Father and Mother, and Yu... and family too?"\
-"Yes. Because 【Recollection】 is forbidden."\
-"...Does that mean..."
+*
 
-Haruka Momotsuki pulled the M-Particle, severing the auditory connection from her brain.
+“…Is it true that you forget your *name*, too?”\
+“Yes.”\
+“And your father and mother, and Yu… your family, too?”\
+“Yes. [Reminiscing] is forbidden, after all.”\
+“…But… doesn’t that…”
 
-"――――――――Doesn't that hurt?"
+Momotsuki Haruka manipulated the M-particles and severed the connection between her brain and her hearing.
 
-She reconnected her auditory function.
+“—ISN’T THAT PAINFUL?”
 
-"Don't ever say that again. Not in front of me, and absolutely not in front of adults."\
-"Eh? Ah, I... I'm... I'm sorry. Senpai..."\
-"No need for apologies."
+She reconnected her hearing.
 
-Haruka Momotsuki drank her strawberry milk.\
-It was a pointless thought.\
-Not a thought.\
-That's just how it was.\
-Because that's how it was, Haruka Momotsuki decided this wasn't a thought.
+“Never make that statement again. Not in front of me, and absolutely never in front of an adult.”\
+“Huh? Ah, I… Uuh… I-I’m sorry, Senior…”\
+“You don’t need to apologise.”
 
-"Name..."\
-"Eh?"\
-"...Only your name won't disappear."
+Momotsuki Haruka drank her strawberry milk.\
+That was a pointless thought.\
+It was not a thought.\
+*That was simply how things were.*\
+And because *that was simply how things were*, Momotsuki Haruka decided that this was not a thought.
 
-That was the final conversation with the girl before the operation.
+“Your name…”\
+“Hm?”\
+“…At least your name won’t disappear.”
+
+That was the last conversation she had with the girl before the surgery.
 
 ＊
 
 The girl returned in a wheelchair.
 
-They'd tampered with her brain. Naturally, she couldn't walk again immediately.\
-It would take a long, long time for her body to catch up. A magical girl might manage it in weeks thanks to drug boosts, but for an ordinary human, it was commonplace for it to take a lifetime and still not fully adapt.\
-The beat of the new heart, the Magus Engine.\
-　The shape of a new, thoughtless brain.
+They had operated on her brain. Naturally, there was no way she could walk again straight away.\
+It would take a long, long time for her body to catch up. Magical girls were given a boost by drugs, which was why the process took only a few weeks for them. For ordinary people, it was not uncommon for them never to adjust, even over the course of an entire lifetime.\
+The beat of a new heart, the Magus Engine.\
+The shape of a new brain, one without thoughts.
 
-"Ugh..."
+“Uu…”
 
-A round head, its fluffy golden hair—shorn off.\
-Vacant, golden eyes.\
-The language centre hadn't activated yet either.
+Her fluffy golden hair had been shaved away, leaving a round head.\
+Her golden eyes were vacant.\
+Even her language centres had yet to come online.
 
-In the hospital ward corridor, a young girl in a wheelchair, pushed by an adult.\
-Sitting directly opposite her, Momotsuki Haruka performed that ritual.
+A small girl sat in a wheelchair in the hospital corridor, pushed along by an adult.\
+Momotsuki Haruka crouched down in front of her and performed *that thing*.
 
-"Welcome. 【Chiwawa Yellow】"\
-"Ah...?"\
-"【Kizuki Natsuki】-chan"
+*
 
-Yellow, hence yellow.\
-She's very affectionate, and since she comes after Haru, Natsu.\
-Haruka Momotsuki didn't know why the name included 'moon'. She didn't think about it. Viola Purple... Ever since the days of 【Murasaki Tsuki Fuyumi】, it had always been that way.
+“Welcome, [Chihuahua Yellow].”\
+“Ah…?”\
+“[Kizuki Natsuki]-chan.”
 
-"...You're not alone."
+*
 
-That's how it was. A set phrase.\
-Haruka Momotsuki wasn't permitted to think about the meaning behind the gentle voice she murmured, nor the warmth of embracing the girl, nor even the pulse beating against her skin.
+Yellow, because she was Yellow.\
+She was affectionate by nature, and because she came after *Haru*, she was *Natsu*.\
+Momotsuki Haruka did not know why the name contained the character for *moon*. She did not think about it. Ever since the days of Viola Purple… [Shizuki Fuyumi], things had always been *simply how they were*.[^name]
+
+*
+
+“…You’re not alone.”
+
+*
+
+*That was simply how things were.* A *set phrase*.\
+Momotsuki Haruka was not permitted to think about the meaning of the gentle words she murmured, the warmth of the girl she held in her arms, or even the beating of the heart she could feel against her skin.
+
+---
+
+[name]: The name is explained through a childlike association: Yellow gives rise to *Kizuki*, while *Natsuki* follows *Haruka* in the seasonal sequence, with *haru* meaning spring and *natsu* meaning summer. The precise reading and naming logic are stylised rather than straightforwardly conventional. The character 月 (*moon*) in Kizuki is itself something Haruka does not understand, and she refuses to question it.
