@@ -2,114 +2,146 @@
 grand_parent: Monofilament Witch
 layout: episode
 nav_order: 50
-parent: 'Chapter Two: Crisps and Cola'
+parent: 'Crisps and Cola'
 sequence: 10
-title: 'Episode 10: Night Journey'
+title: 'Episode 10: Night Run'
 ---
-Haruka Momotsuki, in the car, was ruminating on the lingering taste on her tongue.\
+## Episode 10: Night Run
+
+\
+Momotsuki Haruka was turning over the taste lingering on her tongue as she sat in the car.\
 Potato crisps and cola.\
-The snacks she'd eaten with Sere.
+The snacks she had eaten with Sere.
 
-The two cheapest items at the convenience store, due to money constraints.\
-Food she'd consumed for the first time in her life —though perhaps not the very first time. But the memory of that first time had worn away, nowhere to be found.\
-　Unlike the individually wrapped biscuits occasionally given at the facility, these were junk food, unregulated in fat and salt content. And the liquid that washed it all down —fizzing, bubbling, pleasantly soothing once you got used to it.
+They had been the two cheapest things in the convenience store, chosen because of how little money they had.\
+Food she was eating for the first time in her life. Or perhaps not for the first time. But if there had been an earlier occasion, the memory had worn away until nothing remained.\
+It was nothing like the individually wrapped biscuits she was occasionally given at the facility. This was junk food, with unregulated amounts of fat and salt. And the liquid that washed it all down, crackling and fizzing in her mouth, had felt pleasant once she got used to it.
 
-Having completed the task of visiting Fuyumi Shizuki's grave, that was all that remained in her mind.\
-　The silver-haired girl who drank the fizzy drink as if it were the most natural thing, smiling sweetly.\
-The girl with eyes as beautiful as an ice castle, reminiscent of the Pisces Witch.\
+After completing the task of visiting Shizuki Fuyumi’s grave, that was all that remained in her heart.\
+The silver-haired girl, drinking the fizzy beverage as though it were the most natural thing in the world, smiling sweetly.\
+The girl with eyes as beautiful as a castle made of ice, resembling the Witch of Pisces.\
 Sere.\
-I've forgotten her full name.\
-But she had granted permission to [Momotsuki Haruka] to call her casually by the name [Sere].
+She had forgotten the girl’s full name.\
+But Sere had given [Momotsuki Haruka] permission to call her [Sere], just like that.
 
-She was cute.\
-She was beautiful.\
-She was kind.
+Cute.\
+Beautiful.\
+Kind.
 
-"—Strawberry Pink. Recollections are forbidden."\
-"Yes. Sorry."
+*
 
-I'd been lost in thought.\
-My behaviour, impermissible for a magical girl, had been spotted by the driver too.
+“... [Strawberry Pink]. [Reminiscing] is forbidden.”\
+“Yes. Sorry.”
 
-"Thoughts too. HQ instructed that upon returning, you must submit a report detailing all events that occurred without any intervening thoughts. Everything consumed outside, everything seen."\
-"Yes."\
-"...Sleep is permitted. That is to say..."
+*
 
-The driver in black, whose name she didn't know.
+She had been lost in thought.\
+Even the driver had seen through her, recognising behaviour that was forbidden to a magical girl.
 
-"You must be tired... Rest now. Work will resume once we return."
+“[Thought] is forbidden, too. HQ has instructed you to submit a report of everything that happened, without inserting any thoughts of your own. Everything you ate and drank outside, everything you saw. All of it.”\
+“Yes.”\
+“...You have permission to sleep. Well, how should I put this...”
 
-Even the voice of such a person made her almost start to think. The strawberry milk the driver brought drove such thoughts from her mind.
+The driver was a man in black whose name she didn’t even know.
 
-　――'It was a good day'.
+“You must be tired... Get some rest while you can. Once we’re back, it’ll be time to work again.”
 
-Even the morning when she'd wet her pillow felt like a distant memory.\
-The communication device containing Sere's contact details felt faintly warm.\
-She felt it.\
-Merely feeling it wasn't thinking.\
-Haruka Momozuki made that rather un-magical-girl-like excuse to herself, quietly closing her eyes――
+Even the voice of someone like him nearly prompted her to think, despite herself. But the strawberry milk the driver had brought her drove such thoughts from her brain.
 
-　A moving car window.\
-She noticed the silver shadow crossing too late.
+*
+
+*...It was a good day.*
+
+*
+
+Even the fact that she had soaked her pillow with tears that morning already seemed like something from the distant past.\
+The communication device containing Sere’s contact details seemed faintly warm.\
+She could feel it.\
+Feeling something, at least, wasn’t the same as thinking.\
+Momotsuki Haruka offered herself this excuse for behaving in a way *unbecoming* of a magical girl, then quietly closed her eyes...
+
+***
+
+The car sped along, the scenery flashing past its windows.\
+She was too slow to notice the silver shadow crossing their path.
+
+*
 
 A metallic clang.\
-Severed.\
-Had her head not been resting against the window, she would have died / overhead / the black-painted car sliced clean through / red splattering her vision / the driver in black / her head jerking sideways / falling / the steering wheel.
+Severance.\
+Had she not been resting her head against the window, she would have died / The black car was sliced apart / directly above her head / right beside her / Red splattered across her field of vision / The driver’s black uniform / His neck slipping out of alignment / Falling / The steering wheel.
 
-　The screech of brakes.
+The sound of brakes.
 
-The collision.\
-On the bridge, crashing into the guardrail and coming to a halt.\
-Haruka Momotsuki snapped her drowsy eyes open.\
-Her trained dynamic vision recognised the shadow far behind —the one that had severed the vehicle as it passed.
+Impact.\
+The car struck the guardrail on the bridge and came to a halt.\
+Momotsuki Haruka’s drowsy eyes flew open.\
+Her trained visual acuity picked out a shape far behind them, a shadow that had sliced through their vehicle as it passed.
 
-　A girl clad in a silver dress.\
+*
+
+A girl clad in a silver dress.\
 A silver mask.\
-Dancing silver hair.\
-Chrome steel gauntlets.\
-The silver phosphorescence of the Magus Engine flickering upon her chest.\
-A magic cyberdeck staff shaped like wings / Directly connected, a Japanese sword.
+Silver hair dancing in the air.\
+Chrome-steel gauntlets.\
+The silver phosphorescence of a Magus Engine glimmering in her chest.\
+A staff shaped like wings, a magical cyberdeck with a Japanese sword attached directly to it.
 
-　A silver shadow, likely one or two years older than Momotsuki Haruka, sheathed the Japanese sword within its scabbard. With a drive sound resembling a girl's scream, the scabbard at the silver shadow's waist accepted it. A mechanical scabbard. Something was rigged.
+*
 
-Upon seeing that rigging.\
-A human would likely die.
+Despite her small, childlike frame, she looked perhaps a year or two older than Momotsuki Haruka.\
+The silver shadow slid the Japanese sword back into its scabbard. With a mechanical whine resembling a girl’s scream, the scabbard at her waist accepted the blade.\
+A mechanical scabbard. There was some sort of mechanism inside it.
 
-HQ to Strawberry Pink. Life signs from the pick-up driver have ceased. Report status.\
-"Enemy attack. Witch."\
-Authorisation granted for [Magic] use. Reinforcements ooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo "\
-"Jamming, eh?"
+The moment you saw that mechanism, you would probably die.
 
-　Haruka Momotsuki placed a hand over her chest.\
-The inactivated Magus Engine felt cold, like steel.\
-Somehow, it reminded her of the coldness in that girl's hand...
+“HQ to [Strawberry Pink]. The life signs of your driver have ceased. Report the situation.”\
+“Enemy attack. A Witch.”\
+“Use of [magic] is authorised. Reinforcements are oooooooooooooooooo縺翫￥繧九♀縺上ｋ翫￥繧縺翫￥繧九♀縺上ｋ翫￥繧縺翫￥繧九♀縺上ｋ翫￥繧縺翫￥繧九♀縺上ｋ翫￥繧”\
+“Jamming, huh?”
 
-"Ah, it's no good after all. I— 'For peace. For tranquillity.'"
+Momotsuki Haruka placed a hand against her chest.\
+The inactive Magus Engine felt cold, like steel.\
+Somehow, that coldness reminded her of Sere’s hands...
+
+“Ah, so it really is no good. I...”
+
+*“It is for the sake of tranquillity. It is for the sake of serenity.”*
 
 The incantation.\
-Floating M-particles —the glow of magical power.\
-　The Magus Engine embedded in Momotsuki Haruka's heart activated, staining the skyscraper sky with a peach-coloured light. Shadows fell, and within them, the girl's form began to change.
+Floating M-particles shimmered with magical light.\
+The Magus Engine embedded in Momotsuki Haruka’s heart began to operate, and pink light stained the sky above the skyscrapers. A shadow fell, and within it, the girl’s form began to change.
 
-"'For the sake of order, I forge this and grant it the power to wield.'"
+*“For the sake of order, this shall be forged, and the wielding of its power permitted.”*
 
-The black twin tails dyed pink.\
-The rumpled pink hoodie covered her body like an adorned dress.
+Her black twin tails turned pink.\
+Her rumpled pink hoodie transformed into an ornate dress that enveloped her body.
 
-"'Therefore'."
+*“Therefore...”*
 
-Her wide-open eyes shone pink, sparkling like scattered stars.\
-Her lips, weaving the incantation, were coloured as if reflecting the girl's flushed cheeks.\
-Chrome steel gloves adorned her slender fingers.
+Her eyes flew open, shining pink and sparkling as though scattered with stars.\
+Her lips, shaping the incantation, took on a flush that seemed to reflect the girl’s rising heat.\
+Chrome-steel gloves adorned her slender fingers.
 
-A rod protruded from her liberated chest.\
-White fingers drew it out.
+*
 
-"'Thou art without sin.'"
+A rod protruded from her exposed chest.\
+White fingers reached out and pulled it free.
 
-Haruka Momotsuki—【Strawberry Pink】—bit back the words.\
-"I can't be a normal girl."\
-Such an obvious statement.
+*
 
-"—【Strawberry Pink】, summoned and here I come!"
+*“Thou art without sin.”*
 
-She transformed those words into a declaration of war.
+*
+
+Momotsuki Haruka, [Strawberry Pink], swallowed the words she had wanted to say.\
+*I can never become an ordinary girl.*\
+Such an obvious thing to say.
+
+*
+
+“... [Strawberry Pink]! Answering the call and making my grand entrance!”
+
+*
+
+She turned those words into a declaration of war.

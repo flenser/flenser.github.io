@@ -2,92 +2,105 @@
 grand_parent: Monofilament Witch
 layout: episode
 nav_order: 20
-parent: 'Chapter Two: Crisps and Cola'
+parent: 'Crisps and Cola'
 sequence: 7
-title: 'Episode 7: Going Out'
+title: 'Episode 7: An Outing'
 ---
-It was the first time Momotsuki Haruka had ever applied for permission to go out.
+## Episode 7: An Outing
 
-It had been five years since Momotsuki Haruka became a magical girl... since she was taken in by the organisation and had a Magus Engine implanted in her heart... when she was eight years old. Since then, she had never left the organisation's premises for anything other than missions. The training facility called the 【School】, the medical wing with its examination rooms – everything was within the organisation's grounds, so there had been no need.
+\
+It was the first time Momotsuki Haruka had ever submitted an application for permission to go out.
 
-　When her request for leave was granted without a hitch, Momozuki Haruka vaguely thought, "Is that all there is to it?" and sipped her strawberry milk to shake off the thought.\
-Then, for the first time in her life, she boarded a ferry alone.
+Momotsuki Haruka had become a magical girl... had been taken in by the authorities and had a Magus Engine installed in her heart... five years ago, when she was eight. Since then, she had never once left the organisation's grounds except on a mission. The training facility known as the **[School]**, the medical building where the examination rooms were located, everything was within the organisation's grounds. There had never been any need to leave.
+
+When her application for permission to go out was approved without a hitch, Momotsuki Haruka vaguely thought, *So that's all there is to it*, then sucked on her strawberry milk to suppress the thought.\
+And so, for the first time in her life, she boarded a ferry alone.
+
+*
 
 The city.\
-Magus City Tokyo.\
-　A floating city built atop Tokyo Bay, which had become a crater during the Third World War. The skyscrapers on the water, arranged to fit perfectly within the crater's circular shape, had a long tower housing government offices at their centre, casting a shadow like a sundial.\
-The morning sun sparkled on the water's surface.\
-Seabirds flew overhead.\
-The sea breeze caressing her skin reminded Momotsuki Haruka of the season.
+**Magus City Tokyo.**\
+A floating city built over Tokyo Bay, which had become a crater during the Third World War. The skyscrapers on the water were arranged to fit neatly within the crater's circular outline. At the centre stood a long tower housing the government offices, casting a shadow like the hand of a sundial.\
+The morning sun sparkled on the water.\
+Seabirds wheeled overhead.\
+The sea breeze brushed her skin, reminding Momotsuki Haruka of the season.
 
-　It was summer.\
-The ferry connecting Tokyo and the Kantō region was crowded with families.
+It was summer.\
+The ferry connecting Tokyo with the Kanto region was crowded with families.
 
-"Hey, Dad, isn't Tokyo full of bad people?\
-Are you sure it's safe?"\
-"It's fine. The magical girls protect us. And I'll protect you too."
+*
 
-　Such a conversation reached her ears.\
-Haruka Momotsuki pulled the hood of her pink parka deep over her head and joined the queue at the vending machine to stifle unnecessary thoughts. Her turn came.\
-She intended to buy strawberry milk.\
-She knew how to use a vending machine. It was her first time out alone, but she knew that much as common sense. Just tap the device and press the button.\
-Beep.
+“Hey, Papa, there're lots of bad people in Tokyo, right?\
+Are you gonna be okay?”\
+“Of course. The magical girls will protect us. And I'll protect you, too.”
 
-　She stretched her finger.\
-It didn't reach.
+She overheard the conversation.\
+Momotsuki Haruka pulled the hood of her pink hoodie low over her head and joined the queue at a vending machine, trying to suppress any unnecessary thoughts.\
+Her turn came.\
+She tried to buy strawberry milk.\
+She knew how to use a vending machine, at least. This might be her first time going out alone, but that much was common knowledge. Just tap her device and press the button.\
+*Beep.*
 
-"......"
+She reached out.\
+She couldn't reach.
 
-She stood on tiptoe.\
-It didn't reach.
+“...”
 
-"............"
+She stretched up on tiptoe.\
+Still couldn't reach.
 
-She jumped up and down.\
-It grazed the button.\
-She couldn't press it.
+“............”
 
-"..................."
+She jumped.\
+Her fingers brushed it.\
+She couldn't press the button.
 
-She had to stop these thoughts.\
-But the strawberry milk she'd brought had already been drunk.\
-　The place I'm stretching my finger towards now —the top shelf of the vending machine —is out of reach for Momotsuki Haruka's fingers.
+“.......................”
 
-"Ah..."
+She had to suppress her thoughts.\
+But she had already finished the strawberry milk she'd brought with her.\
+The button she was reaching for now, on the very top row of the vending machine, was beyond Momotsuki Haruka's grasp.
 
-It's no good.\
-Something is no good.\
-Something wells up in my tear ducts.\
-An incomprehensible sensation. An emotion. I've never felt anything like this before—
+“Ah...”
 
-"Here you go."\
-"Ah!"
+Something was wrong.\
+Something was terribly wrong.\
+Something welled up behind her tear ducts.\
+An incomprehensible sensation. An emotion. She had never felt *anything like this* before...
 
-　Beep.
+“Here you go.”\
+“Ah!”
 
-Clatter.\
-The strawberry milk PET bottle fell.\
-Not the usual paper carton she drank from, but a 150ml one packed full.\
-As Momozuki Haruka stood there dazed —someone picked it up and handed it to her.
+*
 
-"Mm?"
+*Beep.*
 
-Momozuki Haruka looked at the owner of that hand.\
+*
+
+*Clunk.*\
+A plastic bottle of strawberry milk dropped into the collection slot.\
+Unlike the little cartons she usually drank, this one was packed with 150 millilitres of milk.\
+As Momotsuki Haruka stood there in a daze, someone retrieved the bottle and held it out to her.
+
+“Here.”
+
+Momotsuki Haruka looked at the owner of the hand.\
 A girl.\
-Pretty.\
+Beautiful.\
 And familiar.
 
-"You wanted it, didn't you? Here. Don't cry."
+“You wanted it, didn't you? Here. No crying, now.”
 
-It reflected in her vision, blurred by tears that had formed unnoticed.\
-On the deck. Silver hair, sparkling in the sunlight.\
-A white dress, swaying in the wind.\
+The girl appeared in the vision blurred by tears that Haruka hadn't even realised were falling.\
+On the ferry's deck, silver hair glittered in the sunlight.\
+A white dress swayed in the breeze.\
 A straw hat.\
-A girl, slightly taller than Momotsuki Haruka.
+A girl just a little taller than Momotsuki Haruka.
 
-Her eyes were clear as an ice castle, azure blue—
+Her eyes were blue-green, clear as *a castle made of ice*...
 
-"—The Pisces Witch…?"\
-"?"
+“...**[Witch of Pisces]**?”\
+“Hmm?”
 
-The girl tilting her head bore an uncanny resemblance to the witch I had slain just the other day.
+The girl tilted her head.\
+She looked uncannily like the Witch whom Haruka had killed just the other day.
