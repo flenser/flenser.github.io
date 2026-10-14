@@ -1,148 +1,163 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter Three: Lost Girls'
+parent: 'Lost Girls'
 sequence: 13
 title: 'Episode 13: Excision'
 ---
-Voices reverberate through my skull.
+## Episode 13: Excision
 
-"Worse than mince."\
-"Hurry up with the removal. It'll rot inside."\
-"Consciousness level..."\
-"Confirmed rise in M-particle levels. Particle erosion accelerating."
+\
+Voices shook her brain.
 
-My eyelids feel heavy.
+“It's worse than mincemeat.”\
+“Hurry up and get it out. It'll rot inside her.”\
+“Her level of consciousness is...”\
+“Confirmed rise in M-chlorian levels. Particle infiltration is accelerating!”
 
-"This is hopeless. Rectum, small intestine, kidneys, then the uterus... Honestly, there's less intact than damaged. The spinal cord's a bloody mess. Are we seriously replacing them with artificial organs? It'd be better to just let her die like this..."
+Her eyelids were heavy.
 
-My stomach hurts.
+“This is bad. Rectum, small intestine, kidneys, and uterus... There are hardly any parts left unscathed. Her spinal cord is a complete mess, too. Are we seriously replacing her organs with artificial ones? Wouldn't it be better to just let her die...?”
 
-"Hey! The consciousness level is returning!"\
-"—Why didn't you say that sooner?! Increase the anaesthetic! Pump in three times the human dose! Maximum alert for M-particle luminescence!"\
-"Bloody hell! This is why I hate operating on monster magical girls!"\
-"Shut up and hurry! Before the Magus Engine activates!"
+Her stomach hurt.
 
-　Koshū... With that sound, my self dissolved.\
-A foreign sensation flowed from my neck to my brain.\
+“Hey! Her level of consciousness is starting to return!”\
+“Then why the hell didn't you say so sooner?! Increase the anaesthetic! Give her three times the human dose, if you have to! Take every possible precaution against M-particle luminescence!”\
+“Shit! This is why I hate operating on those monstrous magical girls!”\
+“Shut up and hurry! Before the Magus Engine activates!”
+
+With a *pssshhh*, her sense of self began to dissolve.\
+The sensation of something foreign flowed from the nape of her neck into her brain.\
 Unravelling.\
-Into the depths of sleep.\
-Peach light.
+Down into the depths of sleep.\
+Peach-coloured light.
 
 ＊
 
-Strawberry Pink realised she was Strawberry Pink. The twin tails swaying at the edge of her vision were pink, and her clothes were a dress.\
-　Wearing such a sparkling outfit could only be 【Strawberry Pink】.\
-Not 【Momoizuki Haruka】.\
-Wearing beautiful clothes.\
-Free.\
-Able to laugh.\
-That is 【Strawberry Pink】.\
-That much was certain. And yet —she didn't understand.
+[Strawberry Pink] realised that she was [Strawberry Pink].\
+The twin tails swaying at the edge of her vision were pink, and she was wearing a dress.\
+She had to be [Strawberry Pink]. Who else would wear such a glittering outfit?\
+She wasn't [Momotsuki Haruka].\
+She wore beautiful clothes.\
+She was free.\
+She could laugh.\
+That was what made her [Strawberry Pink].\
+Of that much, she was certain.\
+And yet...\
+She didn't understand.
 
-Strawberry Pink didn't know where she was now.
+Strawberry Pink had no idea where she was.
 
-　――――A warm house.
+*
 
-The fire in the hearth flickered, casting a soft glow over the room.\
-It was an unfamiliar house.\
-Yet, it felt strangely nostalgic.\
-The snow falling outside the window, the plushness of the carpet, the scent of wood, the lingering aroma of stew from the kitchen – everything felt nostalgic.\
-A familiar sight.\
-An unfamiliar sight.\
-　Strawberry Pink stood there, unable to comprehend.
+*A warm home.*
 
-Squeak.\
-Squeak.
+*
 
-The sound of wood creaking.\
-It was the sound of a chair.\
-Slowly, slowly. A chair that tilted under weight. Someone was sitting there. Strawberry Pink found herself calling out to the back of that figure.
+The fire in the hearth flickered, casting its light around the room.\
+It was a house she didn't know.\
+And yet, somehow, it felt familiar.\
+The snow falling outside the window. The softness of the carpet beneath her feet. The smell of firewood. The lingering scent of stew wafting from the kitchen.\
+Everything felt familiar.\
+A scene she knew.\
+A scene she didn't know.\
+Strawberry Pink stood still, unable to understand.
 
-"...Sere."
+*Creak. Creak.*
 
-She looked so much like her.\
-But she wasn't.
+The sound of wood groaning.\
+It was a chair.\
+A chair that tilted as someone slowly shifted their weight upon it. Someone was sitting there. Before she knew it, Strawberry Pink had spoken to the figure's back.
 
-　Flowing hair, blue, transparent like a sea of stars.\
-The slender arm resting on the chair's armrest, white, gentle-looking.\
-The cheek turning to look back was beautiful, and the eyes gazing this way were azure, like an ice castle.
+“...Sere.”
 
-"I'm sorry. I'm not that girl you like."\
-"...Sapphire Blue?"\
-"Yes."
+She looked very much like her.\
+But she was different.
 
-Somehow, the words came out.\
+Her flowing hair was blue, translucent as a sea of stars.\
+Her slender arms, resting on the armrests of the chair, were white and seemed gentle.\
+When she turned, her cheeks were beautiful, and her eyes, looking directly at Strawberry Pink, were the colour of an *ice castle*.
+
+“I'm sorry. I'm not the girl you like.”\
+“... [Sapphire Blue]?”\
+“Mm-hm.”
+
+Somehow, the words had come to her.\
 It was the name of a woman she didn't know.
 
-"I'm sorry, junior."
+“I'm sorry, junior.”
 
 She apologised. Strawberry Pink thought.\
 Strawberry Pink understood.
 
-"I'm going to drag you into this."
+“I'll end up dragging you into this.”
 
 Black light. Blue hair.\
-'Big sister'.\
+*Big Sis.*\
 Revenge.\
-　――――【The Pisces Witch】.
+**[Witch of Pisces].**
 
-"Yes."\
-"The witch I killed?"\
-"Yes —the light that flowed into you back then is what I am now."
+“Yeah.”\
+“Am I talking to the Witch I killed?”\
+“Mm-hm. The light that flowed into you back then... That's me now.”
 
-Pale phosphorescence. Black light magic.\
-The witch's memories, flowing back through the M-particles.\
+Faint phosphorescence. Black magical light.\
+The Witch's memories, flowing backwards through the M-particles.\
 Strawberry Pink's brain began to think clearly.
 
-　M-particles transmit human thoughts.\
-And thoughts contaminate humans.\
-Like those with overly potent ideologies influencing and inciting others.\
-High-concentration M-particles transmit thoughts too strongly. As if one had always thought that way oneself —a common occurrence.
+M-particles transmitted human thought.\
+And thought contaminated people.\
+Just as someone with sufficiently strong convictions could sway and incite others.\
+M-particles at high concentrations transmitted thoughts *too* strongly. They made it seem *as though you had held those thoughts yourself from the very beginning*.\
+It was a common phenomenon.
 
-The slain witch appears in dreams.\
-—That is why magical girls are forbidden to dream.
+The Witch you killed appeared in your dreams.\
+*That was why magical girls were forbidden to dream.*
 
-"What's happening to me now?"\
-"Because I forcibly healed your body, the doctors are in a quandary."\
-"How awful. You could have just let me die."\
-"Then I'd die too."
+“What’s happening to me right now?”\
+“I forced your body to heal, and now the doctors don't know what to do with you.”\
+“That's awful. You could've just let me die.”\
+“Then I would've died, too.”
 
-Besides, she added.\
-【Sapphire Blue】...【The Witch's Dream】 smiled gently.
+Besides...\
+[Sapphire Blue], the **[Witch's Dream]**, smiled gently.
 
-"Dying. Isn't that terribly sad?"
+*
 
-"...It's your fault, isn't it, 【Pisces Witch】?"\
-"Yes."\
-"I'll cry."
+“Isn't death... a terribly sad thing?”
 
-The witch's remnant smiled.\
-Her eyes were lowered, looking a little sad.
+*
 
-"You taught me sorrow. You went and did something unnecessary... See, I cried when I saw Sere. Why did I become sad?"\
-"You don't know that."\
-"Yeah, I don't know."\
-"So I can't tell you."\
-"How inconvenient."\
-"I understand."
+“...So this is your fault, [Witch of Pisces].”\
+“Mm-hm.”\
+“I'm crying because of you.”
 
-A soft chuckle.\
-The remnant of the witch's smile was, after all, reminiscent of Cele's.
+The Witch's remnant smiled.\
+Her eyes lowered, just a little, with a hint of sadness.
 
-"From now on, you'll experience a great deal of sorrow. Your heart might feel as though it's tearing apart. You'll be filled with pain, anguish, and a heart-wrenching feeling you can't control —your thoughts will be completely consumed by it—"\
-"Honestly, you really are meddling."\
-"—Don't forget. You might never dream of me again—"
+“*You taught me* *what sadness was*. What a needless thing to do... Hey, I cried when I saw Sere. Why did I feel sad?”\
+“You don't know that yet.”\
+“Yeah. I don't know.”\
+“So I can't teach you.”\
+“How inconvenient.”\
+“I know.”
 
-The logs in the fireplace crackled and popped.
+She gave a little chuckle.\
+The smile of the Witch's remnant really did resemble Sere's.
 
-"It's alright to cry.\
-You're just an ordinary girl, after all."
+“You're going to experience so much sadness from now on. Your heart might feel as though it's breaking apart. You'll be in pain, you'll suffer, you'll ache with longing. You'll be filled with feelings you can't do anything about, and your thoughts will become consumed by them...”\
+“Seriously. What a needless thing to do.”\
+“...Don't forget. You might never dream of me again.”
 
-The flickering flames painted her vision white.
+The firewood in the hearth crackled and snapped.
+
+“It's all right to cry.\
+You're an ordinary girl, after all.”
+
+The flickering flames washed her vision white.
 
 ＊
 
-"Total removal and replacement complete. Procedure concluded."\
-"—Hey, this one. How much of her original body is left?"\
-"At least thirty percent."
+“Complete removal and replacement confirmed. Procedure complete.”\
+“...Hey, how much of this girl's body is still flesh and blood?”\
+“About thirty percent.”
