@@ -115,4 +115,4 @@ Momotsuki Haruka was not permitted to think about the meaning of the gentle word
 
 ---
 
-[name]: The name is explained through a childlike association: Yellow gives rise to *Kizuki*, while *Natsuki* follows *Haruka* in the seasonal sequence, with *haru* meaning spring and *natsu* meaning summer. The precise reading and naming logic are stylised rather than straightforwardly conventional. The character 月 (*moon*) in Kizuki is itself something Haruka does not understand, and she refuses to question it.
+[^name]: The name is explained through a childlike association: Yellow gives rise to *Kizuki*, while *Natsuki* follows *Haruka* in the seasonal sequence, with *haru* meaning spring and *natsu* meaning summer. The precise reading and naming logic are stylised rather than straightforwardly conventional. The character 月 (*moon*) in Kizuki is itself something Haruka does not understand, and she refuses to question it.
