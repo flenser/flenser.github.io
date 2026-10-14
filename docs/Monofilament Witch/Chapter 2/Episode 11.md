@@ -2,138 +2,156 @@
 grand_parent: Monofilament Witch
 layout: episode
 nav_order: 60
-parent: 'Chapter Two: Crisps and Cola'
+parent: 'Crisps and Cola'
 sequence: 11
-title: 'Episode 11: The Smile'
+title: 'Episode 11: A Smile at Last'
 ---
-Who or what?\
-Strawberry Pink, freed from her constraints upon receiving permission to use magic, began to ponder. Access to the database was jammed. Communication with HQ was similarly blocked. In that case, attempting it would be a waste of time.
+## Episode 11: A Smile at Last
 
-　What came to mind were the names of the twelve notable witches.\
-Survivors of the Hakodate battle, survivors in the modern age, pitiful maidens swallowed by magic.\
-Among those named after the twelve signs of the zodiac— 'Silver' was not present. There should have been none wielding a 'Sword'.
+\
+Who was she?\
+With permission to use [magic], [Strawberry Pink] turned over the thoughts that had been released to her.\
+Access to the database was jammed. Communications with HQ were likewise blocked. Trying either would simply be a waste of time.
 
-　This situation, with my right arm missing, was targeted.\
-The black-painted custom vehicle, designed to withstand gunfire, was cleaved in two without a trace of phosphorescent magic.
+Instead, she brought to mind the names of the twelve Witches worthy of particular note.\
+Survivors of the Battle of Hakodate, still alive in the modern age, pitiful maidens swallowed by magic.\
+Their names had been assigned after the twelve signs of the zodiac. Among them, there was no *Silver*. And as far as she knew, none of them wielded a *sword*.
 
-"—Backed by an intelligence organisation. The latest model, I suppose."
+The enemy had chosen to attack when her armed right arm was missing.\
+She had sliced a custom-built black car, designed to withstand a gunfight, clean in two with a single stroke, without any phosphorescent magic.
 
-My mind simulates the worst-case scenario.\
-Yet, there is no answer.\
-　All that exists is the silver mask fixed upon me. The silver dress fluttering, the Japanese sword fused with the cane sheathed —the killing intent of the witch, the illegal overloaded magic cyberware user.
+“...Backed by an intelligence organisation. Must be the latest model.”
 
-"Enemy."\
-"...You can talk, you know. That's unusual for a witch. If your language centre hasn't been corrupted by M-particles, this could be quick. If I issue a surrender demand—"\
-"I'll cut you down."
+Her thoughts simulated the worst-case scenarios.\
+But there was no answer.\
+Only the silver mask staring her down, and the killing intent of the Witch before her. The girl in the silver dress had swept her skirts around herself and sheathed the Japanese sword joined to her staff. She was an illegal overloader of magical cyberwear.
 
-A silver flash.\
+“Revenge.”\
+“...You can talk, then. That's unusual for a Witch. If M-particles haven't eaten away at your language centre, this should be straightforward. If I offer you the chance to surrender...”\
+“I'll cut you down.”
+
+A flash of silver.\
 The sound of severing.\
 An instant.
 
-"—Well, I suppose you won't listen."
+“...Well, I didn't think you'd listen.”
 
-Strawberry Pink sighed, staring at the severed magical cyberdeck wand —cut cleanly, as expected.\
-No cold sweat.\
-Neither shoulders nor legs trembled.\
-No agitation —but analysis accelerated.
+Strawberry Pink stared at the magical cyberdeck staff that had been cut cleanly in two, and sighed.\
+She wasn't sweating.\
+Neither her shoulders nor her legs were trembling.\
+She felt no agitation, but her analysis was accelerating.
 
-She hadn't seen it.
+*
 
-　Instinct.\
-By instinct, she'd shielded herself with the magic staff.\
-Yes. It had to be that. The M-particles merely enveloping her dress wouldn't have stopped it.
+*She hadn't seen it.*
 
-The magic staff was severed.\
-The left arm that had held it fell to the ground.
+*
 
-She circulated the M-particles. Deliberately numbing the pain nerves in her artificial spinal cord. But the blood wouldn't stop easily. The problem was it was my left arm. Damn it.\
-My left arm was flesh and blood.\
-It was one of the few remaining parts that was!
+Instinct.\
+She had used instinct to raise her magical staff as a shield.\
+Yes. That had to be it. Otherwise, she could never have defended herself. The M-particles merely clinging to her dress would never have been enough to stop the blow.
 
-What fell was my forearm.\
-It still had the elbow.\
-Strawberry Pink raced through her thoughts. That was all she could control now.
+Her magical staff had been severed.\
+And her left arm, the one holding it, had fallen to the ground.
 
-"Apologise."
+She circulated M-particles through her body, deliberately paralysing the pain nerves in her artificial spinal cord. But the bleeding wouldn't stop easily. The problem was that it was her left arm. Damn it.\
+Her left arm had been flesh and blood.\
+One of the few parts of her that still was!
+
+What had fallen was her forearm.\
+Her arm remained up to the elbow.\
+Strawberry Pink set her thoughts racing. It was the only thing she was free to do now.
+
+“Apologise.”
 
 The silver dress fluttered.\
-The Japanese sword slid back into its scabbard.
+The Japanese sword slid into its scabbard.
 
-　That.\
-That scabbard.
+*That.*\
+*That scabbard.*
 
-"To what?"\
-"—To [Blue]."\
-"Huh?"
+“For what?”\
+“...For [Blue].”\
+“Huh?”
 
-With a whirring sound like a girl's scream, the Japanese sword slid back into its scabbard. A mechanical mechanism. The faintly perceptible, ominous phosphorescence of M-particles. Black light magic.
+With a mechanical whine resembling a girl's scream, the Japanese sword slid into its scabbard. A mechanical mechanism. She could faintly sense the sinister phosphorescence of M-particles emanating from it.\
+Black magical light.
 
-"【Sapphire Blue】"\
-"A magical girl's identification name? Sorry, I don't know anyone like that..."\
-"You called her a 【Witch】. The most beautiful girl in this world. The kindest girl... my big sister."
+“[Sapphire Blue].”\
+“The magical girl's designation? Sorry, I don't know anyone by that name...”\
+“You called her a [Witch]. Her, who was the most beautiful person in the world. Her, who was the kindest... My big sister.”
 
-The scabbard is drawn.\
+The scabbard was raised into position.\
 At her waist.\
-An iaido stance.\
-I hadn't seen it before —no, she hadn't shown it. The declaration of the kill zone, the range of certain death.
+The stance of *iaijutsu*, the art of drawing and striking with a single motion.\
+She hadn't been able to see it before. No, the girl hadn't *shown* it to her.\
+A declaration that she had entered the kill zone, the range from which death was certain.
 
-"So it's revenge, then."\
-"......"\
-"Is the enemy me? Or the government?"\
-"......Kill you, and bring down the nation too."\
-"I see."
+“So this is revenge.”\
+“...”\
+“Am I the one you want revenge on? Or the government?”\
+“...I'll kill you, then bring the country to its knees.”\
+“I see.”
 
-She kicks up the severed magic wand.
+Strawberry Pink kicked the severed magical staff into the air.
 
-"Right then."
+“Then...”
 
-Strawberry Pink clamps it between her jaws, like fangs.
+She caught it between her teeth, its broken end pointed towards her chin like a fang.
 
-"Twist and die here. He-hi-fu-ho-he-hi, for tranquillity."\
-"...At least cry, you monster!"
+“Die in this place, for the sake of serenity...”\
+“...At least try crying, you monster!”
 
-Pink twin-tails began to run.\
-Streetlights on the bridge cast shadows.\
-Peach phosphorescence burst.
+The pink twin tails surged forward.\
+The streetlights on the bridge cast their shadows.\
+Peach-coloured phosphorescence burst into flame.
 
-　Magus Engine malfunction.\
-An operational sound akin to death throes, eerily similar to a girl's scream.\
-The surge of enhancement commands coursing through her artificial muscles made her legs kick out, propelling her forward.
+The Magus Engine went into abnormal operation.\
+Its operating noise resembled a girl's scream, a death rattle.\
+Commands surged through the artificial muscles throughout her body, driving them beyond their limits. Her legs sprang, propelling her into motion.
 
-—Ah, she thought.
+*Ah,* Strawberry Pink thought.
 
-Strawberry Pink understood.\
-She was no ordinary girl.\
-Even without arms, even with no help coming, not a single tear fell.\
-　The very freedom to contemplate this seared her heart more than anything.
+At last, she understood.\
+She was not an ordinary girl.\
+Even with both arms gone, even with no help coming, she couldn't shed a single tear.\
+And the freedom to think about that fact was burning her heart more fiercely than anything else.
 
-Ordinary girls fear blood.\
-Ordinary girls never get dusted in battle.\
-Ordinary girls are those who can laugh outside of combat.
+Ordinary girls were afraid of blood.\
+Ordinary girls didn't get covered in the dust of a battlefield.\
+An ordinary girl was a girl who could laugh outside the battlefield, beyond the reach of war.
 
-"No —are you crying, you?"
+“No... You're crying, aren't you?”
 
-The scabbard flickered.\
-In the blink of an eye, Strawberry Pink closed in on the silver dress.
+The scabbard flashed.\
+In the space of a blink, Strawberry Pink closed the distance to the silver dress.
 
-　A severed, sharpened, M-particle-infused magically cyberdeck cane, bearing the hue of peach.\
-A flash of silver.
+Her severed, sharpened magical cyberdeck staff, its broken tip suffused with pink M-particles.\
+And a flash of silver.
 
-Clash.
+*
 
-The sound of cutting.
+They crossed paths.
 
-The sound of falling.
+*
 
-"Wh—!"
+The sound of severing.
 
-　Strawberry Pink gave a wry smile. It was the first time since becoming a magical girl that she had laughed from the heart, not in some inorganic simulation.
+*
 
-Her own body shattered, her brain consumed by dizzying pain too intense for pain control to keep up, swaying. Swaying. Swaying.\
-But more than that —shattering the scabbard to be of use to the magical girls who followed. The very thought that she wouldn't let a single one die was, right now, more dazzling than anything else.
+The sound of something falling.
 
-Shattered and split by the collision of M-particles.\
-The falling sword sheath was visible in slow motion.
+“What...?!”
 
-Strawberry Pink, her torso severed.\
-Wet with the spurting blood, the girl wore an unburdened smile.
+Strawberry Pink gave a wry smile.\
+It wasn't a simulated expression, a mechanical approximation of a human response.\
+For the first time since becoming a magical girl, Strawberry Pink had smiled *from the bottom of her heart*.
+
+Her body was breaking apart. Pain so dizzying that even her pain controls couldn't keep up was consuming her brain. Everything shook. Shook. Shook.\
+And yet, even more dazzling than all of that was the thought that she could *smash that scabbard*, that she could *help the magical girls who came after her*, that she could *make sure not a single one of them died*.
+
+The collision of M-particles had shattered and split it apart.\
+She watched the sword's scabbard fall in slow motion.
+
+Strawberry Pink's torso had been severed.\
+Soaked pink by the blood gushing from her body, the girl wore an untroubled smile.
