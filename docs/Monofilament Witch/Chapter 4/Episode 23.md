@@ -1,7 +1,7 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter Four: Raven from Hell'
+parent: 'Raven from Hell'
 sequence: 23
 title: 'Episode 23: Little Bird'
 ---

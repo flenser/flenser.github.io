@@ -1,7 +1,7 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter Four: Raven from Hell'
+parent: 'Raven from Hell'
 sequence: 21
 title: 'Episode 21: The Missing Piece'
 ---
