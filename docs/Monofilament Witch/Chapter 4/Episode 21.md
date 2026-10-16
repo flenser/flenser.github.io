@@ -5,73 +5,84 @@ parent: 'Chapter Four: Raven from Hell'
 sequence: 21
 title: 'Episode 21: The Missing Piece'
 ---
-"...This is a problem."\
-"I suppose so. Without this magic wand, Serene can't fight."\
-"Can't something be done?"\
-"Impossible. Well, first I think you need to understand the basics."
+## Episode 21: What Is Missing
 
-The wandmaker pointed to her ample bosom.
+\
+“...That’s a problem.”\
+“I’d say so. Without that magical staff, Sere-chan can’t fight.”\
+“Isn’t there anything you can do?”\
+“Nope. Well, first, I think you need to understand the basics.”
 
-"The raw material for that thing is a witch's heart—a Magus Engine.\
-　Right now, it's completely shattered.\
-Without a new heart, it can't be repaired."
+The Wandmaker pointed at her own ample chest.
 
-She knew that.\
-But she hadn't realised the situation was that dire.
+*
 
-"Well, its lifespan was probably coming to an end anyway. The raw material used in its creation —Jade Green— The Gemini Witch was in a terrible state when she was defeated."\
-"...I... I did that..."\
-"Mm. You smashed it to smithereens. How dare you show your face here, having completely killed your friend."
+“The raw material for that thing is a Witch’s heart, a Magus Engine.\
+“And right now, it’s completely shattered.\
+“Without a new heart, there’s nothing I can repair it with.”
 
-Sere faltered.
+*
 
-"...I'm not saying that.\
-The moment you become a witch, your mind completely collapses.\
-There's debate over whether you can still call it human, but I reckon once the M-particle magic turns black, you can treat it as dead.\
-Otherwise...\
-　You wouldn't be able to fight anymore, would you?"\
-"...Thank you."\
-"It's not kindness. It's confirming the facts."
+Sere knew that much.\
+But she hadn’t realised the situation was quite so bad.
 
-The mask split in two, revealing a long tongue that seemed to say "oopsie daisy".\
-It was the wandmaker's habit when trying to lighten the mood.
+“Well, its lifespan was probably nearly up anyway. The material it was originally made from, [Jade Green], or rather, the [Witch of Gemini], was in a pretty terrible state when she was defeated, too.”
 
-"—If I were truly kind, I wouldn't have made you fight in the first place, Serene."\
-"Don't worry about that."\
-"You're not a magical girl or anything. You're just a child forced to wield a magical weapon."\
-"I'm past the age of being called a child, and I'm fighting of my own volition."
+“...I was the one who...”\
+“Mm. Smashed it to pieces. I’m amazed you had the nerve to show your face here. After completely killing your friend.”
 
-Her eyebrows twitched.\
-Even without eyeballs, those eyes were far too expressive.
+Sere was at a loss for words.
 
-"...【Blue】."\
-"Ah, big sis is dead."\
-"At this age, there are far too many obituaries of acquaintances. Bloody hell...!"
+“...Not that I’m going to say that.\
+“By the time someone becomes a Witch, their thought has completely collapsed. There’s room for debate over whether you can still call such a thing human, but personally, I think that once their M-particles turn black, it’s fair to treat them as *dead*.\
+“Otherwise...\
+“You wouldn’t be able to fight any more, would you?”\
+“...Thank you.”\
+“It’s not kindness. I’m just establishing the facts.”
 
-Countless scissors clatter.\
-The wandmaker licks his coffee.\
-On the brink of losing his sanity, the wandmaker regains his reason.
+The mask split in two, and her long tongue lolled out, as if to say, *tee-hee!*\
+It was a habit of the Wandmaker’s, something she did when trying to lighten the mood.
 
-"...But the staff won't be repaired. You may step down from the stage."\
-"A Magus Engine would suffice, wouldn't it? I'll attack a magical girl instead."\
-"Useless. To become a witch, you need an engine contaminated with M-particles. A magical girl's fresh, pristine engine won't generate enough output."\
-"...Then..."\
-"Yes."
+“If I were really being kind, I wouldn’t be trying to make you fight in the first place, Sere-chan.”\
+“Don’t worry about that.”\
+“You’re *not a magical girl, or anything of the sort*. You’re just a child who was handed a magical weapon and told to use it.”\
+“I’m not exactly a child any more. And I’m fighting of my own free will.”
 
-The staffmaker told Sere.
+The Wandmaker’s brow twitched.\
+Even without eyeballs, her face was extraordinarily expressive.
 
-"You have no choice but to kill one of your fellow witches."
+“...You damn [Blue].”\
+“Ah, well, my big sister is dead.”\
+“At my age, there are far too many death notices from people I know. Damn it all... Oh, right.”
 
-Sere had already understood this at the end of her thoughts.
+The countless pairs of scissors on her arms clicked.\
+The Wandmaker licked her coffee.\
+On the brink of losing her sanity, she managed to claw her way back to reason.
 
-"...What about the queue?"\
-"There's someone in this town who's been waiting for five years."\
-"That's good."\
-"…………[Emerald Green], no..."
+“...Even so, the staff can’t be repaired. You can leave the stage, if you want.”\
+“All I need is a Magus Engine, right? I’ll attack another magical girl.”\
+“Pointless. To turn it into a Witch, you need an engine contaminated by M-particles. Those fresh, pristine Magus Engines inside magical girls just don’t have enough output.”\
+“...Then...”\
+“Mm.”
 
-　The staff maker faltered.\
-However, there was little time left to remain sane.\
-As if squeezing the words out, the eyeless girl with the monstrous arms declared.
+The Wandmaker told Sere:
 
-"The Gemini Witch. Send er to her other half —her sister.\
-I beg you, Raven Silver."
+*
+
+“There’s only one thing you can do. Kill one of your fellow Witches.”
+
+*
+
+Sere had already arrived at that conclusion at the end of her own train of thought.
+
+“...What about the *waiting list*?”\
+“There’s someone in this city who’s been waiting for five years.”\
+“Good.”\
+“... ...[Emerald Green], or rather...”
+
+The Wandmaker faltered.\
+But her lucid moments were few and far between.\
+With an effort that seemed to wrench the words from her, the eyeless girl with her monstrous arms finally spoke.
+
+“Send her to her other half. The younger sister of the [Witch of Gemini].\
+“Please, [Raven Silver].”
