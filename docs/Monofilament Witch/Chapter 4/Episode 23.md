@@ -3,112 +3,129 @@ grand_parent: Monofilament Witch
 layout: episode
 parent: 'Chapter Four: Raven from Hell'
 sequence: 23
-title: 'Episode 23: Little Birds'
+title: 'Episode 23: Little Bird'
 ---
-【Serebryani Adamov】 thinks.\
-Poor witches.\
-Poor magical girls.\
-And among them, the ultimate example —the 【Gemini Witches】.
+## Episode 23: Little Bird
 
-【Gemini Witches】—【Green】 was a pair of magical girls.\
-　The sisters Emerald Green and Jade Green.\
-Emerald was the elder sister, Jade the younger.\
-They were close sisters.\
+\
+[Serebryanyi Adamov] [Thought].\
+About the pitiful Witches.\
+About the pitiful magical girls.\
+And, most pitiful of all, the [Witch of Gemini].
+
+The [Witch of Gemini], [Green], had been a magical girl unit consisting of two machines operating as one.\
+The sisters [Emerald Green] and [Jade Green].\
+Emerald was the elder sister, and Jade the younger.\
+They had been close sisters.\
 Always together.
 
-Because they only had one body.
+*
 
-"Ah, Blue. You came!"
+Because they had only *one body* between them.
 
-With clouded eyes, Emerald Green... The remaining witch of Gemini welcomed Sere. Under the sky of Chiba City. On top of a pile of illegal buildings.\
-The sunset illuminated her.
+*
 
-From the waist up, her torso was split into two.
+“Oh, [Blue]! You came to see me!”
 
-One stylish skirt.\
+With clouded eyes, [Emerald Green]... the surviving half of the [Witch of Gemini]... welcomed Sere. Beneath the sky above Chiba City, atop a mass of piled-up illegal buildings.\
+The setting sun shone down on her.
+
+From the waist, her torso was *split into two*.
+
+One fashionable skirt.\
 Two green blouses.\
 Four slender, beautiful arms.\
-However —only the head on the right side remained. The other torso lay there like a headless mannequin, clothed but lifeless.
+And yet, only the head on the right remained. The other torso was still there, dressed in clothes, like a headless mannequin.
 
-Only the right body waved.\
-Only the right side bore the calmly smiling girl with short hair.\
-With hair the colour of muddy black and green mingled together, the girl... the Gemini Witch welcomed Sere, who had climbed up the ladder.
+Only the body on the right waved.\
+Only the girl on the right, with her short hair, smiled gently.\
+Her hair was a colour in which black and green had blended together like mud. The girl... the [Witch of Gemini]... greeted Sere as she climbed the ladder.
 
-"...It's me, Sere, Emerald-chan."\
-"【Blue】. Hey, listen, listen? 【Jade】, you see! She's been... completely, utterly silent for ages!"
+“...I'm Sere, Emerald-chan.”\
+“[Blue]! Hey, listen, listen! [Jade] has been staying quiet for agessss!”
 
-Sere forced a smile.\
-The 【Gemini Witch】 looked troubled.
+Sere made herself smile.\
+The [Witch of Gemini] looked troubled.
 
-"She hasn't spoken to me for 2075 days, 13 hours, 14 minutes and 15 seconds!　Isn't that awful!? It's horrible, right!? Did I do something wrong!?"\
-"...I see."\
-"That's right! For ages and ages and ages and ages and ages! She won't forgive me even if I give her her favourite cat cheese, and she won't play card games with me either! Hey, Blue, Blue!"\
-"What is it, Emerald?"\
-"Please listen to Hisui... I'll wear headphones. I promise I won't really listen! Please? I beg you! Just this once!"
+“She hasn't spoken to me for 2,075 days, 13 hours, 14 minutes and 15 seconds! Isn't that awful!? It is, isn't it!? Did I do something wrong, I wonder!?”\
+“...I see.”\
+“You do! She's been quiet, quiet, quiet, quiet, quiet this whole time! She won't forgive me even when I give her her favourite kitty cheese, and she won't play card games with me, either! Hey, hey, [Blue]! [Blue]!”\
+“What is it, Emerald?”\
+“Please listen to what Jade has to say... I'll put my headphones on. I'll make sure I can't hear anything! Okay? Please! Pretty please, just this once!”
 
-If 【Sapphire Blue】 had been here, she might have wryly remarked, "How many times have you made this 'once in a lifetime' plea?" But Sere hadn't cultivated that level of intimacy with her.\
-She merely 【thought】.\
-　And dismisses that 【Thought】 as unhealthy.\
-Grotesque.\
-To say she's beyond saving.
+If [Sapphire Blue] had been here, she might have chuckled and said, “How many times have you used that ‘just this once’ plea now?” But Sere hadn't grown close enough to her to share that kind of familiarity.\
+She simply [Thought].\
+Then she pushed the thought away as unhealthy.\
+*Grotesque.*\
+*To say she can't be saved any more...*
 
-Someone had thought.\
-'If there were two Heart Mage Engines, she'd be incredibly powerful.'\
-Then, 'You'd need two brains to control it.'
+*
 
-M-particle weapons... The Fourth World War's final phase, where the arms race of 【Magic】 bred further arms races. Such research was conducted worldwide, yielding only one successful example in Japan.\
-That was the 【Gemini Witch】.\
-This is her end.\
-The 【Gemini Witch】, having lost her twin, now fails to recognise the death of her lost half. The brain that would 【think】 this has deteriorated. She will likely never 【recall】 the fact of losing her twin until she dies, nor will she ever try to 【recall】 it.
+Someone had an idea.\
+*If we had two hearts, two Magus Engines, we'd be incredibly powerful.*\
+And then:\
+*We'd need two brains to control them.*
 
-　Her neck was severed by the magical girl Viola Purple.\
-And her remaining heart was offered up to the Organisation.
+In the final stages of the Fourth World War, as the arms race in M-particle weaponry... in [Magic]... drove further escalation, research of this kind was conducted across the world. Only one successful case emerged in Japan.\
+That was the [Witch of Gemini].\
+And this was how it had ended.\
+Having lost her other half, the [Witch of Gemini] could no longer recognise the death of the half she had lost. The brain that would [Think] about it had deteriorated. She would probably never be able to [Reminisce] about losing her other half for the rest of her life, nor would she ever try.
 
-"...Hey, Emerald."\
-"Blue. Please. It's fine to fight with me, but if things stay like this, Jade... will be left all alone. That's no good. Absolutely no good."
+Her younger sister, whose head had been severed by the magical girl [Viola Purple].\
+Whose remaining heart, too, had been surrendered to the [Organisation].\
+She couldn't even remember what had happened to her.
 
-Her sister Emerald Greer's voice was serious.\
-　Sere understood that this was how it was.\
-She had an older sister too. The world's best older sister, Sapphire Blue. That was precisely why she could instinctively understand that her sister's feelings for her younger sister were genuine.
+“...Hey, Emerald.”\
+“[Blue]. Please. It's fine if you and I fight, but if things go on like this, Jade will be *alone*. That mustn't happen. Absolutely not.”
 
-"People can't live alone.\
-Especially twisted and deformed ones like us."\
-"...All right, Emerald. I'll listen to you."\
-"Really?! Thank you! I'll definitely repay you!"\
-"So then..."
+The voice of the elder sister, Emerald Green, was earnest.\
+Sere understood that this was simply how things were.\
+She had an older sister, too. [Sapphire Blue], the greatest big sister in the world. And because of that, she instinctively understood that there was no lie in the love an elder sister felt for her younger sibling.
 
-Sere clutched her tools behind her back.
+“People can't live *alone*.\
+“Especially not people as twisted as we are.”\
+“...All right, Emerald. I'll listen to what she has to say.”\
+“Really!? Thank you! I'll definitely repay you!”\
+“So...”
 
-"...Could you sleep for a little while?"\
-"Huh? Oh, yeah... You're right, it must be hard for Jade to talk with me here..."\
-"Mm."\
-"Got it!"
+Sere clenched a tool in her hand behind her back.
 
-Her long lashes closed her eyes.\
-　The wind in Chiba City's sky stroked her hair.\
-Sere took a deep breath.
+“...Would you mind sleeping for a little while?”\
+“Huh? Oh, yeah... You're right. If I'm here, Jade might find it hard to talk...”\
+“That's right.”\
+“Okay!”
 
-From now on, she would take the heart of this hopelessly innocent, pure, sisterly, yet utterly maddened elder sister.
+Her long eyelashes closed over her eyes.\
+The wind above Chiba City brushed through her hair.\
+Sere drew a deep breath.
 
-Another night, another day. Another job, another run.\
-That's how it was.
+She was about to take the heart from this utterly helpless, innocent, pure, devoted older sister who had *gone mad*.
 
-Her 【Thoughts】 were organised to a fault.\
-　Yet she cannot help but think.\
-Is this truly right?
+Another usual night, *Another Day*.\
+Another usual job, *Another Run*.\
+*That was simply how things were.*
 
-Still uncertain, Sere approaches.\
-At least, so it won't hurt.\
-Thinking this, she takes the sleeping potion from her pocket to rob the witch of consciousness—
+Her [Thought] was organised with almost excessive simplicity.\
+And yet, she couldn't help but [Think]\
+*Was this really...*\
+*Was this really the right thing to do?*
 
-"Coming."
+With doubt still lodged in her heart, Sere approached.\
+At least, she wanted to spare the Witch any suffering.\
+With that in mind, she took from her pocket a sedative that would rob the Witch of consciousness...
 
-Eyes snap open, meeting emerald ones.
+“Someone's coming.”
 
-"'It is for peace. It is for tranquillity.\
-　For order, I cast this and grant the power to wield it.\
-Therefore. You bear no guilt.'"
+Emerald's eyes flew open, and met Sere's.
 
-The wind of Chiba City is dyed by a yellow phosphorescent glow.
+***
 
-"—Chiwawa Yellow! I'm back, and it's three-zero!"
+“‘It is for the sake of tranquillity. It is for the sake of serenity.\
+“For the sake of order, this shall be forged, and the wielding of its power permitted.\
+“Therefore... Thou art without sin.’”
+
+***
+
+Yellow phosphorescence coloured the wind sweeping through Chiba City.
+
+“[Chihuahua Yellow]! I'm baaack, woof! And I'm heeere!”
