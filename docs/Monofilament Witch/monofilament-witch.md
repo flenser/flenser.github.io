@@ -25,7 +25,7 @@ Shoot without hesitation.\
 Don’t let your magic run dry.\
 Whatever you do, never get involved with a “witch.”
 
-![Monofilament Witch](/assets/images/monofilament-witch.png)
+![Monofilament Witch](/assets/images/monofilament-witch.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: Murayama Shūichi [村山朱一]
