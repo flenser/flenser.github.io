@@ -3,7 +3,7 @@ title: The World-Weary Magic Doll Shop — A Redo With the Strongest Witch, One 
 author_ja: "八星 こはく"
 author_romaji: "Yatsuboshi Kohaku"
 has_children: true
-tags: ["safe", "magic", "fantasy", "angst", "adult life", "ongoing"]
+tags: ["safe", "magic", "fantasy", "angst", "adult life", "complete"]
 ---
 ## Original Title
 
