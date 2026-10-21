@@ -56,8 +56,8 @@ She worked hard at keeping her smile from twitching. The two girls understood, s
 
 After seeing them off with a pang of guilt, Yukino quietly took out her wireless earphones.
 
-"【Ugh, I've seriously not been sleeping lately.】"
-"Oh, right, right. 【No, I invited Nanako too, but she said she's not coming.】"
+"【Ugh, I've seriously not been sleeping lately.】"\
+"Oh, right, right. 【No, I invited Nanako too, but she said she's not coming.】"\
 "【Look at this, I got it in a ten-pull. Paying? Nope, nope!】"
 
 It was a matter of awareness. Subconsciously, a distant stranger's conversation is processed as noise, but once she noticed it, she heard all of it. As if fleeing the nausea, Yukino stopped up her ears with the earphones.
@@ -74,9 +74,9 @@ Her mother played around with countless men, and her father had divorced her ove
 
 One day, when she came home, her mother's shoes were unusually there in the entrance, and beside them was a man's pair of shoes belonging to who-knew-whom. The moment she opened the unlocked door, her mother's moans flew out at her, then stopped abruptly.
 
-"Oh, did someone come home?"
-"Don't worry about it. It's just my daughter."
-"Huh… are you on bad terms?"
+"Oh, did someone come home?"\
+"Don't worry about it. It's just my daughter."\
+"Huh… are you on bad terms?"\
 "【It's not that. I love her.】 It's just, well. She creeps me out."
 
 Yukino put the earphones she'd taken out back in. With her expressionless face unmoving and her head bowed, she walked quietly down the dim hallway and went back to her room without so much as showing her face in the living room.
@@ -87,7 +87,7 @@ She locked the door behind her, and since she couldn't wash her hands, she wiped
 
 —On another day, on her way home from school, the voices of a loud fundraising drive pierced right through her earphones.
 
-"【Please donate for children less fortunate!】"
+"【Please donate for children less fortunate!】"\
 "There are children in need all over the world! Please donate!"
 
 She turned the volume up and walked past in silence. Eyes that seemed to want to say something stabbed into her back. If she could, she'd have liked to help with the fundraiser, but as someone who paid for her daily meals out of her own part-time wages and got by on sweet buns for breakfast, lunch and dinner, she'd sooner have been on the receiving end.
@@ -104,8 +104,8 @@ Four hours after politely turning him down, a girl from the next class, someone 
 
 *
 
-"Hello, do you believe in God?"
-"G-God?"
+"Hello, do you believe in God?"\
+"G-God?"\
 "Yes, God. If you believe in God, you too can be happy—"
 
 One day, a middle-aged woman with a cheerful, friendly smile came to the house. The moment she saw Yukino's face through the door chain, her smile deepened and she shrugged.
