@@ -24,6 +24,7 @@ nav_exclude: true
 - [I Want to Lick Your Tears. I Want You to Glare at Me](/docs/I Want to Lick Your Tears/i-want-to-lick-your-tears.html)
 - [If you kiss me, I'll tell you ✅](/docs/If you kiss me, I'll tell you/if-you-kiss-me.html)
 - [Love Grows in the Classroom After School ✅](/docs/Love Grows in the Classroom/love-grows-in-classroom.html)
+- [Miyazono-san the Honest, and Me Who Can’t Be Happy](/docs/Honest Miyazono/honest-miyazono.html)
 - [Monofilament Witch](/docs/Monofilament Witch/monofilament-witch.html)
 - [My Crush Became My Stepsister ✅](/docs/My Crush Became My Stepsister/crush-on-stepsister.html)
 - [My Crush on My Soon-to-Be-Stepsister Childhood Friend Is Just Too Convenient! ✅](/docs/Crush on Childhood Friend/crush-on-childhood-friend.html)
