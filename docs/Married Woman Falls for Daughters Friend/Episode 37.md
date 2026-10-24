@@ -20,7 +20,7 @@ If only she were a little more straightforward, I couldn't help thinking.\
 Still lying on her back, Kai twisted her mouth and eyes into matching frowns.\
 "That's a hard question."\
 "I bet it's... what, some oba-san, right?"\
-I said it with an edge, and she agreed with a flat "well, yeah," offering no cuShihoning whatsoever, which irritated me more than it should have.\
+I said it with an edge, and she agreed with a flat "well, yeah," offering no cushioning whatsoever, which irritated me more than it should have.\
 Erotic oba-san, over and over, whenever the mood struck her.\
 Oba-san, fine, annoying but probably fair from a fourteen-year-old's perspective. But erotic, where was that even coming from.\
 My husband had never once said anything like that to me directly. Was she saying it to provoke, or did she actually mean it. If she meant it, that left me with nowhere useful to put the reaction either. What was I even supposed to do with that.\
