@@ -7,6 +7,7 @@ title: 'A Clod of Earth Knows the Snow'
 ---
 ## "A Clod of Earth Knows the Snow"
 
+\
 Even though I said I didn't want to, they made me wear the gym uniform, and the other kids in the class stared at me like I was some kind of freak.\
 The homeroom teacher simply pretended not to see the brand-new marks on my body. It was all a normal reaction, but if that was how they were going to be, I wished they hadn't bothered with half-hearted coercion and just ignored me completely. After leaving the classroom, I didn't join the line of other kids; I kicked the wall of the hallway and walked out of the school building.\
 Hoping to somehow turn my back on the commotion of Sports Day before the parents noticed me, I headed toward the back of the school building. I remembered my older sister mentioning how modern sports days now wrap up by noon. Of course, I don't have a family, so nobody was coming to watch me.\
