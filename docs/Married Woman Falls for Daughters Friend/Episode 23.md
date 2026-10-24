@@ -74,7 +74,7 @@ Kai stepped away from behind me and kicked the drawing room door, more than once
 "What was that for?"\
 "Just making it easier to open. Take the chair nearest the entrance, would you. I'm going to grab my school bag and textbooks. I'll be straight back, then we run."\
 Stating the plan rapidly, Kai ran off down a corridor facing the garden. Against her urgency, was I being too slow to react.\
-As instructed, I chose the chair nearest the door and sat. The cushioning was disconcertingly soft, plush in a way that unsettled rather than comforted. Even to my untrained eye the furnishings carried an expensive sheen, and I felt entirely out of place, a foreign object in the room.\
+As instructed, I chose the chair nearest the door and sat. The cuShihoning was disconcertingly soft, plush in a way that unsettled rather than comforted. Even to my untrained eye the furnishings carried an expensive sheen, and I felt entirely out of place, a foreign object in the room.\
 I would soon learn that being out of place was, in fact, the fortunate position to be in.\
 Before long, people from the Chitaira household came in. Came in. Kept coming in... what was happening.\
 I had asked to speak to her parents. And yet only men came through that door. In a steady stream.\

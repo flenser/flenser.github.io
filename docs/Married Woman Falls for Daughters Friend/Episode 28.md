@@ -40,7 +40,7 @@ My body and mind felt heavy, as if struck all over again by rain that should hav
 "I think that's what people call being caring, or having a sense of responsibility."\
 "Oh, sure. Maybe so."\
 I brushed off the compliment as if some of Kai's own twisted deflecting had rubbed off on me.\
-"Shio-nee-san also arranged living expenses for the time being."\
+"Shiho-nee-san also arranged living expenses for the time being."\
 "Well then, no problems at all, are there~"\
 Nothing but problems, in fact. This was only a stopgap, not remotely a stable foothold. A house of straw that would collapse the moment the world or anyone around us pushed against it.\
 "I can't stay here forever though... do you have any idea what to do?"\

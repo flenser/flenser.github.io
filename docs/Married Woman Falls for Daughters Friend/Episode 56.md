@@ -13,14 +13,14 @@ The homeroom teacher simply pretended not to see the brand-new marks on my body.
 Hoping to somehow turn my back on the commotion of Sports Day before the parents noticed me, I headed toward the back of the school building. I remembered my older sister mentioning how modern sports days now wrap up by noon. Of course, I don't have a family, so nobody was coming to watch me.\
 Our elementary school is wastefully large. The majestic front gate is grand, and since it reminds me of my own house, I've always hated it. There's a mountain nearby, and even in the lingering summer heat, a breeze blows down from it. With so much nature around, there were plenty of places for me to blend into the background.\
 I headed behind the school building and tucked myself away among the trees. A short distance away was a garden tended by the students, and I waited for time to pass while staring blankly at the crops growing there with their heads held high. The breeze visiting the shade of the trees was gentle and felt pleasant, almost a little chilly. I had barely slept the night before, so my consciousness began to drift into a hazy blur almost immediately. My head tilted, and amidst a few self-doubts, I closed my eyelids.\
-The only thing I have ever decided for myself is to learn how to live from Shio-nee-san.\
+The only thing I have ever decided for myself is to learn how to live from Shiho-nee-san.\
 Everything else has simply been being tossed around by the things that were there the moment I was born. It hasn't been easy at all; every day has been a series of days filled with chafing pain and the agony of too much time. A single day is simply, relentlessly long. I didn't have the power to break that tedious hourglass.\
 And even when tomorrow begins, there will be no clearing in the clouds.\
 In this case, what is wrong with me? Will someone get mad at me?\
 Thinking about things like that, I slept for a while. When I woke up, I would have preferred it if even night had fallen, but the lively voices could still be heard from the schoolyard. The injuries inflicted yesterday throbbed with heat, mischievously plucking at my consciousness to startle me.\
 My throat grew thirsty along the way, so I went out to the outdoor water fountain just to drink some water, making sure not to be seen by anyone else. I had never once thought about whether it was suitable for drinking. Any water would do, as long as I drank it, at least my throat would be quenched.\
 I glanced briefly at the spacious schoolyard from between the school buildings, watching the children and parents lined up like a built wall from afar. I didn't feel envious. That was because I had the realistic sense that, even though I didn't fit in at home, I couldn't possibly melt into that kind of ordinary scenery either. Both adults and children had headbands tied around their foreheads, shaking the air with cheers like summer cicadas.\
-Turning my back on that gathering, I returned to the spot from before and closed my eyes to sleep again. No comforting time would await me at home today anyway. Just going to sleep is a chore, and Shio-nee-san, who is with me, won't help either.\
+Turning my back on that gathering, I returned to the spot from before and closed my eyes to sleep again. No comforting time would await me at home today anyway. Just going to sleep is a chore, and Shiho-nee-san, who is with me, won't help either.\
 I rested my head against a tree trunk and thought to myself how nice it would be if I could just become a part of the tree.\
 Spending time like that, the same old Sports Day as every year was drawing to a close.\
 However.\
@@ -66,7 +66,7 @@ I might have ignored her, kept my lips tightly sealed, and stared at the ground.
 Yet, that person's kindness felt fresh. My battered heart was naturally drawn to it for healing.\
 Above all, looking up at this person made the depths of my chest flutter.\
 It was a fluttering of the heart completely different from the tremors I felt when visited by fear and violence, a tickle in my soul.\
-Even though Shio-nee-san had taught me the name of this budding feeling, I couldn't quite remember it.\
+Even though Shiho-nee-san had taught me the name of this budding feeling, I couldn't quite remember it.\
 "In that case... let's race together."\
 Well, since there were no tools or anything else, there weren't any other competitions we could do.\
 The person smiled slightly, took my hand, and pulled me to my feet. Then she drew a line on the side with her toes to create a starting point. Lined up beside her, we exchanged a glance and burst into a sprint together.\
@@ -93,14 +93,14 @@ An abnormality in my chest that hurt, yet made me want to hold her close.\
 The mountain breeze continued to push at my back as if to blow me away.\
 "Ah..."\
 I finally understood the true nature of these feelings.\
-This was what Shio-neesan had taught me.\
+This was what Shiho-nee-san had taught me.\
 Forgetting the pain in my stomach, unable to stay still a moment longer, I started running once more.\
 Having run too far, I dashed right through the school's front gate, leaving all my belongings abandoned in the classroom.
 
 Returning home, still out of breath, I leaned forward with my hands on my knees.\
 I reported it to the person who raised me.\
 My destiny. The meaning of these eyes.\
-"Shio-neesan."\
+"Shiho-nee-san."\
 "Hmm?"\
 "I found her. A hot lady."
 

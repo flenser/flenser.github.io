@@ -81,7 +81,7 @@ With the unsettled feeling of two celestial bodies drawing closer together than 
 "Amamiya. Setsu."\
 "Setsu?"\
 "Written with the character for snow. Setsu."\
-Someone had once told me it was an old-fashioned sound to a name. I thought so myself.\
+Someone had once told me it was an old-faShihoned sound to a name. I thought so myself.\
 "Yuki... snow."\
 Kai murmured it and turned her free hand palm-up.\
 A gesture like catching imaginary snow that wasn't falling.\
