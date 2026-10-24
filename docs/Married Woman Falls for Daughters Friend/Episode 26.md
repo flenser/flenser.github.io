@@ -19,7 +19,7 @@ And as if to prove the blood connection, she had Kai's eyes. Yellow-green.
 ![Shiho](/assets/images/married-falling-shiho.jpg)
 
 "Hey. I thought I'd never see you again."\
-"Same, Shio-nee-san."\
+"Same, Shiho-nee-san."\
 "You've grown so much... no you haven't, not at all. Did you get any taller since fifth grade?"\
 "About two centimetres."\
 The woman in the yukata rested her chin on Kai's head with what looked like genuine amusement. Still resting there, the eyes of the one Kai called *nee-san* shifted to me. That smooth yellow-green, unlike Kai's, had no depth to it, a water-mirror kind of luminosity that reflected rather than drew you in.\

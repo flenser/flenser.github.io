@@ -13,7 +13,7 @@ It was probably Chitaira Shiho's version of genuine candour, and between the liv
 Even so, the way she spoke of Kai as something diminished was not something I could find pleasant.\
 As if to drive the point home, Shiho added:\
 "Kai is, in the end, a child born in that house."\
-"Shio-nee-san really does understand, doesn't she."\
+"Shiho-nee-san really does understand, doesn't she."\
 A voice behind me made me spin around. Kai, who should have been out of earshot, had drifted back to stand just behind us. Shiho, apparently having expected exactly this, was only smiling.\
 "I asked you to stay away."\
 "Did you think I was the type to follow instructions like that?"\
@@ -58,7 +58,7 @@ Shiho beckoned to Kai from across the lobby. The way she called her over like a 
 Seeing them side by side, the eye colour was the same, but whatever lived in those eyes was different.\
 What I sensed in Shiho's eyes was shallow. Nothing like Kai's swamp.\
 ...What was it that rose in Kai's eyes when they looked at me.\
-"Oh, Shio-nee-san, one more thing."\
+"Oh, Shiho-nee-san, one more thing."\
 "Hm?"\
 "Help me get a phone contract."\
 "Ah, you still don't have one. I'll just give you one of mine, use it however you like. Ignore any contact from numbers already in it."\
@@ -66,7 +66,7 @@ What I sensed in Shiho's eyes was shallow. Nothing like Kai's swamp.\
 Kai turned the phone on, tilted her head at it, and put it in her bag for now.\
 I should probably show her how to use it later.\
 "Though coming to me first of all people. Wouldn't Kara be easier to talk to? She's basically a thoughtless idiot at heart."\
-"I thought about it, but I figured Shio-nee-san would help carelessly as long as the other person wasn't a high school girl."\
+"I thought about it, but I figured Shiho-nee-san would help carelessly as long as the other person wasn't a high school girl."\
 "Ha, fair point."\
 "And asking Kara-nee-san for help feels like inviting assault."\
 "Sorry?"\

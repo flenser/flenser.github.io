@@ -59,7 +59,7 @@ But the violent, surging tsunami washes even those budding feelings away.\
 “Yeah, more or less… I only licked her toes so far.”\
 “How innocent~”\
 “It’s a real beginner’s experience, for me it’s my first love, after all.”\
-Has Shio-nee-san ever been in love with someone? She loves high school girls equally, but I can’t imagine her being infatuated with any one specific person. She understands people’s hearts so well that maybe she can only be interested in their bodies.\
+Has Shiho-nee-san ever been in love with someone? She loves high school girls equally, but I can’t imagine her being infatuated with any one specific person. She understands people’s hearts so well that maybe she can only be interested in their bodies.\
 “For beginners, I recommend the nipple-guessing game next.”\
 “I’ll take that under advisement. Anyway, about my request, please stop covering the hotel bill here the next time I contact you.”\
 “Hmm?”\

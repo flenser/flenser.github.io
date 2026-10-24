@@ -13,7 +13,7 @@ title: 'Chapter Three: "The Clod of Earth Dreams of Snow" — Part Eight'
 I'd never once seen her actually touch it, even here in the room, barely registering as a presence at all.\
 "I've gotten better at swiping, at least."\
 "Good progress."\
-"Also, some stranger keeps calling for Shio-nee-san. It happened so often I've now learned about call blocking."\
+"Also, some stranger keeps calling for Shiho-nee-san. It happened so often I've now learned about call blocking."\
 "Terrifying."\
 Both the persistence of whoever was calling, and the nee-san herself.\
 "Should I have properly set up a new contract for you after all?"\
