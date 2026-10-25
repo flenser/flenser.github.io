@@ -1,7 +1,7 @@
 ---
 title: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend Volume One"
 has_children: true
-tags: ["secret relationship", "age gap", "taboo", "abuse", "violence", "middle school", "adult life", "crumbling facade", "seduction", "angst", "high energy", "suggestive", "published as light novel", "ongoing"]
+tags: ["secret relationship", "age gap", "taboo", "abuse", "violence", "middle school", "adult life", "crumbling facade", "seduction", "angst", "slow burn", "suggestive", "published as light novel", "ongoing"]
 ---
 ## Original Title
 
@@ -28,7 +28,7 @@ This is the story of a happily married woman who meets her daughter's friend, an
    </div>
    {% endif %}
 
-![A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend Volume One](/assets/images/married-woman-falls-for-friend.jpg)
+![A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend](/assets/images/married-woman-falls-for-friend.jpg)
 
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: [入間人間]\
