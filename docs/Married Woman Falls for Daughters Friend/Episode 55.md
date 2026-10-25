@@ -3,9 +3,9 @@ layout: episode-flat
 nav_order: 55
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
 sequence: 56
-title: 'Chapter Four: "The Clod of Earth Longs for Snow" — Part Two'
+title: '"The Clod of Earth Longs for Snow" — Part Two'
 ---
-## Chapter Four: *"The Clod of Earth Longs for Snow" — Part Two*
+## *"The Clod of Earth Longs for Snow" — Part Two*
 
 \
 After that person comes to my hotel room, it always ends up like this. Today it’s especially intense.\
