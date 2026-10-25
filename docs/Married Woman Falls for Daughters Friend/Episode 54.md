@@ -3,9 +3,9 @@ layout: episode-flat
 nav_order: 54
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
 sequence: 55
-title: 'Chapter Four: "The Clod of Earth Longs for Snow" — Part One'
+title: '"The Clod of Earth Longs for Snow" — Part One'
 ---
-## Chapter Four: *"The Clod of Earth Longs for Snow" — Part One*
+## *"The Clod of Earth Longs for Snow" — Part One*
 
 \
 The many-headed snake, for all its cruelty, had the cunning never to eat its own.\
