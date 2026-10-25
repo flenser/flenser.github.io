@@ -1,8 +1,8 @@
 ---
 layout: episode-flat
-nav_order: 501
+nav_order: 54
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-sequence: 501
+sequence: 55
 title: "Chitaira Kai's Hotel Diary, Part One"
 ---
 ## *Chitaira Kai's Hotel Diary, Part One*
