@@ -57,7 +57,7 @@ The background, built around yellow-green, formed numerous circles like eyes, dr
 …Apart from the colours, that was.\
 Viewed objectively, I felt there was more to draw people in than there had been before.\
 Perhaps it was because I was putting onto the page the passion I felt for something that had drawn me in.\
-That Kai’s eyes stirred something special in me… was something I had no choice but to acknowledge. I would accept that I was captivated by those eyes. But I would look away from what that might lead to, from whatever feelings might begin to take root there. The age gap, our sexes, our respective positions, my family. Everything I had built up to this point could be brought crashing down.\
+That Kai’s eyes stirred something special in me… was something I had no choice but to acknowledge. I would accept that I was captivated by those eyes. But I would look away from what that might lead to, from whatever feelings might begin to take root there. The age gap, our genders, our respective positions, my family. Everything I had built up to this point could be brought crashing down.\
 And yet, the fact that I understood this meant that, in a way, I was already acknowledging it.\
 My stomach hurt. It had been hurting constantly, clenched tight by intense stress. When it got worse, I began hallucinating the interior of the hotel. I felt as though I had gone there, and my feet would grow unsteady beneath me.\
 I was in a bad way. It seemed only a matter of time before the strain on my mind began to damage my physical health, too.\
