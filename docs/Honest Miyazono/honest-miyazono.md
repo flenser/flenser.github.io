@@ -23,6 +23,8 @@ Hasekura Yukino, a second-year high school student, has a constitution where oth
    </div>
    {% endif %}
 
+![Miyazono the Honest](/assets/images/honest-miyazono.jpg)
+
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: Touka Yoru [4kaえんぴつ]
 
