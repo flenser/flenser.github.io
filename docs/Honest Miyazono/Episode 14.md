@@ -1,9 +1,9 @@
 ---
 layout: episode-flat
-nav_order: 13
+nav_order: 14
 parent: "Miyazono-san the Honest, and Me Who Can’t Be Happy"
-sequence: 13
-title: Episode 13
+sequence: 14
+title: Episode 14
 ---
 
 The two of them descended to the first floor and made their way to the girls’ toilets at the eastern end of the building.
