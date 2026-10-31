@@ -29,6 +29,7 @@ nav_order: 0
 - [The Introvert Whose Only Redeeming Feature Is Her Face Somehow Built a Yuri Harem - A Former Young Lady Becomes a "Maid" in Akihabara](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.Introvert.Whose.Only.Redeeming.Feature.Is.Her.Face.Somehow.Built.a.Yuri.Harem.A.Former.Young.Lady.Becomes.a.Maid.in.Akihabara.epub)
 - [The Story of the Woman Who Ended Up Sleeping with the Club Princess](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.Story.of.the.Woman.Who.Ended.Up.Sleeping.with.the.Club.Princess.epub)
 - [The White Witch and the Black Witch — A Twisted Secret Between Them](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.White.Witch.and.the.Black.Witch.A.Twisted.Secret.Between.Them.epub)
+- [The World-Weary Magic Doll Shop — A Redo With the Strongest Witch, One Final Day With Someone Precious to You](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.World-Weary.Magic.Doll.Shop.A.Redo.With.the.Strongest.Witch.One.Final.Day.With.Someone.Precious.to.You.epub)
 - [You Bleed Into My Colourless World](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/You.Bleed.Into.My.Colourless.World.epub)
 
 With thanks to Macmilan on Discord for compiling the ePUB versions of the completed novels.
