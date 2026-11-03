@@ -1,4 +1,10 @@
-Episode 17
+---
+layout: episode-flat
+nav_order: 17
+parent: "Miyazono-san the Honest, and Me Who Can’t Be Happy"
+sequence: 17
+title: Episode 17
+---
 
 The following morning, the familiar route to school seemed just a little brighter than usual.
 
@@ -18,8 +24,8 @@ Yukino's eyes widened as she turned around. There, her eyes glittering in the mo
 
 Yukino's own cheeks softened in response. She dipped her chin slightly and returned the greeting.
 
-“Good morning.”
-“Oh? What's this? You look awfully happy.”
+“Good morning.”\
+“Oh? What's this? You look awfully happy.”\
 “Really…? You're asking me that, Chiharu-san?”
 
 Yukino smiled and glanced up at her. Chiharu touched her own cheek with the palm of her hand.
@@ -46,7 +52,7 @@ Chiharu lightly bit her lip and closed her eyes, as though savouring the moment.
 
 Yukino was delighted, but she couldn't bring herself to agree to that last part. Her neck practically creaked as she shook her head.
 
-“I-I can't accept that. I'll pay for my own share.”
+“I-I can't accept that. I'll pay for my own share.”\
 “But, you know… I understand your circumstances, and I'm the one dragging you out with me…”
 
 She meant Yukino's home situation. The fact that her mother wasn't exactly fulfilling the role of a mother. But—
@@ -65,7 +71,7 @@ Chiharu seemed to understand how Yukino felt. She reconsidered, resting a finger
 
 Then she smiled in acceptance, narrowed her eyes, and gave a small nod.
 
-“I see.”
+“I see.”\
 “Then, if things really are difficult, don't hide it from me. Just tell me.”
 
 It sounded almost as though she were asking Yukino to rely on her. That was probably the greatest concession Chiharu was willing to make. Yukino hesitated, rocking her head back and forth, before finally giving in with an embarrassed smile.
@@ -84,8 +90,8 @@ A glass-topped table sat squarely in the centre of the room. The monitor had bee
 
 Yukino was the first to find their room, carrying the receipt and entering with an excited look in her eyes. Behind her, Chiharu smiled fondly and switched on the lights with a click. She took Yukino's bag from her and placed both bags on the sofa where the monitor was harder to see from. Then she sat down on the sofa directly opposite it.
 
-“So this really is your first time. You've never been before?”
-“Never! It's amazing. A whole room like this, for that price!”
+“So this really is your first time. You've never been before?”\
+“Never! It's amazing. A whole room like this, for that price!”\
 “Are you some kind of karaoke shop salesperson? Well, actually, if you go for an all-day package, it can work out cheaper than some coworking spaces. Apparently people who've missed their chance to get a hotel room use them, too.”
 
 Yukino nodded repeatedly, deeply impressed by Chiharu's explanation. She examined the equipment for adjusting the microphone settings, installed beneath the television, then happily fiddled with the dimmable lights. Suddenly, as though remembering herself, she looked up. Her cheeks faintly pink, she started to take a seat—
@@ -112,10 +118,10 @@ Chiharu broke into a delighted grin.
 
 Yukino puffed out her cheeks, her face turning bright red.
 
-“P-please forget about that. It was my first time, so I got a little carried away.”
-“Oh? You got carried away because it was your first time…”
-“Could you please stop repeating that part?!”
-“I've taken Yukino's first time…”
+“P-please forget about that. It was my first time, so I got a little carried away.”\
+“Oh? You got carried away because it was your first time…”\
+“Could you please stop repeating that part?!”\
+“I've taken Yukino's first time…”\
 “Hey! I feel like you're implying something!”
 
 Yukino gave Chiharu a suspicious look as she continued making these rather suggestive jokes with a half-smile. Chiharu giggled, then lifted herself from the sofa and picked up the electronic song catalogue.
@@ -138,8 +144,8 @@ A brief lull had opened up, and Chiharu began chatting as she tapped through the
 
 Yukino sipped her green tea noisily through a straw and gave an uncertain little hum.
 
-“Hmm… It's not that I particularly like them. It's just that I don't listen to music very much in the first place.”
-“Why not? Not really your thing?”
+“Hmm… It's not that I particularly like them. It's just that I don't listen to music very much in the first place.”\
+“Why not? Not really your thing?”\
 “When I listen to a song, I can taste the singer's emotions from when they recorded it.”
 
 Chiharu stopped tapping and stared at her in astonishment. Then she seemed to understand.
@@ -148,8 +154,8 @@ Chiharu stopped tapping and stared at her in astonishment. Then she seemed to un
 
 “That's right.” Yukino smiled awkwardly, bringing all five fingers together in front of her chest.
 
-“Of course, it doesn't have that absolutely awful taste peculiar to people concealing something, but it makes it difficult to concentrate on the music. And having the flavour constantly changing and swirling around isn't particularly pleasant, either. That's why I can enjoy instrumental bands, for example. And, well, synthesised voices like Vocaloid are also flavourless and odourless.”
-“Ahh… So that means you can taste something from my singing, too?”
+“Of course, it doesn't have that absolutely awful taste peculiar to people concealing something, but it makes it difficult to concentrate on the music. And having the flavour constantly changing and swirling around isn't particularly pleasant, either. That's why I can enjoy instrumental bands, for example. And, well, synthesised voices like Vocaloid are also flavourless and odourless.”\
+“Ahh… So that means you can taste something from my singing, too?”\
 “Yes. But it's been sweet the whole time… I didn't mind it at all. In fact, I could listen to it forever.”
 
 Yukino confessed her feelings, growing embarrassed as she spoke. They were entirely honest, but somehow more difficult to say aloud than usual.
@@ -168,7 +174,7 @@ Yukino had almost forgotten the original question. Chiharu brought her back to i
 
 Chiharu's previously relaxed expression softened. She smiled gently as the ice in her glass clinked against the sides while she drank her tea.
 
-“So they're songs that bring back memories.”
+“So they're songs that bring back memories.”\
 “They're also some of my few memories of my mother. Ah, as you know, it's not that she's passed away or anything. We hardly speak these days, though, and my mother just finds me creepy.”
 
 Yukino gazed down into empty space with a strangely detached expression. Chiharu closed her eyes, the corners of her own eyes drooping with sympathy.
@@ -179,13 +185,13 @@ Yukino gave an uncertain smile and spent several seconds searching for words. Ev
 
 Then she nodded awkwardly.
 
-“Well, I suppose not.”
+“Well, I suppose not.”\
 “…If she were truly an irredeemably awful person, she wouldn't have taken me to the hospital. She doesn't show much interest in me at all, but she does pay for things like my phone and school expenses.”
 
 Chiharu let out a breath, seeming a little relieved. She made a conscious effort to keep her voice gentle.
 
-“I don't want to be careless about someone else's family, but… have you ever talked things through with her?”
-“There are hardly ever any opportunities. And my mother probably doesn't want to talk to me, either.”
+“I don't want to be careless about someone else's family, but… have you ever talked things through with her?”\
+“There are hardly ever any opportunities. And my mother probably doesn't want to talk to me, either.”\
 “Well, still… This is just the opinion of someone on the outside, so ignore me if you think I'm wrong. But there are things you can't know unless you try talking to her at least once.”
 
 If Yukino was living in a difficult situation, the last thing she needed was some privileged person lecturing her from their own comfortable position. Chiharu didn't try to justify herself or insist that she knew best. She knew she might make Yukino uncomfortable, but even so, she wanted to offer her an option that might make her a little happier.
@@ -288,11 +294,11 @@ After singing for another two hours or so, the two of them finally stepped outsi
 
 The sky was already filled with stars, and the moon bathed the world in pale blue light. Under the watchful glow of the streetlamps, which shone in warm contrast, they took a little breath of the outside air, smiled at each other, and set off together towards the nearest station.
 
-“That was fun. Let's go again sometime.”
-“Next time, I'll expand my repertoire a little!”
-“Haha. Well, there's nothing wrong with singing the same song three times in a row.”
-“Singing a song because you love it is different from singing it because you've run out of ideas. It's disrespectful to the song.”
-“Every time you sing at karaoke, the rights holders get royalties. Wouldn't that make it the opposite of disrespectful?”
+“That was fun. Let's go again sometime.”\
+“Next time, I'll expand my repertoire a little!”\
+“Haha. Well, there's nothing wrong with singing the same song three times in a row.”\
+“Singing a song because you love it is different from singing it because you've run out of ideas. It's disrespectful to the song.”\
+“Every time you sing at karaoke, the rights holders get royalties. Wouldn't that make it the opposite of disrespectful?”\
 “S-so they're better off if people sing lots of songs, even if they have to make up an excuse…?!”
 
 They chatted animatedly as they reached the nearest station to their high school.
