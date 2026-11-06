@@ -1,8 +1,8 @@
 ---
 grand_parent: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
 layout: episode
-parent: "Prologue 2: I'll Pick Up Your Bones"
-sequence: 1
+parent: "Prologue 2: I’ll Pick Up Your Bones"
+sequence: 62
 title: "I'll Pick Up Your Bones"
 ---
 ## Prologue 2: "I'll Pick Up Your Bones"
