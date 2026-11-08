@@ -86,7 +86,7 @@ Kai, freely kneading my breasts, showering kisses on me too. Everything about th
 My body nearly jerks on its own, and the breaths between kisses grow painful.\
 My breasts, pressed against Kai, and the very fact that Kai is touching me, makes my heart flutter with excitement.\
 Shame and ecstasy rock my body this way and that, setting my heart adrift.\
-When I lift her meager flesh, Kai's hips and legs also twitch and jump, and then she presses himself against me all the more. Only the sound of our clothes rubbing together fills the inside of the car. I had a premonition that from tomorrow on, every time I ride in this car, that sound would replay.\
+When I lift her meager flesh, Kai's hips and legs also twitch and jump, and she presses herself against me even more. Only the sound of our clothes rubbing together fills the inside of the car. I had a premonition that from tomorrow on, every time I ride in this car, that sound would replay.\
 Kissing was natural enough, of course, but it was accompanied by the scent of the food we’d both been eating just moments before. Kissing my husband right after eating used to disgust me, yet kisses with Kai make my mind lose all judgment as if intoxicated, leaving me helpless. It felt like it was trampling on even the harmless, pleasant memories I'd shared with Kai just moments before.\
 The look in Kai’s eyes was moist, as if she were about to cry. I knew the meaning of those eyes. My husband's eyes when he takes me. The condensation of lust that overwrites his usual gentleness.\
 Those yellow-green planets swallowed and submerged the me that should have been reflected in them.\
