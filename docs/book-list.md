@@ -22,6 +22,7 @@ nav_order: 0
 - [Love Grows in the Classroom After School](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/Love.Grows.in.the.Classroom.Epub)
 - [My Crush Became My Stepsister](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/My.Crush.Became.My.Stepsister.epub)
 - [My Crush on My Soon-to-Be-Stepsister Childhood Friend Is Just Too Convenient!](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/My.Crush.on.My.Soon-to-Be-Stepsister.Childhood.Friend.Is.Just.Too.Convenient.Epub)
+- [My Guilty First Love With Another Girl's Girlfriend Volume 3](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/My.Guilty.First.Love.With.Another.Girl.s.Girlfriend.Volume.3.epub)
 - [My Sun and Your Star](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/My.Sun.and.Your.Star.epub)
 - [She, expressionless and transparent, seems to be someone you could hold tight if you paid the price](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/She.Expressionless.and.Transparent.Epub)
 - [The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing "Yuri Friends"](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.Discipline.Committee.Chair.Who.Got.Blackmailed.by.a.White-Haired.Gyaru.Gets.Completely.Wrecked.Playing.Yuri.Friends.epub)
