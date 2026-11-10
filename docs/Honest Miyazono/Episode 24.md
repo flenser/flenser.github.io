@@ -1,9 +1,9 @@
 ---
 layout: episode-flat
-nav_order: 23
+nav_order: 24
 parent: "Miyazono-san the Honest, and Me Who Can’t Be Happy"
-sequence: 23
-title: Episode 23
+sequence: 24
+title: Episode 24
 ---
 
 And then, three days later. The weather was fine, and the festival apparently went ahead as planned.
