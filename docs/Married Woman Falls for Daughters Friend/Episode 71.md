@@ -51,7 +51,7 @@ I’m not really interested at all, mind you.\
 But looking again, Kai's chest is almost flat, and I realize it's harder than I expected to search for it through the uniform. Doesn't this put me at an overwhelming disadvantage? And seriously, what is this stupid game?\
 If I actually played it seriously, I'd lose my mind. I was certain of that.\
 "Here and here."\
-I stopped scrutinising him and pointed at random. I couldn’t look directly at him, but I couldn’t find anywhere else to look either.\
+I stopped scrutinising her and pointed at random. I couldn’t look directly at her, but I couldn’t find anywhere else to look either.\
 "Cor-rect!"\
 "Yay."\
 Done, right? Then let's call it a day, I clap my hands while turning away.\
