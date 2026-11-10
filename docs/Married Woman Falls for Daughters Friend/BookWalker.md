@@ -9,48 +9,38 @@ title: "BOOK☆WALKER Exclusive Bonus: May Love Bloom Beneath Tenderness"
 
 ## May Love Bloom Beneath Tenderness
 
-An original short story by Hitoma Iruma\
-Illustration: Nekoyashiki Fushio
+An original short story by Hitoma Iruma
 
 ---
 
-I see.\
-When I moved, I couldn't help but become acutely aware of the clothes clinging to my skin. Even though they'd been washed, they had once been worn by that woman. And from now on, even after they've been washed, she'll be wearing things that I've worn. Even her underwear. Just imagining peering down at her underwear between my legs made the fabric feel damp.\
-It would be easy to bring that woman down and ruin her life. I understood that better than anyone. She didn't understand a thing.\
-『May love bloom beneath tenderness』\
-The thought of doing something like that quickly vanished. It wasn't that simple. What I wanted to destroy wasn't her trust in me. I wanted to tear down something much larger, a whole framework.\
-But imagining her becoming angry with me, not because I'd done something like that, but because she'd been disappointed in me, made me realise just how excessively trusting she was.\
-She'd left me alone in her house. Had she not even considered the possibility that I might give in to an impulse and rampage through the place? I didn't consider myself someone worthy of trust. I was a hopeless member of the Chitaira family.\
-I want to fill myself to the brim with her.\
-The fact that she’s had a child is… erotic. That woman is remarkably erotic. The premise itself is already erotic\
-But when I picture that middle-aged woman casting aside the family she loves, it makes my blood boil even more...\
-This was probably the bedroom she shared with her husband. The space where she slept beside him, night after night, calling him her husband.\
-A dark anger came rolling towards me from far away, like waves surging in at night.\
-The man who had been born just a little earlier than me, and who had been fortunate enough to meet her first, was living an enviable life.\
-“Enjoy holding her while you still can.”\
-Because sooner or later, she'll be someone you can no longer reach.\
-I wandered around the ground floor, opening doors a little and peering inside, until I eventually found what I was looking for.\
-Still carrying that heat inside me, I wandered downstairs and went into the laundry room. I had felt comfortable sitting alone in the spacious living room, but the slightly smaller room here was more soothing.\
-Ah, but that seemingly stern woman exposes her nakedness to her husband, "being held with a woman's face, those thighs..."\
-The underwear she probably chose to be as fitting for me as possible.\
-The underwear she usually wears.\
-"An old lady's underwear... Amazing..."\
-Surely, the next time she touches this, she will inevitably remember today.\
-I was overwhelmed by the pleasure of having left an impression on her that would never disappear. I wanted to keep adding more and more such impressions, making her world smaller and smaller, narrowing it until it was filled with my scent.\
-I had come to want not only her body, but all the many different feelings inside her, to belong to me alone.\
-I think what she did today was a decisive mistake.\
-Because everything I felt towards her had become every conceivable form of love.\
-All those kinds of love, bound together, formed something so thick that it could neither break nor bend. It would pour into her, unwavering.\
-Speaking of what came next, I wondered what she intended to do from here. Knowing her personality, she might well suggest going to my house when she came back. That would carry its own dangers, but she's earnest at heart. If she found out what my home was like, her sympathy might deepen, and things might actually go more smoothly.\
-Part of me didn't want her getting involved, but my opponent was a married woman, with a happy family...\
-She was a formidable adversary.\
-I didn't have the luxury of choosing my methods.\
-This was the first time anyone had ever been kind to me. When someone treated me kindly, something inside me began to seep towards that person. And then it brought my own loneliness and vulnerability into sharp relief. It made me not want to be alone.\
-If she found out, then perhaps I didn't care if she found out. Without thinking about the consequences, I indulged myself in her clothes and underwear.\
-The atmosphere in the room, which was a little cramped, settled down.\
-I slumped down, and my fingers immediately reached for her underwear. I tried to figure out a way to take these clothes and her underwear home, but my mind and fingertips were too distracted to focus on that, and nothing came to mind.\
-Ah.\
-I wanted to hurry up and smash her family to pieces, and make that lecherous old lady mine alone.\
+I’m left exasperated, thinking she’s far too soft-hearted.\
+Doesn’t she consider the possibility that, if she leaves me alone at home, I might act on impulse and wreak havoc? I don’t consider myself a person worthy of trust. I understand better than anyone that I’m a hopeless, shallow person. That person doesn’t understand a thing.\
+It would have been easy to bring that person down and ruin their life.\
+But when I imagine not being scolded by that person for doing such a thing, but rather being met with their disappointment, any desire to go through with it immediately withers away. It’s not about that at all. What I want to shatter isn’t that person’s trust in me. I want to destroy something far grander.\
+When I move, I cannot help but be aware of the clothes clinging to my skin. Even though they’ve been washed, they were once worn by that person. And from now on, even after I’ve washed them, that person will wear what I’ve worn. Even my underwear, just peering between my legs made the fabric feel damp.\
+The underwear that person probably chose, taking great care to select something that would suit me as much as possible.\
+The sort of things that person usually wears.\
+‘An older woman’s underwear… absolutely brilliant…’\
+I’m sure that the next time that person picks this up, they’ll definitely remember today.\
+I can’t quite hide my delight at having made an indelible impression on that person. From now on, I want to keep adding more and more of these things, gradually shrinking that person’s world, narrowing it down, and filling it to the brim with my scent.\
+I wander around the ground floor, repeatedly opening doors a crack to peek inside, until I finally find the room.\
+This is probably the bedroom shared by that woman and her husband. The space where she sleeps with him every night.\
+Like waves surging in at night, a dark rage washes over me from afar.\
+A man born just a little before me, living a privileged life solely by the luck of having met that woman.\
+‘You’d better make the most of it and hold her whilst you still can.’ Because sooner or later, she’ll become someone you can never reach.\
+Ah, but the thought of that woman, who seems so prim and proper, baring herself to her husband, being held whilst looking every inch the woman, and giving birth to a child from between her legs… it’s… erotic. Remarkably erotic, that middle-aged woman. The very premise is erotic. Yet when I pictured that woman casting aside the family she loved, my blood boiled even more.\
+Still burning with desire, I staggered upstairs and entered the laundry room. Sitting alone in the spacious living room had felt comfortable… but the atmosphere in this room, which was actually a little on the cramped side, was more soothing.\
+I sat down, and my fingers immediately reached for her underwear. I tried to figure out a way to take these clothes and her underwear home with me, but my mind and fingers were too preoccupied to focus on anything else, and nothing came to mind.\
+Without giving a second thought to the consequences, or whether it would be all right if I were found out, I savoured her clothes and underwear.\
+Speaking of consequences, I wonder what she intends to do next. Given her personality, she might well suggest going to my house once she's back. That carries its own risks, but as she's fundamentally a serious person, once she's seen what my house is really like, her sympathy might deepen and things might actually work out better than expected. Part of me doesn’t want her to get involved, but she's a married woman with a happy family… a formidable opponent.\
+I don’t have the luxury of being choosy.\
+This is the first time anyone has ever been kind to me. When someone is kind to me, the feelings I harbour for that person seep out, bringing my own insecurity and loneliness into sharp relief. I no longer want to be alone.\
+It’s not just her body; I’ve come to want all those diverse emotions to be mine alone.\
+I believe today’s actions were a decisive mistake on her part.\
+Because the feelings I direct towards her have become every conceivable form of love.\
+This love is too thick; it flows towards her without ever breaking or bending.\
 My fingers won’t stop. My breathing is ragged.\
-My senses were so focused on touch that I couldn’t even hear the sound of the washing machine running.\
-Over and over again, I kept repeating that person’s name, sucking on it like a sweet.
+My senses are so focused on touch that I don’t even hear the sound of the washing machine running.\
+Over and over again, I say that person’s name, sucking on it like a sweet.\
+Ah.\
+I can’t wait to tear that person’s family to shreds and turn her into my very own naughty old lady.
