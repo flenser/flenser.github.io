@@ -3,9 +3,9 @@ layout: episode-flat
 nav_order: 75
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
 sequence: 76
-title: 'Interlude: The Story of the Daughter of a Happy Family Who Falls Completely for a Blonde Beauty - Part 1'
+title: 'Interlude: The Story of the Daughter of a Happy Family Who Falls Head over Heels for a Blonde Beauty - Part 1'
 ---
-## Interlude: The Story of the Daughter of a Happy Family Who Falls Completely for a Blonde Beauty - Part 1
+## Interlude: The Story of the Daughter of a Happy Family Who Falls Head over Heels for a Blonde Beauty - Part 1
 
 \
 It was a chance encounter on a day off, when I was heading to the convenience store to buy a prepaid card.\
