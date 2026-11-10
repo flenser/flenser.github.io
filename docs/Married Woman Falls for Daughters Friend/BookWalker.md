@@ -22,13 +22,13 @@ The thought of doing something like that quickly vanished. It wasn't that simple
 But imagining her becoming angry with me, not because I'd done something like that, but because she'd been disappointed in me, made me realise just how excessively trusting she was.\
 She'd left me alone in her house. Had she not even considered the possibility that I might give in to an impulse and rampage through the place? I didn't consider myself someone worthy of trust. I was a hopeless member of the Chitaira family.\
 I want to fill myself to the brim with her.\
-Since I’ll eventually become someone you can’t reach,\
-the fact that she’s had a child is… erotic. That woman is remarkably erotic. The premise itself is already erotic\
+The fact that she’s had a child is… erotic. That woman is remarkably erotic. The premise itself is already erotic\
 But when I picture that middle-aged woman casting aside the family she loves, it makes my blood boil even more...\
-At best, you should just hold me whilst you still can.\
-A dark anger came rolling towards me from far away, like waves surging in at night.\
-The man who had been born just a little earlier than me, and who had been fortunate enough to meet her, was living an enviable life.\
 This was probably the bedroom she shared with her husband. The space where she slept beside him, night after night, calling him her husband.\
+A dark anger came rolling towards me from far away, like waves surging in at night.\
+The man who had been born just a little earlier than me, and who had been fortunate enough to meet her first, was living an enviable life.\
+“Enjoy holding her while you still can.”\
+Because sooner or later, she'll be someone you can no longer reach.\
 I wandered around the ground floor, opening doors a little and peering inside, until I eventually found what I was looking for.\
 Still carrying that heat inside me, I wandered downstairs and went into the laundry room. I had felt comfortable sitting alone in the spacious living room, but the slightly smaller room here was more soothing.\
 Ah, but that seemingly stern woman exposes her nakedness to her husband, "being held with a woman's face, those thighs..."\
