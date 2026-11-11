@@ -5,8 +5,9 @@ parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daug
 sequence: 78
 title: 'Chapter Four: "The Clod of Earth Is Sweeter Than Snow" — Part One'
 ---
-## Chapter Five: The Clod of Earth Is Sweeter Than Snow -Part One
+## Chapter Five: The Clod of Earth Is Sweeter Than Snow - Part One
 
+\
 I thought I would try to sort out my feelings of love.\
 I was aware that categorising emotions in such a way was utterly nonsensical, but I wasn't the sort of person who could leave the contents of a drawer in a jumbled mess. And given what was happening right before my eyes, something I would rather close my eyes to, the timing was perfect. Perfectly perfect. Enough with the word perfect already.\
 First, there was the love born of a desire to protect. That certainly existed, and I thought it was perhaps where everything had begun. I learned about her circumstances, discovered the vulnerability she carried, and acted because I wanted to help. Even now, I always feel the desire to protect her. But the feeling that I don't want anyone to hurt her can, when turned around, also reveal a possessiveness that doesn't want anyone else touching her.\
