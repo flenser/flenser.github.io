@@ -93,7 +93,7 @@ I was amazed by how bright and cheerful the world could look when something wond
 
 I was walking along my usual route when someone tapped me on the shoulder from behind.
 
-"Morning, Naoha."\
+"Morning, Nanoha."\
 "Oh, Yudzuki. Morning. You're up early."\
 "If I don't get here early, it's hard to get a good seat."\
 "Thanks for always doing that."
@@ -105,7 +105,7 @@ As expected of such a model student.
 
 Yudzuki cautiously reached towards the ends of my hair. I subtly moved out of reach, and she gave me a sad look.
 
-"Naoha, did something good happen?"\
+"Nanoha, did something good happen?"\
 "Huh? Why?"\
 "You're smiling so much. Did something happen with Mei-chan?"\
 "..."
@@ -128,7 +128,7 @@ Yudzuki looked so serious that, despite having been ready to stand my ground, I 
 "Well... sometimes."\
 "Hmm. Then can I come over to your place sometime?"\
 "Huh? Why?"\
-"Because I want to go to your place, Naoha."\
+"Because I want to go to your place, Nanoha."\
 "Well, I suppose that's fine..."
 
 I had no particular reason to refuse, so I agreed. Still, I couldn't help wondering what Yudzuki would even do at my place.
@@ -155,7 +155,7 @@ I opened the bag and was surprised to find a bottle of perfume from a fairly wel
 "Wait, this is expensive!"\
 "It's not that expensive. I could afford it with the money I earned from my part-time job."\
 "You really didn't have to work just to buy something for me."\
-"It's something I wanted to do for you, Naoha."
+"It's something I wanted to do for you, Nanoha."
 
 There was a sharpness to Yudzuki's voice.
 
