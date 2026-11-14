@@ -1,7 +1,9 @@
 ---
 title: My Crush on My Soon-to-Be-Stepsister Childhood Friend Is Just Too Convenient!
+author_ja: "しきもと ホノ"
+author_romaji: "Shikimoto Hono"
 has_children: true
-tags: ["high energy", "explicit", "secret relationship", "comedy", "high school", "siblings", "taboo", "ongoing"]
+tags: ["high energy", "suggestive", "secret relationship", "comedy", "high school", "siblings", "taboo", "ongoing"]
 ---
 ## Original Title
 

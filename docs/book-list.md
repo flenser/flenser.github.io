@@ -1,0 +1,36 @@
+---
+title: '* eBook Downloads'
+nav_order: 0
+---
+
+## Download links to the available ePUBs below. More to come as novels are completed
+
+### Stories completed so far
+
+- [A Closet Romance](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/A.Closet.Romance.epub)
+- [A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend Volume One](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/A.Story.About.a.Happily.Married.Woman.Who.Falls.Completely.For.Her.Daughter.s.Friend.Volume.One.epub)
+- [A Yuri About Being Asked "Hey, Aren't You Gonna Do Anything?" by an Older Colleague](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/A.Yuri.About.Being.Asked.Hey.Aren.t.You.Gonna.Do.Anything.by.an.Older.Colleague.epub)
+- [A Yuri Story About an Elite Female CEO Who Picked Up a Younger Woman in an Alley and Is Utterly Spoiled Until She Sinks](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/A.Yuri.Story.About.an.Elite.Female.CEO.Who.Picked.Up.a.Younger.Woman.in.an.Alley.and.Is.Utterly.Spoiled.Until.She.Sinks.epub)
+- [antiqua - Amber-Colored Game of Love](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/Antiqua.Amber-Colored.Game.of.Love.epub)
+- [Demon Lord Girl Self-Destructs ~The World Has Been Saved, But the Saint Won't Let Go of Me~](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/Demon.Lord.Girl.Self-Destructs.The.World.Has.Been.Saved.But.the.Saint.Won.t.Let.Go.of.Me.epub)
+- [Don't you feel ashamed to be overpowered by a maid?](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/Don.t.You.Feel.Ashamed.to.be.Overpowered.by.a.Maid.Epub)
+- [From the Place Without Barlines](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/From.the.Place.Without.Barlines.epub)
+- [How about afternoon tea?](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/How.About.Some.Afternoon.Tea.Epub)
+- [I Stopped Being Possessive, and Then She Fell Apart](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/I.Stopped.Being.Possessive.and.Then.She.Fell.Apart.epub)
+- [I Was Kissed by the Junior I Hate](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/I.Was.Kissed.by.the.Junior.I.Hate.Epub)
+- [If you kiss me, I'll tell you](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/If.You.Kiss.Me.I.ll.Tell.You.Epub)
+- [Love Grows in the Classroom After School](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/Love.Grows.in.the.Classroom.Epub)
+- [My Crush Became My Stepsister](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/My.Crush.Became.My.Stepsister.epub)
+- [My Crush on My Soon-to-Be-Stepsister Childhood Friend Is Just Too Convenient!](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/My.Crush.on.My.Soon-to-Be-Stepsister.Childhood.Friend.Is.Just.Too.Convenient.Epub)
+- [My Guilty First Love With Another Girl's Girlfriend Volume 3](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/My.Guilty.First.Love.With.Another.Girl.s.Girlfriend.Volume.3.epub)
+- [My Sun and Your Star](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/My.Sun.and.Your.Star.epub)
+- [She, expressionless and transparent, seems to be someone you could hold tight if you paid the price](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/She.Expressionless.and.Transparent.Epub)
+- [The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing "Yuri Friends"](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.Discipline.Committee.Chair.Who.Got.Blackmailed.by.a.White-Haired.Gyaru.Gets.Completely.Wrecked.Playing.Yuri.Friends.epub)
+- [The Honor Student Came to Buy Adult Toys](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.Honor.Student.Came.to.Buy.Adult.Toys.epub)
+- [The Introvert Whose Only Redeeming Feature Is Her Face Somehow Built a Yuri Harem - A Former Young Lady Becomes a "Maid" in Akihabara](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.Introvert.Whose.Only.Redeeming.Feature.Is.Her.Face.Somehow.Built.a.Yuri.Harem.A.Former.Young.Lady.Becomes.a.Maid.in.Akihabara.epub)
+- [The Story of the Woman Who Ended Up Sleeping with the Club Princess](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.Story.of.the.Woman.Who.Ended.Up.Sleeping.with.the.Club.Princess.epub)
+- [The White Witch and the Black Witch — A Twisted Secret Between Them](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.White.Witch.and.the.Black.Witch.A.Twisted.Secret.Between.Them.epub)
+- [The World-Weary Magic Doll Shop — A Redo With the Strongest Witch, One Final Day With Someone Precious to You](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/The.World-Weary.Magic.Doll.Shop.A.Redo.With.the.Strongest.Witch.One.Final.Day.With.Someone.Precious.to.You.epub)
+- [You Bleed Into My Colourless World](https://github.com/flenser/flenser.github.io/releases/download/v1.0.1/You.Bleed.Into.My.Colourless.World.epub)
+
+With thanks to Macmilan on Discord for compiling the ePUB versions of the completed novels.

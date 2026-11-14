@@ -1,7 +1,9 @@
 ---
 title: 'The Introvert Whose Only Redeeming Feature Is Her Face Somehow Built a Yuri Harem ~A Former Young Lady Becomes a "Maid" in Akihabara~'
+author_ja: "八星 こはく"
+author_romaji: "Yatsuboshi Kohaku"
 has_children: true
-tags: ["suggestive", "high school", "yandere", "tsundere", "fluffy", "harem", "parental neglect", "high energy", "ongoing"]
+tags: ["safe", "high school", "yandere", "tsundere", "fluffy", "harem", "parental neglect", "high energy", "complete"]
 ---
 ## Original Title
 

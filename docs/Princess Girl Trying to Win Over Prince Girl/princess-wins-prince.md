@@ -1,5 +1,7 @@
 ---
 title: The Story of a Princess-Type Girl Trying to Win Over a Prince-Type Girl
+author_ja: "八星 こはく"
+author_romaji: "Yatsuboshi Kohaku"
 has_children: true
 tags: ["high energy", "high school", "fluffy", "seduction", "comedy", "safe", "published as light novel", "ongoing"]
 ---

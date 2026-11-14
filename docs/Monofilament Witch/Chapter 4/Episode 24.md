@@ -1,100 +1,113 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter Four: Raven from Hell'
+parent: 'Raven from Hell'
 sequence: 24
-title: 'Episode 24: The Strange Appearance'
+title: 'Episode 24: A Different Face'
 ---
-A beam of light streaks in.\
-A blast follows, exploding with a delayed roar.\
-It strikes —a terribly young, innocent -looking girl.
+## Episode 24: A Different Face
 
-Her bright yellow magical cyberware dress flutters.\
-Her hair dances softly, a shade of yellow bright enough to make one smile.\
-　Her wide-open eyes sparkled like sunflower petals, and atop her head sat an adorable dog-ear headdress.
+\
+A light *hurtled towards them*.\
+A moment later came the explosion, the shockwave bursting outward.\
+And then, *impact*. A very young, innocent-looking girl had landed.
 
-Centred on where she landed, yellow phosphorescence —cracks burst forth, shattering.\
-The illegal high-rise structure collapsed.
+Her dress was bright yellow magical cyberwear, fluttering as she spun around.\
+Her hair floated softly about her, so yellow it made you want to smile.\
+Her wide-open eyes sparkled like the petals of a sunflower, and atop her head sat an adorable headband with little dog ears.
 
-"Whoa! Missed with the Yellow♥Punch!"\
-"【Blue】!"\
-"――!"
+From the point where she landed, yellow phosphorescence burst forth in jagged cracks, splintering and shattering the ground.\
+The towering illegal buildings collapsed.
 
-Black phosphorescence enveloped the 【Gemini Witch】.\
-A jet-black mask obscured her expression.\
-Her black dress billowed.\
-Magical cyberware wings unfolded from her back —just one wing.
+“Wah-wah! My Yellow ♥ Punch missed!”\
+“[Blue]!”\
+“...!”
 
-"No! Emerald!"\
-"■■■ Run!"
+Black phosphorescence enveloped the [Witch of Gemini].\
+A pitch-black mask covered her expression.\
+A black dress billowed around her.\
+Magical cyberwear wings unfolded from her back, but only one of them.
 
-　The brief warning from the 【Gemini Witch】.\
-An exploding blast.\
-The magical cyberware wings absorb the yellow shockwave.
+“No! Emerald!”\
+“■■■ run”
 
-"Chiiwaa..."
+The [Witch of Gemini] managed a brief warning.\
+A blast of wind exploded outward.\
+The wing of her magical cyberwear caught the yellow shockwave.
 
-The moment the shock subsided.
+“Chii-waaa...”
 
-"――Wah!"
+The moment the impact subsided...
 
-A second impact.\
-The fist of 【Chiwawa Yellow】, caught by the wings, pierces through.
+“...Wah!”
 
-　It was a spear.\
-A strike concealed within chrome steel gloves shaped like paw pads.\
-The 【M-70 Type Pile Bunker】. Grasping the enemy with the paw pads, it launches a stake from the palm's base.
+The second impact came.\
+The fist of [Chihuahua Yellow], which had been caught by the wing, punched straight through it.
 
-Pierced wings.\
-Mechanical feathers scatter into the sky.\
-The jet-black mask of the 【Gemini Witch】 is struck and pierced.
+It was a spear.\
+A blow concealed within chrome-steel gloves shaped like paw pads.\
+The [M-70 Pile Driver]. It seized its target with its paw-shaped grip, then drove a stake from the centre of the palm.
 
-"■■■■■■■■■■■■■■■■■■■■■■■■!!"\
-"Nwaah!?"
+The wing was pierced.\
+Mechanical feathers scattered through the sky.\
+The pitch-black mask of the [Witch of Gemini] was struck and pierced through.
 
-Swallowed by the collapsing illegal buildings, Sere looked up at it. The Witch of Gemini, her wings pierced. The black phosphorescent light she emitted.
+“■■■■■■■■■■■■■■■■■■■■■■■■!!”\
+“Nyah-wuff?!”
 
-　The sky was painted black.
+As the collapsing mass of illegal buildings swallowed them, Sere looked up.\
+The [Witch of Gemini], her wing pierced.\
+And the black phosphorescence pouring from her.
 
-"■■■■■■■■■■■ Green Vortex!"\
-"Ginya!?"
+*
 
-A falling emerald light.\
-It was a strike faster than sound.\
-Falling from the heavens —a thunderbolt, followed by a delayed clap of thunder!
+The sky was painted black.
 
-　The Gemini Witch generates an extraordinary amount of M-particles via its two Magus Engines, dispersing them into the air through its wings.\
-The M-particles transmit thoughts and colour the space.\
-And then.\
-It freely manipulates the weather.
+*
 
-"...No! Emerald! Jade isn't here, so if you do that—!"\
-"Ehehehe♥"
+“■■■■■■■■■■■ GREEN VORTEX!”\
+“Gyaaaah?!”
 
-The lightning strike's impact point—【Chiwawa Yellow】 rises, billowing black smoke.
+An emerald light came crashing down.\
+A strike faster than sound.\
+Falling from the heavens, it was a bolt of lightning, followed by the thunder that roared in its wake!
 
-No damage to her yellow dress.\
-No clouding in her yellow-glowing eyes.
+Using her two Magus Engines, the [Witch of Gemini] generated an extraordinary quantity of M-particles, scattering them into the air through her wings.\
+M-particles transmit thought, colouring the space around them.\
+And then...\
+*They allow her to control the weather at will.*
 
-"Ten years since the Hakodate Decisive Battle —data, output change! Feeling cocky, are we? Witch-san!"
+“...No! Emerald! You can't do that without Jade-chan! If you do, then...!”\
+“Ehehe! ♥”
 
-　Not a single scratch marred 【Chiwawa Yellow】.\
-The girl's pale skin felt no pain or discomfort whatsoever.\
-Meanwhile, the opposing 【Gemini Witch】—crashed. Blood, dark and thick, spurted from her shattered mask as she plummeted into the rubble of collapsing illegal buildings.
+At the lightning's point of impact, [Chihuahua Yellow] rose to her feet, black smoke billowing from her body.
 
-　Right before Sere's eyes.
+Her yellow dress was unscathed.\
+There was not a trace of cloudiness in her shining yellow eyes.
 
-"...!"\
-"Wafu!? M-mind your own business!? Oh dear, HQ will be furious..."\
-"Emerald!"
+“Output is half what it was in the data from twenty years before the Battle of Hakodate! Are you feeling poorly, Witch-san?!”
 
-Sere caught the falling witch in her arms.\
-And then —she started running. Dodging the debris, trying to shake off the pursuers' gaze.
+[Chihuahua Yellow] didn't have a single injury.\
+The girl's pale skin showed no sign of pain or discomfort.\
+The [Witch of Gemini], by contrast, was falling. Dark, blackened blood spilled from behind her shattered mask as she tumbled into the rubble of the collapsing illegal buildings.
 
-"...Ah..."
+Right towards Sere.
 
-【Chiwawa Yellow】 smiled weakly.
+“...!”\
+“Wuff?! A-a civilian?! Oh no, HQ's gonna be mad at me...!”\
+“Emerald!”
 
-"If it's you, Terrorist-san, I can get involved as much as I like, right?"
+Sere caught the falling Witch in her arms.\
+Then, without stopping, she ran, slipping into the rubble to hide from her pursuer and shake off the chase.
 
-Eyes like sunflower petals locked onto the fleeing shadow.
+“...Ahh...”
+
+[Chihuahua Yellow] smiled, her face crumpling into a soft, lopsided grin.
+
+*
+
+“If they're terrorists, it's fine to get as many of them caught up in the collateral damage as we like, right?”
+
+*
+
+Her sunflower-petal eyes fixed on the fleeing figures, tracking them right to their core.

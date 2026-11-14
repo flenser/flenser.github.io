@@ -1,5 +1,7 @@
 ---
 title: My Neighbour, Kataba-san
+author_ja: "雨野 天遊"
+author_romaji: "Amano Tenyū"
 has_children: true
 tags: ["slow burn", "secret relationship", "honor student", "high school", "parental neglect", "co-dependence", "high pressure", "angst", "abuse", "violence", "su1cidal behaviour", "safe", "ongoing"]
 ---

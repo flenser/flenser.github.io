@@ -1,42 +1,44 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter Four: Raven from Hell'
+parent: 'Raven from Hell'
 sequence: 22
-title: 'Episode 22: The Definition of a Witch'
+title: 'Episode 22: Defining a Witch'
 ---
-M-Particle Magic changed the world.\
-And it transformed humanity.
+## Episode 22: Defining a Witch
 
-M-Particles are particles that transmit thought.\
-By smoothly converting thought into electrical signals, devices optimised for numerous M-Particles now operate according to human thought. Bullets containing M-Particles trace the trajectory their master intends, while motorcycles connected by M-Particles race with effortless control, like a human body moved by thought.
+\
+M-particles changed the world.\
+And they transformed humanity.
 
-That thought transmits not only to machines —but to humans too.
+M-particles are particles that transmit thought.\
+By smoothly converting thought into electrical signals, they enabled countless devices optimised for M-particles to operate according to human thought. Bullets containing M-particles trace trajectories exactly as their users intend, while motorcycles connected through M-particles race along under precise control, moving as freely as the human body itself, guided by thought alone.
 
-The human brain, too, operates via electrical signals.\
-Neuronal firing, connections, blinking, switching. That is the entirety of what humans possess: 【thought】, 【personality】, 【memory】.\
-　They are merely composed of organic matter.\
-They are simply exceedingly complex, beyond replication by modern technology.\
-That is the only difference —no other distinction exists between humans and machines.
+And those thoughts can be transmitted not only to machines, but to other human beings as well.
 
-Machines worn down by constant use.\
-A brain worn down by perpetual thought.\
-That is why humans die.
+The human brain, too, operates through electrical signals.\
+Neuronal firing, connections, impulses, switches. These are all that make up the things humans possess: [Thought], [Personality], and [Reminiscing].\
+They are merely composed of organic matter.\
+Merely so extraordinarily complex that modern technology cannot reproduce them.\
+There is no other difference between human beings and machines. None at all.
 
-　【Thought】 is nothing more than irreversible wear and tear.
+Machines wear down with continued use.\
+The brain, too, wears down as it continues to think.\
+And so humans die.
 
-And magical girls who wield M-particles—【Thought】 itself —as weapons experience wear at a rate roughly one hundred to three hundred times that of ordinary humans.\
-To reduce the burden, magical girls are typically forbidden from engaging in non-combat 【Thought】.\
-It is to cool the barrel of a red-hot Gatling gun, however slightly.
+[Thought], in other words, is nothing more than irreversible wear and tear.
 
-　Existences whose brains have worn down, degraded, and become irreversibly altered.\
-When 【Thought】 becomes clouded, electrical signals grow murky, and performance markedly falls short of what is broadly considered 【human】, the phosphorescence of M-Particles turns black.\
-The wear reshapes the brain.\
+And for magical girls, who wield M-particles, who wield [Thought] itself, as a weapon, the rate of that wear can reach roughly one hundred to three hundred times that of an ordinary person.\
+To reduce the strain, magical girls are ordinarily forbidden to engage in [Thought] outside combat.\
+It is an attempt to cool the barrel of a red-hot Gatling gun, even if only a little.
+
+When the brain has worn down and deteriorated beyond the point of recovery, when [Thought] becomes muddled and the electrical signals grow clouded, leaving the individual profoundly deficient in the capabilities expected of a [human being], the phosphorescence of M-particles turns black.\
+Wear and tear changes the shape of the brain.\
 Grinds it down.\
-Transforms it into something no longer human.
+And transforms it into *something that can no longer be called human*.
 
-　A Witch is a degraded Magical Girl.
+A [Witch] is a degraded [Magical Girl].
 
-Fifty years after the discovery of M-particles, this truth came to light twenty years before the Hakodate Decisive Battle.\
-It has already been confirmed: they cannot return to their former selves.\
-A broken machine only malfunctions.
+Fifty years after the discovery of M-particles, these facts came to light, twenty years before the Battle of Hakodate.\
+It has already been confirmed that they can never return to what they were.\
+A broken machine does nothing but malfunction.

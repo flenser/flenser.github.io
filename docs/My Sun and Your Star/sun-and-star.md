@@ -1,5 +1,7 @@
 ---
 title: My Sun and Your Star
+author_ja: "雨野 天遊"
+author_romaji: "Amano Tenyū"
 has_children: true
 tags: ["slow burn", "secret relationship", "honor student", "high school", "enemies to lovers", "co-dependence", "parental neglect", "high pressure", "time jump", "angst", "su1cidal behaviour", "safe", "complete"]
 ---

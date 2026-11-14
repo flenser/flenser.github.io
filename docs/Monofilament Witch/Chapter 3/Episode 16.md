@@ -1,71 +1,76 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter Three: Lost Girls'
+parent: 'Lost Girls'
 sequence: 16
 title: 'Episode 16: Stuffed Toy'
 ---
-Though she once ended up embedded in the ceiling, Momotsuki Haruka's adjustments proceeded smoothly. The limbs of her magical cyberware had become so familiar that she could scarcely recall the sensations of her former flesh-and-blood self. Even if she could have remembered, Momotsuki Haruka would never have looked back.\
-【Recollection】is forbidden.
+## Episode 16: Stuffed Animal
 
-　That was simply how it was.\
-The world became simpler when recognised as such.\
-Nights without dreams, leisure without looking back – for Momotsuki Haruka, that was simply how it was.\
-Which is precisely why her rhythm was thrown off.
+\
+Although she had once ended up embedded in the ceiling, Momotsuki Haruka’s adjustment had proceeded smoothly. Her magical cyberwear limbs had become comfortable to use, and she could no longer remember what it had felt like to have a body of flesh and blood. Even if she had been able to remember, Momotsuki Haruka probably would not have looked back on it.\
+[Reminiscing] was forbidden.
 
-"Hic...! Ugh, ugh...! Guh... hiccup... hiccup...!"
+*That was simply how things were.*\
+The world became easier to understand when you recognised that *that was simply how things were*.\
+Nights without dreams, leisure time spent without looking back on the past: to Momotsuki Haruka, they were all *simply how things were*.\
+Which was all the more reason this was throwing her off balance.
 
-The sound of sniffling could be heard.\
-　Beneath the bunk bed. Directly under Momotsuki Haruka's bed.\
-The sleeping place of 【Chiwawa Yellow】.
+“Sniff…! U-unh…! Sniffle… hic…!”
 
-Sleep was being disturbed.\
-The effects of the sleeping medication had worn thin from repeated administration. Momotsuki Haruka could no longer sleep with drugs. Yet, until now, she had still managed to sleep. Not dreaming remained unchanged. She had undergone training for that purpose.\
-　But there was an unadjusted child.\
-Chiwawa Yellow.
+She could hear someone sobbing.\
+The lower bunk. Directly beneath Momotsuki Haruka’s bed.\
+[Chihuahua Yellow]’s bed.
 
-The yellow bed, still without a stuffed toy.\
-A small body curled up on the large sheet.
+Her sleep was being disturbed.\
+The effects of the sleeping medication had weakened after so many previous doses. Momotsuki Haruka could no longer rely on the help of drugs to sleep. Even so, until now, she had still been able to sleep. She still never dreamed, either. She had been trained for that.\
+But there was an unadjusted child.\
+Chihuahua Yellow.
 
-The role of the stuffed toy resembled a medal. Each time they went out on a mission, each time they achieved something, the authorities gave the magical girls a reward.\
-　Cosmetics for undercover missions.\
-Videos of films for training negotiators.\
-Pocket money, puddings, pretty clothes... and stuffed toys.
+A yellow bed, still without a stuffed animal.\
+A small body curled up on a large sheet.
 
-Haruka Momotsuki's bed was overflowing with stuffed toys. Yet on Chiwa Yellow's bed lay only the basic thin sheet and pillow.\
-It hadn't always been so.\
-Because that had been Viola Purple's bed.
+*Stuffed animals* were much like medals of honour. Each time a magical girl deployed, each time she distinguished herself, the authorities rewarded her.\
+Cosmetics that could be used on infiltration missions.\
+Film recordings that could help train her for negotiation duties.\
+Pocket money, pudding, pretty clothes… and stuffed animals.
 
-　Until a few weeks ago, it had been crammed full of books she'd chosen as rewards for her studies, plush toys, and film videos. On the night she died, they vanished without a trace, and the purple sheets were taken too.\
-Only the wooden frame remains, a bunk bed.\
-There.
+Momotsuki Haruka’s bed was overflowing with stuffed animals. But on Chihuahua Yellow’s bed, there was little more than the thin blanket and pillow that came as standard.\
+It had not always been that way.\
+Because that had been [Viola Purple]’s bed.
 
-"Higu, uu...!"
+Until a few weeks ago, it had been crammed full of the books she had chosen as rewards for studying, along with stuffed animals and film recordings. On the night she died, all of them had vanished without a trace, and even the purple sheets had been taken away.\
+The bunk bed remained, its wooden frame the only trace of what had been there.\
+And there…
 
-Chiwawa Yellow trembled alone.
+“Sniff… u-unh…!”
 
-"Father...! Mother...! Yu-kun...!"
+Chihuahua Yellow was trembling all alone.
 
-She was shaking.\
+“Papa…! Mama…! Yuu-kun…!”
+
+She was trembling.\
 Sweating.\
 Her eyes were wet.\
-Her small hands clutched the thin cloth so tightly they turned white.
+Her small hands gripped the thin blanket so tightly that her knuckles had turned white.
 
-　Haruka Momotsuki, without a second thought, placed a stuffed toy beside her.
+Without thinking about anything, Momotsuki Haruka placed a stuffed animal beside her.
 
-A pink bear.\
-Fluffy and soft.\
-A little worn.
+*
 
-"Ah... uu...?"
+A pink teddy bear.\
+Soft and fluffy.\
+A little worn and droopy.
 
-Chiwawa Yellow opened her eyes slightly. Before their gazes met, Haruka Momotsuki returned to the top bunk.
+“Ah… uhh…?”
 
-"...Thank you. Senpai..."
+Chihuahua Yellow’s eyes opened slightly. Before their eyes could meet, Momotsuki Haruka climbed back into the upper bunk.
 
-Ignoring the whimpering voice, Momotsuki Haruka fell asleep.\
-That's just how it is.\
-With unadjusted children.\
-With future magical girls.
+“…Th-thank you, Senior…”
 
-On Momotsuki Haruka's bed too, a purple, soft, slightly wilted cat plushie lay gathering dust in the corner.
+Ignoring the sniffling voice, Momotsuki Haruka fell asleep.\
+*That was simply how things were.*\
+Unadjusted children were like that.\
+Future magical girls were like that.
+
+On Momotsuki Haruka’s own bed, a purple stuffed animal lay gathering dust in the corner: a soft, slightly droopy little cat.

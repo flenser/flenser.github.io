@@ -89,8 +89,8 @@ Outside, it was already dark. The wet asphalt glistened, reflecting the lights o
 Without saying it aloud, I murmured her name over and over in my mind.
 
 Ever since first year, I'd been dreaming of a day like this.\
-In second and third years, we were in different classes, so I could only watch her from afar.\
-It was great when we ended up in the same class in fourth year, but Mitsuki was always asleep, and there was never any chance to get to know her.
+In our first and second years, we were in different classes, so I could only watch her from afar.\
+It was great when we ended up in the same class in third year, but Mitsuki was always asleep, and there was never any chance to get to know her.
 
 　I never imagined such luck would come my way at the very last moment.
 

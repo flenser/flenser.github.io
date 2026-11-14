@@ -1,5 +1,7 @@
 ---
 title: If you kiss me, I'll tell you
+author_ja: "桃田ロウ"
+author_romaji: "Momota Rou"
 has_children: true
 tags: ["secret relationship", "adult life", "straight to gay", "enemies to lovers", "suggestive", "fluffy", "complete"]
 ---

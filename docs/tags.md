@@ -1,5 +1,5 @@
 ---
-title: Tag Cloud
+title: '* Tag Cloud'
 nav_order: 1
 ---
 

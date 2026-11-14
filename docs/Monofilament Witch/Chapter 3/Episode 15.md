@@ -1,125 +1,135 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter Three: Lost Girls'
+parent: 'Lost Girls'
 sequence: 15
 title: 'Episode 15: Adjustment'
 ---
-"Don't come any closer. I'll cut you."
+## Episode 15: Adjustment
 
-Training Facility [School].\
-The pink flash of the M-65 Monofilament Whip sliced through the hail of bullets.\
-　A split-second severing, not even producing a metallic clang.\
-As metal fragments scattered to the ground, the girl —Chiwawa Yellow— clapped her hands, pat-pat. It was the kind of clap a puppy might give.
+\
+“Don’t come any closer. I might cut you.”
 
-"Whoa—amazing! This is magic!"\
-"Output increased by about 30%..."\
-"Output...?"\
-"It's become stronger."\
-"Amazing!"
+The training facility, [School].\
+A pink flash, the [M-65 Monofilament Whip], sliced through the rain of bullets.\
+A cut so swift it made not even a metallic sound.\
+As fragments of metal pattered to the ground, the girl, [Chihuahua Yellow], clapped her hands. She clapped like a puppy might.
+
+“W-wow! Amazing! So this is ma-gic!”\
+“Looks like my output’s increased by thirty per cent…”\
+“Out-put…?”\
+“I’ve become stronger.”\
+“Amazing!”
 
 Clapping like a puppy.\
-She wasn't thinking. Yet, Momotsuki Haruka's state was off.
+She did not think. And yet, Momotsuki Haruka was completely thrown off her stride.
 
-It was one of those days off.
+*
 
-The training schedule contained only the bare minimum to promote rehabilitation.\
-There were no deployment missions scheduled, at least for now.\
-Days like this weren't uncommon.
+It was what they called a day off.
 
-　The magical girls were a specialised unit dedicated to countering magical cyber-terrorism.\
-Terrorists who casually employed magic, banned under UN conventions, didn't appear year-round. Deployments, including operations to prevent terrorism before it occurred, were generally once a week at most. Furthermore, Strawberry Pink wasn't the only magical girl.\
-Idle days existed.\
-Days without work, where thinking wasn't permitted.
+*
 
-　Most were spent mentoring junior magical girls or in personal training.\
-While requests for leave were permitted, few magical girls – forbidden from free thought – ever applied for such permission.
+The training schedule contained only the bare minimum required to promote her rehabilitation.\
+There were no deployment missions scheduled, either, at least for the time being.\
+Days like this were hardly unusual.
 
-Haruka Momotsuki always passed the time alone in bed.\
-　Or she accompanied [Viola Purple]... [Fuyumi Shizuki] for her personal training.\
-That was her usual day off.\
-Or so it had been.
+Magical girls were a special forces unit specialising in countering magical cyberterrorism.\
+Terrorists who casually used magic, despite its prohibition under UN conventions, did not appear all year round. Including operations to prevent terrorist attacks before they occurred, deployments generally took place about once a week. And Strawberry Pink was not the only magical girl.\
+There were days when they had nothing to do.\
+Days when they were forbidden to think, but had no work to do.
 
-"Strawberry Pink-senpai! Where are you taking me next!?"
+Most of these days were spent instructing junior magical girls or undertaking individual training.\
+Permission to go out was also granted upon application, but few magical girls whose freedom of thought was restricted ever bothered to apply.
 
-...Being told such things with sparkling eyes was troublesome.
+Momotsuki Haruka usually passed the time alone in bed.\
+Otherwise, she would join [Viola Purple]… [Shizuki Fuyumi] for her individual training.\
+That was what her days off had always been like.\
+Or so they had been.
 
-Guiding juniors around the facility.\
-Such a thought hadn't crossed her mind.\
-　Rehabilitation to get used to new legs, new organs. Time spent simply strolling through the safe confines of the facility. Chiwa Yellow, who had tagged along as an assistant, had eyes sparkling.
+*
 
-"Amazing! Amazing, amazing! So this is it, this is the magical girls' base!"\
-"Yeah."
+“Senior Strawberry Pink! Where are you taking me next!?”
 
-The grey complex of buildings, resembling the collective housing of a communist society, was the authorities' base.\
-　It had no official name.\
-It wasn't officially recognised.\
-It didn't appear on maps.\
-The government concealed it.\
-But the command centre was here. That alone made the magical girls call this place [HQ].
+…It was difficult to know what to do when she was asked that with such sparkling eyes.
 
-"Biscuits aren't tasty."\
-"...True."
+*
 
-At the base's outer edge, surrounded by forest.\
-They sat down in a small, open space resembling a courtyard.
+She had never thought of showing a junior around the facility.\
+The time was meant for rehabilitation, getting used to her new legs and new internal organs. They were simply wandering around the safe confines of the facility. And [Chihuahua Yellow], who had come along as her attendant, had eyes that sparkled with excitement.
 
-　In their hands, rationed biscuits.\
-Strawberry-pink hands held strawberry milk.\
-Passing by were other magical girls, children or adults at work.
+“Amazing! Amazing, amazing! So this is the magical girls’ base!”\
+“Yeah.”
 
-"Not sweet enough... too hard... crumbly..."\
-"It is sweet. And nutritious too."\
-"...Would it be tasty with gyūnyū?"\
-"Milk?"\
-"Cow's milk."\
-"Cow's... ugh... you drink that?"
+The authorities’ base consisted of grey buildings resembling blocks of flats in a communist society.\
+It had no official name.\
+Because it was not officially acknowledged.\
+It did not appear on maps.\
+Because the government concealed its existence.\
+There was only a command centre. That alone was enough for the magical girls to call the place [HQ].
 
-No, she shouldn't, thought Momotsuki Haruka, sipping her strawberry milk.\
-Cow's milk. The aversion to the very words... a pointless, impermissible thought.
+“The biscuits aren’t tasty.”\
+“…No, they aren’t.”
 
-"...? Strawberry Pink-senpai is drinking it, so...?"\
-"Strawberry milk. It erases your thoughts."\
-"But that's still gyūnyū, isn't it?"\
-"Buh-oh!"
+At the edge of the base, surrounded by forest, the two girls sat down in a spot that opened out into a small clearing.
 
-She hadn't wanted to hear that.
+They held rationed biscuits in their hands.\
+Strawberry Pink also had a carton of strawberry milk.\
+Other children who looked much like the magical girls passed by, along with adults going about their work.
 
-"Ah, but nowadays, there's go-se and stuff..."
+“Not enough sugar… hard… all dry and crumbly…”\
+“They’re sweet. And they’re nutritious.”\
+“…Maybe they’d taste nice with mi-lk.”\
+“Milk?”\
+“Cow’s milk.”\
+“Cow’s mi… Ugh… People drink that?”
 
-Chiwawa Yellow tilted her head, humming thoughtfully.\
-Her fluffy golden hair flattened softly against her shoulder.
+*No good,* thought Momotsuki Haruka, and she took a sip of strawberry milk.\
+The disgust she felt at words like *cow’s milk*… It was a pointless thought, one she was not permitted to have.
 
-"Ah... That must be it. Synthetic. I don't drink cow's milk."\
-"Huh?"\
-"..."
+“…? Senior Strawberry Pink, that thing you’re drinking…?”\
+“Strawberry milk. It makes thoughts go away.”\
+“But that’s cow’s milk, too.”\
+*Pffft!*
 
-I want to erase my thoughts.\
-Yet, my hand holding the strawberry milk stops.
+She hadn’t wanted to hear that.
 
-"...I want a sip."\
-"Eh?"\
-"Just one sip! ...Is that... not allowed?"\
-"...Permission granted."\
-"Yay!"
+“Ah, but these days there’s syn-thetic stuff and all…”
 
-With her small hands (not much different from Momotsuki Haruka's, though...) she gripped the strawberry milk carton firmly, pressing her soft-looking lips to the slightly crushed straw.\
-She sucked clumsily, using her whole cheek...\
-A forbidden thought flashed through her mind.\
-Hamsters, seen in documentary footage.\
-Extinct small pets.
+Chihuahua Yellow tilted her head, pondering.\
+Her fluffy golden hair rested against her shoulders, looking soft to the touch.
 
-"...Eww...! This is far too sweet...!! It's got weird science stuff in it...!"\
-"...Eh..."
+“Ah… That must be it. Synthetic. I don’t drink cow’s milk.”\
+“Wooow.”\
+“…”
 
-Chiwawa Yellow stuck out her tongue.\
-A pointless thought crossed her mind.\
+She wanted to stop thinking.\
+But she had stopped drinking her strawberry milk, too.
+
+“…I want a sip.”\
+“Huh?”\
+“Just one sip! …Is that not allowed?”\
+“…Permission granted.”\
+“Yay!”
+
+With both small hands (though they weren’t all that different in size from Momotsuki Haruka’s own…), she gripped the carton of strawberry milk firmly and put her soft-looking lips to the slightly crushed straw.\
+*Sluuuurp…* She sucked awkwardly, using her entire cheeks.\
+A forbidden thought crossed Haruka’s mind.\
+A hamster she had seen in an archival video.\
+A small pet animal that had gone extinct.
+
+“Uuugh…! This is too sweeeet…!! It’s got weird chemical flavourings in it…!”\
+“…Really…?”
+
+Chihuahua Yellow stuck out her tongue.\
+Another pointless thought crossed Haruka’s mind.\
 There was no strawberry milk.
 
-The concept of food being good or bad seemed to exist for ordinary girls.\
-　So then, what exactly is this thing in front of the "future magical girl"?\
-What is this thing held by her, who is about to undergo [Adjustment]?
+Apparently, ordinary girls had a concept of whether food tasted good or bad.\
+Then what was this thing that the “future magical girl” in front of her possessed?\
+What was it that she had, before she underwent [Adjustment]?
 
-――Blinding.
+**It was dazzling.**
 
-Though the sunlight wasn't particularly strong, somehow that word flashed through Momotsuki Haruka's mind. It might have been a remnant of the [Pisces Witch]'s thoughts.
+Though the sunlight was not particularly strong, for some reason those words passed through Momotsuki Haruka’s mind.\
+Perhaps they were a remnant of the thoughts of the [Witch of Pisces].

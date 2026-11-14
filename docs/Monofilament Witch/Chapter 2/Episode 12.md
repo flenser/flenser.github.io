@@ -2,163 +2,188 @@
 grand_parent: Monofilament Witch
 layout: episode
 nav_order: 70
-parent: 'Chapter Two: Crisps and Cola'
+parent: 'Crisps and Cola'
 sequence: 12
 title: 'Episode 12: Thorns'
 ---
-The severed, falling strawberry-pink torso.\
-Leaving the lower half behind, the upper body flew away amidst the force of the charge, then plummeted.\
-A crimson trail of blood/skin connecting upper and lower halves. Entangled entrails of steel, piping, and flesh. The spilling blood was lethal —fatal.
+## Episode 12: Thorns
 
-　The Maegus Engine's resonance —the girl's scream/operating sound—fades.\
-The pink phosphorescent magic that caused the overload grows faint.\
-The transformation magic departs the girl's body.
+\
+Strawberry Pink’s severed torso fell.\
+Leaving the lower half of her body behind, everything below the navel, her upper body had been flung forward by the force of her charge, then fallen to the ground.\
+A crimson carpet of blood connected her upper and lower halves. Entrails of steel, pipes, and flesh lay tangled together. The blood pouring from her body was enough to kill her. Fatal.
 
-"……"
+The girl’s scream, the operating sound of the Magus Engine, gradually faded.\
+The pink phosphorescent magic that had surged into overload grew dimmer.\
+The transformation magic drained from the girl’s body.
 
-The silver shadow wiped the blood from its blade.\
-To prevent the edge from dulling.\
-The battle is not yet over.
+“...”
 
-"…………Heart Magus Engine"
+The silver shadow flicked the blood from her sword.\
+It would dull the blade otherwise.\
+*The battle* was *not over yet*.
 
-Even as she faded weakly, even as consciousness slipped away, the pink phosphorescent glow lingered.\
-It was proof the Magus Engine lived on.\
-Proof the magical girl's power source still operated.
+“...Heart-mounted Magus Engine.”
 
-　M-particle magic changed the world.\
-An era where weapons could be wielded by thought alone —limbs that moved through thought were merely illegal, not uncommon. The magical girl organisation would implant this in the girls.
+Even as her life ebbed away, even after consciousness had abandoned her, pink phosphorescence still drifted in the air.\
+Proof that the Magus Engine was alive.\
+Proof that the magical girl’s power source was still operating.
 
-Even if the torso was severed.\
-A magical girl could be revived, depending on the treatment.\
-Even if she bled to death.\
-The Magus Engine, the battle logs engraved within it, would aid the next magical girl.
+M-particles, the particles of magic, had changed the world.\
+In an age when weapons could be wielded through thought alone, limbs that moved by thought alone were not uncommon, even if illegal. The organisation behind the magical girls would have no qualms about implanting such things in young girls.
 
-　Information obliteration.\
-And guaranteed kill.\
-Gouging out the heart / hacking it / destroying it.\
-That is the true form of resolution in the mutual slaughter between magical girls and witches.
+Even if her torso was severed,\
+a magical girl could be revived with the right treatment.\
+Even if she bled to death,\
+her Magus Engine, and the combat logs recorded within it, could help the magical girls who came after her.
 
-"...Huuu...! Huuu...!"
+Erasing information.\
+Then ensuring the kill.\
+Tear out the heart. Hack it. Destroy it.\
+That was how a battle between a magical girl and a Witch truly ended.
 
-The silver shadow steadied its ragged breath beneath the mask. There was no complacency. Nerves are taut. Merely slightly exhausted. Until the heart of the legless magical girl is ripped out. There is no room for complacency. Indeed, the silver shadow had its sword sheath destroyed by the dying magical girl.
+“...Huuu... Huuu...!”
 
-Flipping her dress, treading on the carpet of blood, the silver shadow approaches the fallen Strawberry Pink.\
-Kicks the upper body with her high heels.\
-　The face of Strawberry Pink, lying face down, is revealed.
+Beneath her mask, the silver shadow steadied her ragged breathing. She was not letting her guard down. Her nerves remained taut. She was merely a little exhausted. She would not relax until she had torn the heart from the magical girl who had lost her lower body. After all, even a magical girl on the verge of death had managed to destroy her sword’s scabbard.
 
-The black twin tails, now freed from magic.\
-The crumpled pink hoodie.\
-The white cheeks, flushed pink and drenched in blood.\
-The face of a young girl —twelve or thirteen years old— frozen in a smile.
+The silver shadow swept her dress around herself, stepped onto the carpet of blood, and approached the fallen Strawberry Pink.\
+She kicked the upper half of her body with her high heel.\
+Strawberry Pink had been lying face down. Now her face was exposed.
 
-"——Haru-chan?"
+Black twin tails, her magic dispelled.\
+A rumpled pink hoodie.\
+Pale cheeks, flushed pink and soaked with blood.\
+A young girl’s face, perhaps twelve or thirteen years old, frozen in the shape of a smile.
 
-There is no mercy in killing a magical girl.\
-There shouldn't have been.\
-There couldn't have been.\
-Then why did the silver shadow halt?\
-The instant she saw the girl's face, she stopped the blade?\
-All that remained was to rip out the heart —just that one moment, why.
+*
 
-　The hesitation proved fatal.\
-The change began in that very instant.
+“...Haruchan?”
 
-The girl's singing voice echoed.\
-A voice belonging to neither of the two girls present.\
-A clear resonance. A delicate sweetness. Softly stretching out, warming the heart.
+*
 
-"...!"
+There was no room for mercy when killing a magical girl.\
+That was how it was supposed to be.\
+That was how it was supposed to be!\
+Then why had the silver shadow stopped?\
+Why, the instant she saw the girl’s face, had she stayed her blade?\
+All she had to do was tear out the heart.\
+Just that. A single, simple act. So why...?
 
-The silver shadow brought the blade down.\
-The target: the Magus Engine. The sense of crisis overrode the hesitation, a strike to take the magical girl's life faster than the wavering thought could register. Pierce, tear, destroy. That was all. That was all it was.
+*
 
-Thorns entangled the blade.
+Her hesitation was fatal.\
+*The change* began at that very moment.
 
-　Just inches from the heart, the blade halted.\
-Emitting a faint phosphorescent glow —thorns sprouting from the carpet of blood.\
-Resembling roses. Botanical, delicate, beautiful, and yet bearing thorns.\
-It was an otherworldly beauty. Those thorns shimmered black —a colour that absorbed light, yet shimmered brighter than light itself.
+*
 
-"No...!"
+A girl’s singing voice rang out.\
+It belonged to neither of the two girls present.\
+Clear and pure. Sweet and delicate. The melody stretched softly through the air, filling the heart with warmth.
 
-The silver shadow uttered the words.\
-She trembled more than she ever had before.
+“...!”
 
-"Why, why, why, why—!?"
+The silver shadow brought her sword down.\
+Her target was the Magus Engine. Alarm overwhelmed her hesitation, and she struck before the uncertainty in her thoughts could catch up. A blow to pierce, tear out, and destroy the engine that powered a magical girl’s life.\
+That was all.\
+That was all there was to it.
 
-The thorns enveloped the blade.\
-The Japanese sword linked to the magical cyberdeck's staff.\
-The gleaming silver blade was dyed black, black, black, black.\
-　And like silver corroded by liquid metal, it shattered and scattered.
+But *thorns* ensnared the sword.
 
-"Get out of my way, big sis!"
+The blade stopped just short of the heart.\
+Thorns, sprouting from the carpet of blood, glowed with a faint phosphorescence.\
+They resembled those of a rose. Botanical, delicate, beautiful, and armed with spines.\
+Their beauty belonged to another world.\
+The thorns shimmered *black*, a darkness that drank in light, yet glittered more brilliantly than light itself.
 
-It resembled a school of fish.\
-Fragments of the shattered blade danced through the air, pregnant with black phosphorescence.\
-The silver shadow assumed a defensive stance. Her silver dress was torn. Furious speed, furious precision. Each fragment, like a shoal of sardines, was small, yet when they surged together, they were like a storm.
+“N-no way...!”
 
-But the silver shadow was not slain.
+The silver shadow let the words slip out.\
+Her voice trembled in a way that would have been unthinkable moments before.
 
-The swarming blades merely bought time.\
-Black thorns covered the carpet of blood.\
-Black thorns connected the flesh.
+“Why? Why, why, why...?!”
 
-　The severed strawberry-pink body.\
-Pulled towards it, patchworked together, with a sticky sound —joined.\
-Amidst the wind of black blades, it rises.
+The thorns enveloped the sword.\
+The Japanese blade joined to the staff of a magical cyberdeck.\
+The silver-white edge was stained black. Blacker. Blacker still.\
+Then it shattered and scattered, as though silver had been corroded by liquid metal, cracked apart and broken into fragments.
 
-The black twin tails are stained pink.\
-The crumpled pink hoodie covers the body like an adorned dress.\
-A lovely dress full of frills. A bridal gown that makes a girl's heart leap.
+*
 
-　A black and pink dress.
+“Stop getting in my way, Big Sis!”
 
-Eyes wide open, glowing peach, sparkling with scattered stars and black.\
-Lips coloured as if reflecting a maiden's flush.\
-Chrome steel gloves adorned slender fingers.\
-Consciousness returns.
+*
 
-Strawberry Pink awakens.
+*They* resembled a shoal of fish.\
+Fragments of the shattered sword, carrying black phosphorescence, danced through the air.\
+The silver shadow assumed a defensive stance. Her silver dress was sliced to ribbons. The speed was astonishing. The precision, extraordinary. Each fragment was tiny, like a single sardine in a shoal, but together, writhing in unison, they became a storm.
 
-Simultaneously, the black departs.\
-The thorns fade away.\
-　The black that flashed in the dress and eyes vanishes in the wind, confusion enveloping Strawberry Pink's thoughts.
+And yet the silver shadow was not killed.
 
-What happened?
+The writhing blades did nothing more than buy time.\
+Black thorns spread across the carpet of blood.\
+The black thorns joined flesh to flesh.
 
-The M-particle picks up a transmission.
+Strawberry Pink’s severed body.\
+They drew the pieces together, stitching them back into place with wet, sticky sounds.\
+Amid the storm of black blades, the girl rose to her feet.
 
-'From the Guide Mascot to [Raven Silver]. It's time.'\
-"...! Once more! I just need to strike once more, right?! That girl?! I'll do it myself! With these hands—"\
-'Calm down, [Raven Silver]. You've lost.'
+Her black twin tails turned pink.\
+Her rumpled pink hoodie transformed into an ornate dress that enveloped her body.\
+A magnificent dress, overflowing with frills. Bridal attire that would make any girl’s heart skip a beat.
 
-That was the silver shadow and someone's transmission.\
-Being synthetic speech, it was impossible to tell who it was.\
-Strawberry Pink's lips murmured the name. [Raven Silver]. Raven's silver.\
-It was almost exactly the same format as a magical girl's codename.
+A dress of black and pink.
 
-『【Sapphire Blue】 desired that one.』\
-"――"\
-『Retreat, 【Raven Silver】. Reinforcements are approaching... If you're going to throw a tantrum, I'll step down as your guide mascot, you know?』
+Her eyes flew open, shining pink, sparkling with scattered stars and darkness.\
+Her lips were coloured with a flush that seemed to reflect the girl’s rising heat.\
+Chrome-steel gloves adorned her slender fingers.\
+Consciousness returned.
 
-The silver shadow turned away upon receiving the transmission.\
-Strawberry Pink prepared to pounce. But her entire body throbbed violently.\
-　The M-Particles had severed her pain receptors.\
-And yet.\
+Strawberry Pink awoke.
+
+At the same moment, the black vanished.\
+The thorns faded away.\
+The darkness that had flickered across her dress and eyes dispersed on the wind, and confusion flooded Strawberry Pink’s thoughts.
+
+*What had happened?*
+
+M-particles picked up a communication signal.
+
+“From Guide Mascot to [Raven Silver]. It’s time to go.”\
+“...! Again! Just let me cut her one more time! I can kill that girl! With my own hands...!”\
+“Calm down, [Raven Silver]. You’ve lost.”
+
+It was a communication between the silver shadow and someone else.\
+The voice was synthesised, making the speaker’s identity impossible to determine.\
+Strawberry Pink’s lips repeated the name. [Raven Silver]... Silver Raven.\
+It was almost exactly the same format as a magical girl’s codename.
+
+“[Sapphire Blue] wanted her to live.”\
+“...!”\
+“Retreat, [Raven Silver]. We have another newcomer approaching, too. If you’re going to keep throwing a tantrum, I might just resign as your Guide Mascot.”
+
+The silver shadow turned away at the message.\
+Strawberry Pink began calculating how to launch another attack.\
+But her whole body hurt. Violently.\
+She had cut off her sense of pain with M-particles.\
+And yet...\
 It hurt.\
-It hurt intensely.\
-So much she couldn't move.\
-As if her heart had been carved out.
+It hurt terribly.\
+So badly she could barely move.\
+As though her heart had been carved into pieces.
 
-"...Hey, [Strawberry Pink]."\
-"Don't you dare assume anything, you crow bastard! I can still fight! I don't know what happened, but even so! I—"
+“...Hey, [Strawberry Pink].”\
+“Don't you dare act like you've figured everything out, you crow bastard! I can still fight! I don't know what the hell just happened, but even so, I...!”
 
-　The whirring of an armed helicopter's rotors suddenly cut off her voice.\
-Gun barrels aimed at Strawberry Pink.\
-The wind whipped her dress, and a silver shadow —Silver Raven— leapt aboard.
+The sudden roar of rotor blades drowned out her voice.\
+An armed helicopter had appeared without warning.\
+Its guns were trained on Strawberry Pink.\
+The wind swept the silver dress about as the silver shadow, Silver Raven, climbed aboard.
 
-"Which one of you —is the real you?"
+*
+
+“Which one of you... is the real you?”
+
+*
 
 Leaving those words behind,\
-the silver witch vanished, along with the armed helicopter.
+the silver Witch disappeared aboard the armed helicopter.

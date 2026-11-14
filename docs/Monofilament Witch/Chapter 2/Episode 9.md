@@ -2,126 +2,135 @@
 grand_parent: Monofilament Witch
 layout: episode
 nav_order: 40
-parent: 'Chapter Two: Crisps and Cola'
+parent: 'Crisps and Cola'
 sequence: 9
-title: 'Episode 9: The Promise'
+title: 'Episode 9: A Promise'
 ---
-"Are you absolutely sure you can get home on your own!?"\
-"I'm not alone."\
-"Are you absolutely, positively sure!?"\
-"I've called a car to pick me up."\
-"Are you absolutely, positively, absolutely sure!?!?!?"\
-"Stop pestering me, Sere!!"
+## Episode 9: A Promise
 
-The sun had dipped below the horizon, casting shadows over the communal graveyard.\
-Sitting on a bench illuminated by a streetlight, Sere scowled as she tidied up rubbish... an empty crisps bag and a plastic cola bottle...
+\
+“Are you *really, really* sure you can get home by yourself!?”\
+“I told you, I'm not alone.”\
+“Are you absolutely, positively sure!?”\
+“I called a car to come and get me.”\
+“Are you absolutely, positively, *really, really* sure!?!?”\
+“You're so persistent! Sere!!”
 
-"But I'm worried about you, big sis...!"\
-"I'm not your big sis, Sere."\
-"You are."\
-"I'm not."
+The sun had dipped below the horizon, and night had fallen over the communal cemetery.\
+Under the light of a streetlamp, Sere sat on a bench with a disgruntled expression, tidying up the rubbish... the empty packet of crisps and the plastic cola bottle.
 
-The silver-haired girl smiled awkwardly, realising she'd been found out.
+“B-but I'm worried about you, little sister...!”\
+“I'm not your little sister, Sere.”\
+“I am your big sister.”\
+“No, you're not.”
 
-For Momozuki Haruka, it was a real nuisance. She was eternally grateful for Sere guiding her home, covering the shortfall for the cola, and leading her to the memorial after she'd missed the bus...
+The silver-haired girl gave an awkward smile, as though to say, *So you've figured me out.*
 
-　But a sister was different.\
-A sister was someone related by blood.\
-Haruka Momotsuki had no one left related by blood.\
-Even if it was by marriage... there was only a year or two between them in age. As if to say that was enough, Sere showed a determined expression.
+From Momotsuki Haruka's perspective, this was quite a nuisance. She couldn't be grateful enough for Sere showing her the way, covering the money she was short of for the cola, and guiding her all the way to the memorial when she'd been unable to take the bus.
 
-"...Haaah...! If anything happens! If anything happens! Contact me here!"\
-"Device address? I don't need that sort of thing..."\
-"Never mind that! Just hold on! I'll send it!"
+But a big sister was another matter.\
+A sister was someone related to you by blood.\
+Momotsuki Haruka no longer had any living blood relatives.\
+And even if they were sisters by some other bond... they were only a year or two apart in age. Sere's expression grew resolute, as though that was more than enough.
 
-Sere fiddled with the foldable communication device.\
-Thought communication notifications: 'Contact added: [Serebryaniy Adamov]', 'Hacking detected', 'Set as emergency contact', 'Added to important contacts list'.
+“...Haaaah! If! If anything! Happens! You have to contact me here!”\
+“Your device's contact address? I don't need that...”\
+“Just do it! I'm adding you! I'll send it over!”
 
-"Don't just casually hack me!"\
-"Hmph! Your security's weak, Haru-chan... Hey, shall we stay together until the pick-up car arrives? I'm just really worried..."\
-"You've got things to do too, right, Sere?"\
-"Yeah, but still!"
+Sere fiddled with her clamshell communicator.\
+A thought-communication notification appeared:\
+**Contact added: [Serebryanyi Adamov]**  \
+**Hacking detected**  \
+**Set as emergency contact**  \
+**Added to important persons list**
 
-Waaah, Sere cried dramatically.\
-Thoughts were forbidden.\
-Annoying, or something. Annoying, and such. Even if she tried to suppress those feelings, there was no strawberry milk. Yet, for some reason, Momozuki Haruka found it distasteful that someone from the [Organisation] was coming to pick her up.
+“Don't just casually hack me!”\
+“Heheh! Your security's wide open, Haru-chan... Hey, why don't I stay with you until your car arrives after all? I'm just really, really worried...”\
+“You've got things to do, too, don't you, Sere?”\
+“I DO, BUT...!”
 
-The blacked-out car arriving at the end of the mission.\
-That somehow felt...
+“Waaah!” Sere wailed dramatically.\
+Thought was forbidden.\
+Haruka had no strawberry milk to suppress feelings like *what a nuisance* or *you're so noisy*. She simply waited for someone from the **[Organisation]** to come and collect her... and, for some reason, Momotsuki Haruka hated the thought.
 
-"Are you absolutely sure? Are you really alright??"
+The black car that came to collect her at the end of a mission.\
+There was something about it...
+
+“Are you *really, really* sure? Are you really going to be okay?”
 
 She didn't want this girl to see it.
 
-　She's so meddlesome.\
-She can't ignore a child bouncing around in front of a vending machine.\
-She'd just go along with them, that strange girl.
+A girl who loved taking care of others.\
+A girl who couldn't ignore a child jumping in front of a vending machine.\
+A strange girl who would go along with that child without a second thought.
 
-She laughs a lot.\
-She really does laugh a lot.\
-An ordinary girl with a rich range of expressions.
+A girl who laughed often.\
+Who really, truly laughed a lot.\
+A girl with an expressive face, an *ordinary* girl.
 
-"...Just go, Sere. You've got a meeting, right?"\
-"Ugh, ugh, ugh...!"\
-"I'll be fine."\
-"You, who didn't even know how to take the bus alone!?"\
-"Guh... I'll be fine! I'll call you if I get stuck again!"\
-"You said it!"
+“...Just go, Sere. You've got someone waiting for you, don't you?”\
+“U-ughhhh...!”\
+“I'll be fine.”\
+“You're saying that, when you didn't even know how to take the bus by yourself!?”\
+“Ghh... I-I'll be fine! If I get into trouble again, I'll call you!”\
+“You promised!”
 
-Gently.\
-Haruka Momotsuki's left hand was enveloped by Sere's cold hands.
+With a firm squeeze.\
+Sere's cool hands closed tightly around Momotsuki Haruka's left hand.
 
-"Promise me! If you get upset, confused, or find yourself in danger!\
-You absolutely must contact me!\
-　Understood!?"\
-"...Yeah."\
-"Right, it's settled! ...See you later."
+“A promise! If you start feeling miserable, if you don't understand what's happening, or if you find yourself in danger...\
+You *must* contact me!\
+All right!?”\
+“...Yeah.”\
+“Good! It's settled, then! ...See you!”
 
-Her head was stroked.\
-For some reason, her eyes grew hot.\
-Haruka Momotsuki suddenly craved strawberry milk.
+Sere patted her on the head.\
+For some reason, the corners of Haruka's eyes grew hot.\
+Momotsuki Haruka wanted strawberry milk.
 
-Sere looked back repeatedly, reluctantly, as she moved away from Haruka Momotsuki.\
-A black-painted car emerged from the shadows.\
-　Noticing her escort had arrived, Sere's expression brightened instantly.
+Reluctantly, Sere walked away, turning back again and again to look at Haruka.\
+The black car emerged from the shadows.\
+Perhaps she'd noticed that Haruka's ride had arrived, because Sere's face suddenly lit up.
 
-And so, waving to each other, the two parted ways.
+And so, they waved goodbye to each other, and parted ways.
 
 ＊
 
-BAR.\
-Somewhere amongst the skyscrapers of Magus City Tokyo.\
-The upper floors of a high-rise building. A place where the water city lay spread out below, visible through the windows.
+A **bar**.\
+Somewhere among the skyscrapers of Magus City Tokyo.\
+High up on one of the towers, in a place where the floating city could be seen through the windows.
 
-"...You're late, Adamov. What were you doing?"\
-"Personal business. Don't ask."
+“...You're late, Adamov. What have you been doing all this time?”\
+“Private business. Don't ask.”
 
-The silver-haired girl —Serebryaniy Adamov— tossed her long hair back, brushing aside the question from the person already seated.\
-The other person rolled their glass.\
-A spherical ice cube danced within the whisky.\
-Only its light reflected in the window of the skyscraper as the sun set.
+The silver-haired girl, **[Serebryanyi Adamov]**, swept back her long hair and brushed aside the question from the person who had arrived before her.\
+The other person swirled a glass.\
+A spherical ice cube danced in the whisky.\
+As the sunken city darkened beyond the skyscraper windows, only the light reflected in the glass remained.
 
-"Hey, Adamov..."\
-"Save your nagging for later. You're in a bloody hurry, aren't you?"\
-"You know that."
+“Hey, Adamov...”\
+“Save the lecture for later. We're in trouble if we don't hurry, aren't we?”\
+“You do understand, at least.”
 
-With a sigh, the visitor declared.
+With a sigh, the other person continued.
 
-"If you knew, you'd have come sooner. I prepared because you insisted, and it nearly all went to waste in the last ten minutes."\
-"...My apologies."\
-"I'm merely a guide mascot. If the magical girl players don't move, I can do nothing. We don't have the power to fight magical girls..."\
-"I apologised, didn't I?! Just hurry up and give it to me! His location!"\
-"...Ah."
+“If you understand that, then get here sooner. I only prepared all this because you insisted, and we were about to lose the whole opportunity in another ten-odd minutes.”\
+“...I'm sorry, all right?”\
+“I'm only a guide mascot. Unless the magical girl player makes a move, I can't do anything. We don't have the power to fight magical girls ourselves...”\
+“I said I was sorry! Just hurry up and give it to me! Where *is she*?”\
+“...Right.”
 
 The other person snapped their fingers.\
-The skyscraper window transformed into a monitor – a magical cyberdeck. A machine using M-particles, not miniaturised.\
-Displayed was a map of Magus City Tokyo.\
-　And a moving 'strawberry pattern' marker.
+The skyscraper window transformed into a monitor. A magic cyberdeck. Not a miniature version, but a machine that merely used M-particles.\
+The screen displayed a map of Magus City Tokyo.\
+And a moving point marked with a *strawberry pattern*.
 
-"In just over ten minutes, the target will leave Tokyo."\
-"...Then—"\
-"Yes, we must act swiftly."
+“The target will be leaving Tokyo in another ten-odd minutes.”\
+“...Then...”\
+“Yes. We need to make our move, and quickly.”
 
-The visitor tilted his glass.
+The other person raised the glass to their lips.
 
-"We must kill 【Strawberry Pink】 here."
+*
+
+**“[Strawberry Pink] has to be killed here.”**

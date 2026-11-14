@@ -1,85 +1,89 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter Three: Lost Girls'
+parent: 'Lost Girls'
 sequence: 14
 title: 'Episode 14: Assistance Dog'
 ---
-"Hmm, she seems more energetic than I expected."\
-"...Yes."\
-"If you've got a problem, you should speak up, [Momotsuki]."
+## Episode 14: Assistance Dog
 
-Examination room.\
-[Kimoto Yūki] glanced at the medical records, then looked at [Momotsuki Haruka].\
-The surgery had altered Momotsuki Haruka's appearance slightly.
+\
+“Hmm. You look better than I expected.”\
+“...Yes.”\
+“If you've got complaints, you should voice them, [Momotsuki].”
 
-　Black twin tails.\
+The examination room.\
+Kimoto Yuki glanced over the medical chart, then looked at Momotsuki Haruka.\
+The surgery had changed Haruka's appearance a little.
+
+Black twin tails.\
 Both arms swathed in bandages.\
-A crumpled pink hoodie.\
-Legs glimpsed beneath tights peeking out from a miniskirt.
+A rumpled pink hoodie.\
+Legs concealed beneath tights, peeking out from under a miniskirt.
 
-"You know how to use the prosthetic magic cyberware, right?"\
-"...Yes. My right arm has been like this for a while now."\
-"Right or left, it's much the same. The problem's with the legs, see. These are a bit of a pain. Until you get used to them, you can't adjust the Magus Engine output. There was that magical girl who suddenly jumped ten metres and smashed through the ceiling. Called [Viola Purple]."\
-"I know."\
-"That was awful, wasn't it? Blood gushing from her nose... Oh, ah. Sorry, sorry."
+“You know how to use a prosthetic magical cyberwear arm, right?”\
+“...Yes. My right arm was already like that.”\
+“There's not much difference between the right and left. The problem is your legs. Those are a little more troublesome. Until you get used to them, you won't be able to regulate your Magus Engine's output properly. I remember one magical girl who suddenly jumped ten metres and embedded herself in the ceiling. Her name was [Viola Purple].”\
+“I know her.”\
+“That was a nasty incident. Blood pouring from her nose and everything... Oh, right. Sorry, sorry.”
 
-Yuki Kimoto set down the medical chart.
+Kimoto Yuki set the medical chart aside.
 
-"What a disaster on your way back from visiting the graves."\
-"…………"\
-"You have my permission to resent me, the one who suggested it."\
-"Magical girls do not harbour grudges."\
-"That's a relief."
+“Must've been quite the ordeal, getting into an accident on your way back from visiting a grave.”\
+“............”\
+“I hereby grant you permission to hold a grudge against me, the person who proposed the outing.”\
+“Magical girls do not [think] about grudges.”\
+“That's a relief.”\
+“This is an apology gift,” she said.
 
-This is my apology, she thought.\
-Yuki Kimoto snapped her fingers.\
-Then, from behind the curtain in the examination room —thud.
+Kimoto Yuki snapped her fingers.\
+Then, from behind the examination room curtain...
 
-"Nyah!"
+“Nyah!”
 
-Squish.
+*Thud!*
 
-"Pigya!"
+“Pigyah!”
 
-Slide.
+*Scrape!*
 
-"Heh, heh-uh...!"
+“H-hyeuu...!”
 
-Rubbing the bruises from tumbling twice, thrice, the girl emerged.
+Rubbing the spots she'd injured when she fell, once, then twice, then three times, the girl finally appeared.
 
-"—Chii, [Chiwawa Yellow]! I'm back, woof, san-joo!"
+“...Ch-[Chihuahua Yellow]! Reporting for duty, woof! I have arriiiiived!”
 
-　Her face wet with blood.\
-W-peace sign brightly raised.\
-Fluffy golden hair glistening under the fluorescent lights.\
-Her round golden eyes glistening, as if enduring the pain of the fall.
+Her face was smeared with blood.\
+She flashed a cheerful double peace sign.\
+Her fluffy golden hair glittered beneath the fluorescent lights.\
+Her round, golden eyes glistened as she tried to endure the pain from her falls.
 
-A mouth twisted into an omega shape. About the same height as Momotsuki Haruka.\
-Eight or nine years old. A lovely girl, still retaining that childlike innocence.
+Her mouth was shaped like the Greek letter omega. She was about the same height as Momotsuki Haruka.\
+Eight or nine years old, perhaps. A delicate little girl, still wearing the unmistakable innocence of childhood...
 
-"...Sensei"\
-"The so-called clumsy girl trait."\
-"But she's bleeding from the top of her head."\
-"It's fine! Really!"\
-"So she says. This child will be your assistant... though 'assistant dog' might suit her character better? Anyway, she'll look after you until you get used to your new mechanised body."\
-"Um!"\
-"What is it?"\
-"The entrance pose! How long! How long must I keep it up?!"\
-"...The magical girl manual states you may freely release it once you reach a natural stopping point, Chiwa Yellow-san."
+“...Doctor.”\
+“She's what you'd call a klutz.”\
+“She's bleeding from the top of her head.”\
+“I'm fiiiiine! Really!”\
+“That's what she says. She'll be your attendant... Actually, perhaps *assistance dog* suits her character better? Anyway, until your newly mechanised body gets used to itself, she'll be looking after you.”\
+“Um!”\
+“What is it?”\
+“How long am I supposed to keep doing the introduction pose?!”\
+“...The magical girl manual states that you're free to stop once you've reached a suitable point, Chihuahua Yellow.”
 
-Chiwa Yellow exhaled softly, 'Fuuuh', and broke her pose.\
-Yuki Kimoto stifled a laugh.\
-　Haruka Momotsuki clutched her temples. Thinking was forbidden. She didn't want to think, yet somehow she couldn't help worrying about what lay ahead —Haruka Momotsuki understood it all in that single instant.
+*Phewww.*\
+Chihuahua Yellow let out a sigh of relief and dropped her pose.\
+Kimoto Yuki struggled to suppress her laughter.\
+Momotsuki Haruka pressed a hand to her aching head. [Thought] was forbidden. She didn't want to think at all, yet somehow she could already tell that things were going to be troublesome.
 
-"An unadjusted child?"\
-"A future magical girl. As her senior, as her big sister, you should teach her all sorts of things."\
-"!"
+“An *unadjusted* child, is she?”\
+“A *future magical girl*. As her senior, and in the role of her big sister, you should teach her a few things.”\
+“!”
 
-　The innocent, golden-haired girl struck a saluting pose.\
-A limp smile that suited her fluffy hair.
+The innocent-looking girl with golden hair snapped into a salute.\
+Her floppy smile suited her fluffy hair perfectly.
 
-"Nice to meet you from today on, Strawberry Pink-senpai!"
+“I'm looking forward to working with you, starting today, Senior Strawberry Pink!”
 
-A cute smile.\
-This one'll die too, anyway —Haruka Momotsuki drowned the fleeting thought in strawberry milk.
+A charming smile.\
+*She's going to die, too, anyway.* - Momotsuki Haruka drowned the thought as it crossed her mind with strawberry milk.

@@ -1,87 +1,96 @@
 ---
 grand_parent: Monofilament Witch
 layout: episode
-parent: 'Chapter Four: Raven from Hell'
+parent: 'Raven from Hell'
 sequence: 20
 title: 'Episode 20: Damage'
 ---
-"Ohh! Ohhhhh! Brown! It's Brown! Long time no see! Fuheh! Fuhihohihoho! I'm so happy! So very happy! Two friends have come today! To my house! To my home!　Two people, two people, two people, two people! Friends have come! Fuhehihihihihiiii!!"\
-"I told you! I'm not Brown! I said I'm not Brown!"\
-"...It's worse than the last time you came."
+## Episode 20: Damage
 
-Immediately after his vision was blanketed in black phosphorescent light.\
-　【Topaz Orange】—【The Witch of Cancer】, the 【Staff Craftsman】, stood behind Sere.\
-A moment.\
-A moment so fleeting there was no time to blink.\
-And then, she was stroking the child street urchin who had come with them. With her rough, steel hands sprouting countless claws.
+\
+“OOOH! Ooooohhh! [Brown]! It’s [Brown], isn’t it! It’s been ages! Heeheh! Fuhihihihiii! I’m so happy! So happy! Two friends have come to visit today! To my house! My little home! Two people, two of them, two, two, twooooo! I’ve got FRIENDS visiting! Fuhihihihihiii!!”\
+“I TOLD you! I ain’t no Brown, whatever the hell that is!”\
+“...You’re worse than the last time I came.”
 
-"Silver-haired one, do you know this person? This gloomy old hag?"\
-"...Yeah. Been about five years."\
-"Hah... So even a hag like this has mates, eh?"
+Immediately after the black phosphorescence had blotted out her vision,\
+[Topaz Orange], the [Witch of Cancer], the [Wandmaker], was standing behind Sere.\
+In an instant.\
+An instant so brief there wasn’t even time to blink.\
+And now she was stroking the street child who had come with Sere, using her clumsy, heavy steel hands, bristling with countless pairs of scissors.
 
-The child said, sounding exasperated.
+“Silver-hair, you know this old gloomy hag?”\
+“...Yeah. It’s been about five years.”\
+“Huhhh... Even an old hag like this has mates, then.”
 
-"Right then, I'm off to play games. Hag! I'm borrowing Street Fighter 8!"\
-"Aaaaaaah! Play! Play! Play! 【Brown】! You should play more games! Watch anime too!　Brown! It's better to have lots of hobbies! Studying all the time makes you stupid!"\
-"I told you I'm not Brown! Honestly..."
+The child sounded incredulous.
 
-Soon, the beeps and boops of a retro game began to echo.\
-Listening to it, the wandmaker swung her long hair about cheerfully, her eyeless sockets fixed intently on Sel.
+“Right, I’m gonna play some games. Old hag! I’m borrowing *SF8*!”\
+“Yeeeees! Play, play, play! [Brown]! You should play more games! Watch anime, too! [Brown]! It’s better to have lots of hobbies! If you do nothing but study, you’ll turn stupid!”\
+“I TOLD you, I ain’t Brown! Jeez...”
 
-"【Blue】! It's coffee! I can make coffee! I know you said you hated it! But if I put loads of gum syrup, sugar, and milk in it, you can drink it, right?! Eh?! Eh?! Everyone, everyone, everyone learned to drink it this way! Me, 【Brown】, 【Yellow】, 【Pink】, 【Red】, 【Red】, 【Red】, 【Red】, fheh!　Fehihihi!"\
-"...Sorry, [Staff Craftsman]. I came with a request today."\
-"I'll do anything! Fehihohohoh-!!"\
-"Fix it."
+Before long, the chirpy electronic sounds of a retro game began to fill the room.\
+Listening to them, the Wandmaker swung her long hair about happily and stared intently at Sere with her eyeless gaze.
 
-The Staff Craftsman crushed an empty cola can with her steel arm and poured the muddy liquid inside into a mug. With that in the background, Sere presented the item.
+“[Blue]! I’ve got coffee! I can offer you coffee! I know you said you hated it, but if you put in lots of gum syrup, sugar and milk, you can drink it, right?! Right?! Right?! Everyone’s learned to drink it this way! Me, [Brown], [Yellow], [Pink], [Red], [Red], [Red], [Red]...! Fehih! Fehihihi!”\
+“...I’m sorry, [Wandmaker]. I’ve come to ask you a favour today.”\
+“I’ll do anything! Fehihihiii!!”\
+“Fix it.”
 
-　A shattered scabbard.\
+The Wandmaker crushed an empty cola can in her steel hand and poured the muddy liquid inside into a mug. While she was occupied with that, Sere presented her with the items she had brought.
+
+A shattered scabbard.\
 A broken Japanese sword.\
-Connected to them, a magical cyberdeck staff.
+And the magical cyberdeck staff connected to them.
 
-"Ah."
+“Ah.”
 
-The staff maker crushed the mug in her hand.
+The Wandmaker crushed the mug in her hand.
 
-"Ah—ahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh\
-"She's dead! She's dead! Greer! Beloved Greer! Sweet, sweet Greer! My little sister Greer! The smallest and cutest Greer ever!"
+“Ah... AAAAAAAAHHHHHHHHHHHHHHHHHH!!!!”\
+“Shut up, old hag!”\
+“She’s dead! She’s dead! [Green]! [Green], who was loved by everyone! Sweet, sweet [Green]! My little sister, [Green]! The smallest and cutest of them all! GREEEEEEEEEEEEEN!!!”
 
-The cane maker swept through the room with her steel arm.\
-Sere knocked down the television that had been knocked over by the child.\
-　The anime images scatter across the countless cracked analogue screens.
+The Wandmaker swept her steel arms through the room, smashing everything in their path.\
+A television, knocked flying by the child, hurtled through the air. Sere struck it down.\
+On the countless cracked analogue screens scattered across the floor, the anime images flickered and reflected in every direction.
 
-"Calm down! [Wandmaker]!"\
-"[Greer]...! Poor [Greer]...! Who? Who did this horrible thing? Hmm, hmm, hmm hmm hmm hmm...!"
+“STOP! Calm down, [Wandmaker]!”\
+“[Green]...! Poor [Green]...! Who was it? Who did such a terrible thing to her? Yes, yes, yes, yes, yes, yeeeees...!”
 
-The movement stops.\
-　The Staff Craftsman rubs her cheek against the shattered sheath.\
-A black light flickers. The black light dimly illuminates the girl whose lower half of her face is hidden by a mask.
+She stopped moving.\
+The Wandmaker pressed her cheek against the shattered scabbard.\
+Black light flickered, faintly illuminating the girl whose lower face was concealed behind a mask.
 
-"Strawberry Pink..."\
-"...You know?"\
-"Ah... Poor junior. Poor thing. Poor thing, poor thing, poor thing...! Ah, ahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+“... [Strawberry Pink].”\
+“...You can tell?”\
+“Ahhh... Poor junior. Poor thing. So poor, so poor, so poor...! Ah, ahhhhhh...!”
 
-　Carried by the momentum of the cheek-rubbing, the cane maker smears her cheek across the dirt-strewn ground.\
-The mask opens.\
-A long, sticky tongue peeks out.\
-And it licks... the shattered mug. What she called coffee, mud.
+Still rubbing her cheek against the scabbard, the Wandmaker dragged her face across the rubbish-strewn floor.\
+Her mask opened.\
+A long, slimy tongue emerged from beneath it.\
+And then she began to lick...\
+The shattered mug. The muddy liquid she had called coffee.
 
-"...Sorry. Was I losing it?"\
-"...Yeah."\
-"Oh dear."
+*
 
-With a shrug.\
-Sitting atop the smashed television, the wandmaker clutched her head.
+“...Sorry. Was I having a psychotic episode?”\
+“...Yeah.”\
+“Whoops.”
 
-"Sorry. I've been unconscious more than awake lately. That was bad, wasn't it?"\
-"...Quite."\
-"Ugh, without caffeine I just go like this. Messing with my brain is no good. I really think that sort of thing is bad for me."\
-"Granny, you just keep drinking coffee then."\
-"No way, it tastes like mud."
+Just like that, she was back to normal.\
+Sitting on top of a smashed television, the Wandmaker clutched her head.
 
-Right then.\
-Clicking the countless scissors sprouting from her arms, the cane maker looked at Sere.\
-She stared intently with her eyeless eyes.
+“Sorry about that. Lately, I spend more time unconscious than aware. That was pretty bad, huh?”\
+“...Bad enough.”\
+“Man, I’m like this the moment I don’t have caffeine. Messing with your brain really is a bad idea, isn’t it? I don’t think that sort of thing is good for you.”\
+“Old hag, you should just drink coffee all the time.”\
+“No way. That stuff tastes like mud.”\
+“Well, then.”
 
-"I've mostly got it.\
-This magical cyberdeck is beyond repair."
+The Wandmaker clicked the countless pairs of scissors sprouting from her arms and turned to Sere.\
+She stared at her with eyeless eyes.
+
+*
+
+“I more or less understand what’s happened.\
+“This magical cyberdeck cannot be repaired.”

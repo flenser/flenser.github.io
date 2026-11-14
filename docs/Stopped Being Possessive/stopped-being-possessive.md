@@ -1,7 +1,9 @@
 ---
 title: I Stopped Being Possessive, and Then She Fell Apart
+author_ja: "ハゲダチ"
+author_romaji: "Hagedachi"
 has_children: true
-tags: ["suggestive", "high school", "yandere", "co-dependence", "angst", "ongoing"]
+tags: ["suggestive", "high school", "yandere", "co-dependence", "angst", "complete"]
 ---
 ## Original Title
 

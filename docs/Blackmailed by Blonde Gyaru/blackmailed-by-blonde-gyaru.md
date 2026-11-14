@@ -1,5 +1,7 @@
 ---
 title: "The Discipline Committee Chair Who Got Blackmailed by a White-Haired Gyaru Gets Completely Wrecked Playing 'Yuri Friends'"
+author_ja: "しきもと ホノ"
+author_romaji: "Shikimoto Hono"
 has_children: true
 tags: ["high energy", "explicit", "secret relationship", "enemies to lovers", "seduction", "high school", "honor student", "crumbling facade", "complete"]
 ---
