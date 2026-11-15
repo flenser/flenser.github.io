@@ -1,8 +1,8 @@
 ---
 layout: episode-flat
-nav_order: 60
+nav_order: 61
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-sequence: 61
+sequence: 62
 title: 'A Clod of Earth Knows the Snow'
 ---
 ## "A Clod of Earth Knows the Snow"
