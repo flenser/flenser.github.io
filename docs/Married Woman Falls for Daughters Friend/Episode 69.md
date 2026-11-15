@@ -1,8 +1,8 @@
 ---
 layout: episode-flat
-nav_order: 71
+nav_order: 74
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-sequence: 72
+sequence: 75
 title: 'Chapter Four: "The Snow Melts into the Clod of Earth" — Part Thirteen'
 ---
 ## Chapter Four: The Snow Melts into the Clod of Earth - Part Thirteen

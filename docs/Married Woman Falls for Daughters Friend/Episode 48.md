@@ -1,8 +1,8 @@
 ---
 layout: episode-flat
-nav_order: 48
+nav_order: 50
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-sequence: 49
+sequence: 51
 title: 'Chapter Three: "The Clod of Earth Dreams of Snow" — Part Thirteen'
 ---
 ## Chapter Three: *"The Clod of Earth Dreams of Snow"* — Part Thirteen

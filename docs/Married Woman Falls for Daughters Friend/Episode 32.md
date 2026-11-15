@@ -1,8 +1,8 @@
 ---
 layout: episode-flat
-nav_order: 32
+nav_order: 33
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-sequence: 33
+sequence: 34
 title: 'Chapter Two: "The Snow Finds the Clod of Earth" — Part Eighteen'
 ---
 ## Chapter Two: *"The Snow Finds the Clod of Earth"* — Part Eighteen

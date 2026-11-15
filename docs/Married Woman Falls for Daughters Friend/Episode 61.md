@@ -1,8 +1,8 @@
 ---
 layout: episode-flat
-nav_order: 63
+nav_order: 66
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-sequence: 64
+sequence: 67
 title: 'Chapter Four: "The Snow Melts into the Clod of Earth" — Part Five'
 ---
 ## Chapter Four: The Snow Melts into the Clod of Earth - Part Five
