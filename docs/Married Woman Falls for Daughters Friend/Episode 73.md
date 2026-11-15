@@ -1,7 +1,8 @@
 ---
-layout: episode-flat
+layout: episode
 nav_order: 78
-parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+grand_parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+parent: Volume 2
 sequence: 79
 title: 'Interlude: The Story of the Daughter of a Happy Family Who Falls Head over Heels for a Blonde Beauty - Part 1'
 ---

@@ -1,7 +1,8 @@
 ---
-layout: episode-flat
+layout: episode
 nav_order: 56
-parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+grand_parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+parent: Volume 1
 sequence: 57
 title: '"The Clod of Earth Longs for Snow" — Part One'
 ---

@@ -1,7 +1,8 @@
 ---
-layout: episode-flat
+layout: episode
 nav_order: 60
-parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+grand_parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+parent: Volume 1
 sequence: 61
 title: "Chitaira Kai's Hotel Diary, Part Two"
 ---

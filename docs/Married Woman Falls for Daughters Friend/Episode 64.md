@@ -1,7 +1,8 @@
 ---
-layout: episode-flat
+layout: episode
 nav_order: 69
-parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+grand_parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+parent: Volume 2
 sequence: 70
 title: 'Chapter Four: "The Snow Melts into the Clod of Earth" — Part Eight'
 ---

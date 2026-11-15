@@ -1,7 +1,8 @@
 ---
-layout: episode-flat
+layout: episode
 nav_order: 58
-parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+grand_parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+parent: Volume 1
 sequence: 59
 title: "BOOK☆WALKER Exclusive Bonus: May Love Bloom Beneath Tenderness"
 ---

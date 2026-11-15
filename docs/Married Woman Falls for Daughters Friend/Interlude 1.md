@@ -1,7 +1,8 @@
 ---
-layout: episode-flat
+layout: episode
 nav_order: 15
-parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+grand_parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
+parent: Volume 1
 sequence: 16
 title: 'Volume One: Interlude One'
 ---
@@ -12,7 +13,7 @@ I decided that, after all, I ought to thank her.\
 During the short break after the first lesson, I went over to her desk. It felt as though an invisible membrane surrounded it, keeping everything around her at a certain distance.\
 You could call that isolation. At the same time, though, there was something almost noble about it, as if she allowed no impurities to approach.\
 “Chitaira-san.”\
-When I called out to her, her peach-pink hair shifted slightly, and she raised her face, which had been hidden beneath it. I remembered her as having an expressionless face, almost as though she were wearing a mask. Her appearance was so childlike that she hardly seemed our age. Not merely a year below us, she gave the impression of being a primary-school pupil.\
+When I called out to her, her walnut-brown hair shifted slightly, and she raised her face, which had been hidden beneath it. I remembered her as having an expressionless face, almost as though she were wearing a mask. Her appearance was so childlike that she hardly seemed our age. Not merely a year below us, she gave the impression of being a primary-school pupil.\
 And then there were her yellow-green eyes, undoubtedly the rarest colour in the classroom.\
 “Thanks for yesterday.”\
 “You're welcome.”\
