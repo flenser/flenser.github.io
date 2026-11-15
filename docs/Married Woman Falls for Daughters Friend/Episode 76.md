@@ -1,8 +1,8 @@
 ---
 layout: episode-flat
-nav_order: 78
+nav_order: 81
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-sequence: 79
+sequence: 82
 title: 'Chapter Five: "The Clod of Earth Is Sweeter Than Snow" — Part Two'
 ---
 ## Chapter Five: The Clod of Earth Is Sweeter Than Snow – Part Two

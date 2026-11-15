@@ -1,8 +1,8 @@
 ---
 layout: episode-flat
-nav_order: 54
+nav_order: 58
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-sequence: 55
+sequence: 59
 title: "BOOK☆WALKER Exclusive Bonus: May Love Bloom Beneath Tenderness"
 ---
 ## BOOK☆WALKER Exclusive Bonus Story

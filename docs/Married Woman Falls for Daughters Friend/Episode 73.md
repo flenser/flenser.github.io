@@ -1,8 +1,8 @@
 ---
 layout: episode-flat
-nav_order: 75
+nav_order: 78
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-sequence: 76
+sequence: 79
 title: 'Interlude: The Story of the Daughter of a Happy Family Who Falls Head over Heels for a Blonde Beauty - Part 1'
 ---
 ## Interlude: The Story of the Daughter of a Happy Family Who Falls Head over Heels for a Blonde Beauty - Part 1

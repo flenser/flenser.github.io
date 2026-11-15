@@ -1,8 +1,8 @@
 ---
 layout: episode-flat
-nav_order: 21
+nav_order: 22
 parent: "A Story About a Happily Married Woman Who Falls Completely For Her Daughter's Friend"
-sequence: 22
+sequence: 23
 title: 'Chapter Two: "The Snow Finds the Clod of Earth" — Part Seven'
 ---
 ## Chapter Two: *"The Snow Finds the Clod of Earth"* — Part Seven
