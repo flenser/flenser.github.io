@@ -18,7 +18,7 @@ I understand Kai, she’s a teenager, going through puberty, at the peak of her 
 I felt ashamed that I harboured the same intensity of desire as that teenager.\
 After our usual long kiss, I glared at Kai.\
 "I’ve been telling you again and again not to kiss me without asking, haven’t I?"\
-"It’s not without asking. You want to kiss me too, Yuki."\
+"It’s not without asking. You want to kiss me too, Yuki-san."\
 "Eh?"\
 "That’s what your face is saying."\
 She made up some excuse and came back to my lips again.\
@@ -44,7 +44,7 @@ I asked Kai, who was still dazed by the afterglow whilst pinning me down and cas
 "A woman approaching forty… really?"\
 "Because you’re the sexiest older woman there is."\
 "…You could phrase that a bit better."\
-It might be the essence of it for Kai, but it sounds like he’s only after my body, which isn’t very flattering.\
+It might be the essence of it for Kai, but it sounds like she’s only after my body, which isn’t very flattering.\
 Especially as I’m in my late thirties and not exactly confident about my figure.\
 "I like you."\
 "…………You should’ve said that first."\
@@ -52,7 +52,7 @@ No matter how many times she does it, a straightforward confession goes straight
 Kai’s hand brushes against my clothes, and I instinctively jerk my leg away.\
 "May I take your clothes off?"\
 Kai, who usually springs straight into action, was asking for confirmation with a serious expression.\
-"If I’m to state my request first, I’d like to suck on your breasts, Yuki."\
+"If I’m to state my request first, I’d like to suck on your breasts, Yuki-san."\
 "Suck…?"\
 "I’ve always thought that whilst touching you."\
 Kai was showering me with raw passion, slamming it against me, trying to stoke the fire.\
