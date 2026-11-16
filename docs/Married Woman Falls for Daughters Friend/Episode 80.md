@@ -26,7 +26,7 @@ Kai’s lips, though chapped, are brimming with more than enough passion. She’
 "Is it really… that good…?"\
 Of course, I’ve never sucked on my own breasts… nor on any other woman’s… well, my mother’s, I suppose… Oh, right, everyone’s been brought up sucking on their mother’s breast… So perhaps liking breasts is just a natural human instinct. Really?\
 Kai responds to my question only with melting eyes and a blush on her cheeks.\
-"It’s all right…" My head went numb, and I couldn’t say anything more; I just let him do as he pleased.\
+"It’s all right…" My head went numb, and I couldn’t say anything more; I just let her do as she pleased.\
 Kai savoured it for a long, really long time, when Kai finally drew away, after what seemed an extraordinarily long time, I was able to pull her face away from me. The area around my chest had grown somewhat numb. My nipples continued to throb, signalling a persistent sensation that was similar to pain, but not quite the same. Just looking down and thinking that Kai had been doing that to me threatened to send my mind into disarray, so I quickly pulled down my bra and the clothes I had been holding up all this time. My arms ached from having kept them raised, which only added to my discomfiture.\
 Even after I had covered myself, Kai continued staring intently at my chest.\
 “Yuki-san’s child is rather lucky, isn’t she?”\
@@ -45,7 +45,7 @@ It was something I had never directed towards anyone before, yet the answer had 
 Beyond barriers such as being fourteen, or being immature.\
 I was looking at a woman.\
 I fixed my gaze on Kai, my eyes drawing lines of pain as though they were cracked. It felt as though my desire had multiplied my tongue three or four times over, licking my lips again and again. The contrast between what was wet and what had dried out was so pronounced that a white haze seemed to descend over my mind. My actions became clouded, reality lost its solidity, and my body began to move.\
-I grabbed Kai’s slender shoulders and pushed him down. Perhaps it was an unexpected counterattack; his eyes looked caught off guard.\
+I grabbed Kai’s slender shoulders and pushed her down. Perhaps it was an unexpected counterattack; her eyes looked caught off guard.\
 "Just so you know, you’re plenty… pervy, you little brat."\
 On such a thin, slender, immature body.\
 My sexual desire, which had begun to gather dust, was now wet and dripping.\
