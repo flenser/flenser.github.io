@@ -3,7 +3,7 @@ title: "Miyazono-san the Honest, and Me Who Can’t Be Happy"
 author_ja: "4kaえんぴつ"
 author_romaji: "Touka Yoru"
 has_children: true
-tags: ["slow burn", "high school", "short", "parental neglect", "angst", "ongoing"]
+tags: ["slow burn", "high school", "short", "parental neglect", "angst", "complete"]
 ---
 ## Original Title
 
