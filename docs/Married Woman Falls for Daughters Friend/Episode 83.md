@@ -12,37 +12,37 @@ title: 'Chapter Five: "The Clod of Earth Is Sweeter Than Snow" — Part Nine'
 I got into the car, closed the door and let out a deep breath. Finding relief in escaping other people's eyes. I really was a proper criminal.\
 Shivering in the air-conditioned interior, I hunched over and fumbled with my phone.\
 A little while later, Kai answered.\
-『It's unusual for you to call.』\
+*It's unusual for you to call.*\
 “That's true.”\
 I'm a wretched wife, after all, holding back for the sake of protecting myself.\
-『You're calling to discuss what sort of naughty selfie you'd like, aren't you?』\
+*You're calling to discuss what sort of naughty selfie you'd like, aren't you?*\
 “You idiot.”\
-『Why does covering the eyes make those pictures so much more indecent, I wonder?』\
+*Why does covering the eyes make those pictures so much more indecent, I wonder?*\
 “Idiot.”\
-『I feel like you just insulted me from the bottom of your heart.』\
+*I feel like you just insulted me from the bottom of your heart.*\
 I certainly did.\
 “That's not what I called about... I'm sorry about yesterday.”\
-『You're still worrying about that?』\
+*You're still worrying about that?*\
 Kai sounded surprised. Of course I was still worrying about it.\
 It was difficult to peer into another person's heart. Perhaps, behind that smile, they were secretly sticking out their tongue at me.\
 Nothing proved how impossible it was to know someone's true feelings more clearly than the way I treated my own family.\
-『Yuki-san, you're quite the worrier, aren't you?』\
+*Yuki-san, you're quite the worrier, aren't you?*\
 “I can't help it. I'm a coward.”\
 Once, that anxious heart of mine had made me leave work early because I was worried about my daughter having a cold.\
 Now, I was fretting over whether Kai hated me because I'd attacked her.\
 As though I'd exchanged one person's affection for another's, I'd become a terrible mother.\
-『I told you yesterday, too... You don't need to worry about something like that.』\
+*I told you yesterday, too... You don't need to worry about something like that.*\
 “It's not something like that... I know it might be presumptuous of me, but I want to...”\
 Save you. Get through this together.\
 And for that, I'd decided to destroy yet another part of the life I'd known until now.\
-『Besides, I was happy.』\
+*Besides, I was happy.*\
 “Happy?”\
-『Because I finally got to meet the real naughty old lady.』\
+*Because I finally got to meet the real naughty old lady.*\
 “...I'm a naughty old lady...”\
 A naughty old lady I could no longer deny being.\
 I am a woman whose life’s goal is to do naughty things with Kai. I want to sleep with a fourteen-year-old.\
 At the age difference, and at the very fact of our ages, a strange little laugh escaped me. My twisted lips wouldn't come together properly.\
-『So, with that in mind, I'd like a selfie befitting a naughty old lady.』\
+*So, with that in mind, I'd like a selfie befitting a naughty old lady.*\
 I hung up. Turning the car key, I told myself it was time to go to work.\
 But something wasn't right.\
 I'd developed a bad habit lately.\
