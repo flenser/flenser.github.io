@@ -9,12 +9,12 @@ title: 'Chapter Five: "The Clod of Earth Is Sweeter Than Snow" — Part Twelve'
 ## Chapter Five: The Clod of Earth Is Sweeter Than Snow – Part Twelve
 
 \
-On my way back from the hotel, barely managing to shake off my drowsiness, I suddenly thought of Mebara-sensei, who had caused trouble in the past and then moved away.\
+On my way back from the hotel, barely managing to shake off my drowsiness, I suddenly thought of Ichigohara-sensei, who had caused trouble in the past and then moved away.\
 As I recalled, she was a disgraceful teacher who had made advances towards one of her female high-school students.\
 I'd even felt a measure of contempt for her when she left this town.\
-I wondered whether Mebara-sensei would sympathise with me if she heard about what I was doing now.\
+I wondered whether Ichigohara-sensei would sympathise with me if she heard about what I was doing now.\
 Perhaps she'd say, *Well, these things happen, don't they?*\
-“...Mebara-sensei, I'm sorry.”\
+“...Ichigohara-sensei, I'm sorry.”\
 I had no right to condemn you. I was apologising belatedly to someone who had long since gone far away.\
 The body of the middle school girl I met was as slender and delicate as a withered branch—yet on that skin, a certain youthfulness ripened, lush and vivid. It was a disgustingly repulsive thing to think.\
 I loved my husband. But my love for him didn't include feelings such as protectiveness or pity.\
