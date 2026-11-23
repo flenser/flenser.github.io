@@ -54,7 +54,7 @@ There are people who shouldn't be allowed to live. Yes. Me.
 I'd merely admonish myself with words like that, and then go on repeating the same mistakes.\
 It would be strange if I came home late every night.\
 So, because that would be strange, we agreed to meet early in the morning and indulge ourselves instead. It was a proposal that could only serve to turn my life into rubbish, and I accepted it.\
-I lied, slipped out of the house to avoid Shinonome, and hurried towards the hotel. I left much earlier than my usual departure for work, at an hour when the town still seemed asleep. Everything about this was utterly wretched. If I kept repeating this, my life really would fall apart. No, it would be ruined. Just being spotted by someone would be enough to bring my life to an end.\
+I lied, slipped out of the house before the first light of dawn, and hurried towards the hotel. I left much earlier than my usual departure for work, at an hour when the town still seemed asleep. Everything about this was utterly wretched. If I kept repeating this, my life really would fall apart. No, it would be ruined. Just being spotted by someone would be enough to bring my life to an end.\
 And yet, despite the heaviness in my head, despite my guilt and my desire to run away and scream, despite not wanting any of this, my hands moved as though trying to shake off that oppressive weight.\
 “No kissing, all right...”\
 I'd learnt that make-up other than lipstick also transferred onto Kai's face, leaving a complete mess. But if I had to redo my make-up after everything, it would take too much time. So I had no choice but to forbid kissing, in order not to reduce the time I could spend with Kai.\
