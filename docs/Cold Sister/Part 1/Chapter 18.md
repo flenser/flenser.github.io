@@ -4,9 +4,9 @@ layout: episode
 nav_order: 18
 parent: Part 1
 sequence: 18
-title: Chapter 18 – Even If My Love Can Never Reach Her
+title: Chapter 18 – Even If My Love Can Never Reach Her - POV Shimamoto
 ---
-## Chapter 18 - Even If My Love Can Never Reach Her
+## Chapter 18 - Even If My Love Can Never Reach Her - POV Shimamoto
 
 \
 From then on, Ren began coming to me for advice regularly, always prefacing her questions with, “This is about a friend of mine…”

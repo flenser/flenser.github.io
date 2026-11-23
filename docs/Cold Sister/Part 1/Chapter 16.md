@@ -4,9 +4,9 @@ layout: episode
 nav_order: 16
 parent: Part 1
 sequence: 16
-title: Chapter 16 – Two Liars
+title: Chapter 16 – Two Liars - POV Tomoka
 ---
-## Chapter 16 – Two Liars
+## Chapter 16 – Two Liars - POV Tomoka
 
 \
 I had arrived at my conclusion entirely thanks to Souji-sensei.

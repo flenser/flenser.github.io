@@ -4,9 +4,9 @@ layout: episode
 nav_order: 17
 parent: Part 1
 sequence: 17
-title: Chapter 17 – First Love Is Unrequited
+title: Chapter 17 – First Love Is Unrequited - POV Shimamoto
 ---
-## Chapter 17 - First Love Is Unrequited
+## Chapter 17 - First Love Is Unrequited - POV Shimamoto
 
 \
 It was love at first sight.
