@@ -2,7 +2,7 @@
 grand_parent: "I Think I've Fallen for My Friend's Little Sister... Now What Do I Do?"
 layout: episode
 nav_order: 2
-parent: Part 2
+parent: Part 1
 sequence: 2
 title: Chapter 2 – I Had Fallen Completely in Love
 ---
