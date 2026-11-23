@@ -31,6 +31,8 @@ A love story woven between these two sisters.
    </div>
    {% endif %}
 
+![Cold Sister](/assets/images/cold-sister.jpg)
+
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: Mumei [無銘]
 
