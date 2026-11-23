@@ -4,9 +4,9 @@ layout: episode
 nav_order: 15
 parent: Part 1
 sequence: 15
-title: "Chapter 15 – A World of Love (Ai's World)"
+title: "Chapter 15 – A World of Love (Ai's World) - POV Tomoka"
 ---
-## Chapter 15 – A World of Love (Ai's World)
+## Chapter 15 – A World of Love (Ai's World) - POV Tomoka
 
 \
 “That girl who walked off with the junior from the basketball club... That's Kawai-san, isn't it? I wonder how she knows her.”\
