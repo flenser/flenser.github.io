@@ -2,7 +2,7 @@
 grand_parent: "I Think I've Fallen for My Friend's Little Sister... Now What Do I Do?"
 layout: episode
 nav_order: 4
-parent: Part 4
+parent: Part 1
 sequence: 4
 title: "Chapter 4 – She's Sooooooo Incredibly Cute!"
 ---

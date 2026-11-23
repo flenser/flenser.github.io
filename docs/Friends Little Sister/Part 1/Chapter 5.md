@@ -2,7 +2,7 @@
 grand_parent: "I Think I've Fallen for My Friend's Little Sister... Now What Do I Do?"
 layout: episode
 nav_order: 5
-parent: Part 5
+parent: Part 1
 sequence: 5
 title: "Chapter 5 – Oh No… I’m in Love…"
 ---

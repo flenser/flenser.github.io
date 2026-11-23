@@ -2,7 +2,7 @@
 grand_parent: "I Think I've Fallen for My Friend's Little Sister... Now What Do I Do?"
 layout: episode
 nav_order: 3
-parent: Part 3
+parent: Part 1
 sequence: 3
 title: "Chapter 3 – If She Finds Out, It's All Over...!"
 ---
