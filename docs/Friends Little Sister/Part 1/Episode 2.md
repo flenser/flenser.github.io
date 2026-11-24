@@ -4,7 +4,7 @@ layout: episode
 nav_order: 2
 parent: Part 1
 sequence: 2
-title: Episode 2: I Had Fallen Completely in Love
+title: "Episode 2: I Had Fallen Completely in Love"
 ---
 ## Episode 2 – I Had Fallen Completely in Love
 
