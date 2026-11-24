@@ -4,7 +4,7 @@ layout: episode
 nav_order: 1
 parent: Part 1
 sequence: 1
-title: Episode 1: The Beginning of Love
+title: "Episode 1: The Beginning of Love"
 ---
 ## Episode 1 – The Beginning of Love
 
