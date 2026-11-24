@@ -4,9 +4,9 @@ layout: episode
 nav_order: 1
 parent: Part 1
 sequence: 1
-title: Chapter 1 – The Beginning of Love
+title: Episode 1: The Beginning of Love
 ---
-## Chapter 1 – The Beginning of Love
+## Episode 1 – The Beginning of Love
 
 \
 A little over a week had passed since the high school entrance ceremony, and I, Miyanomori Yuu, was visiting the home of my closest friend in class, Ayase Marika, a self-proclaimed believer in the supremacy of two-dimensional characters.

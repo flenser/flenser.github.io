@@ -4,9 +4,9 @@ layout: episode
 nav_order: 5
 parent: Part 1
 sequence: 5
-title: "Chapter 5 – Oh No… I’m in Love…"
+title: "Episode 5: Oh No… I’m in Love…"
 ---
-## Chapter 5 - Oh No… I’m in Love…
+## Episode 5 - Oh No… I’m in Love…
 
 \
 When I took off my shoes in the entrance hall, I found myself neatly lining them up without even thinking. Normally, I’d just shove them off to one side, but today, for some reason, I was being unusually meticulous.
