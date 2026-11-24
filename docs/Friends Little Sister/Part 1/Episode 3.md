@@ -4,9 +4,9 @@ layout: episode
 nav_order: 3
 parent: Part 1
 sequence: 3
-title: "Chapter 3 – If She Finds Out, It's All Over...!"
+title: "Episode 3: If She Finds Out, It's All Over...!"
 ---
-## Chapter 3 – If She Finds Out, It's All Over...!
+## Episode 3 – If She Finds Out, It's All Over...!
 
 \
 Ever since that day, I'd been doing my best to carry on with my life as normally as possible.

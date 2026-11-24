@@ -4,9 +4,9 @@ layout: episode
 nav_order: 4
 parent: Part 1
 sequence: 4
-title: "Chapter 4 – She's Sooooooo Incredibly Cute!"
+title: "Episode 4: She's Sooooooo Incredibly Cute!"
 ---
-## Chapter 4 – She's Sooooooo Incredibly Cute!
+## Episode 4 – She's Sooooooo Incredibly Cute!
 
 \
 "—Um, did you need something?"

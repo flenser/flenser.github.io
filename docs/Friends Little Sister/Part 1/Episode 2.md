@@ -4,9 +4,9 @@ layout: episode
 nav_order: 2
 parent: Part 1
 sequence: 2
-title: Chapter 2 – I Had Fallen Completely in Love
+title: Episode 2: I Had Fallen Completely in Love
 ---
-## Chapter 2 – I Had Fallen Completely in Love
+## Episode 2 – I Had Fallen Completely in Love
 
 \
 "Ah, sorry, Manami. I had your earphones with me at school."
