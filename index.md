@@ -16,6 +16,7 @@ nav_exclude: true
 - [Demon Lord Girl Self-Destructs ~The World Has Been Saved, But the Saint Won't Let Go of Me~ ✅](/docs/Demon Lord Girl Self-Destructs/demon-lord-girl.html)
 - [Don't you feel ashamed to be overpowered by a maid? ✅](/docs/Don't you feel ashamed to be overpowered by a maid/overpowered-by-maid.html)
 - [Eternal Rest (I'm Just Tired) ❌](/docs/Eternal Rest/eternal-rest.html)
+- [I Think I've Fallen for My Friend's Little Sister... Now What Do I Do?](/docs/Friends Little Sister/friends-little-sister.html)
 - [From the Place Without Barlines ✅](/docs/From the Place Without Barlines/place-without-barlines.html)
 - [Good Night, Sleeping Beauty ✅](/docs/Good Night, Sleeping Beauty/sleeping-beauty.html)
 - [How about afternoon tea? ✅](/docs/How about afternoon tea/how-about-afternoon-tea.html)
