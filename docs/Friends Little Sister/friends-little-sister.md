@@ -37,6 +37,8 @@ She was my friend's... little sister.
    </div>
    {% endif %}
 
+![Friend's Little Sister](/assets/images/friends-little-sister.jpg)
+
 The original Japanese Web Novel can be found on [kakuyomu].\
 Author: Koi Mizoreame [恋みぞれ雨]
 
