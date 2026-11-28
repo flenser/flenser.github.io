@@ -27,7 +27,7 @@ While I was cooking, Mum came home. Apparently, she'd finished work early becaus
 
 The teriyaki chicken, rice bowls and miso soup laid out before us were all for two people.
 
-I was happy to have dinner with Mum, but at the same time, Ren's absence felt all the more keenly.
+I was happy to have dinner with Mum, but at the same time, Ren's absence was felt all the more keenly.
 
 As though trying to blow away something creeping into my heart, I called out *Itadakimasu!* in a loud voice. Mum's voice joined mine. Then I took a big bite of the teriyaki chicken. The beautifully browned meat, coated in its sweet and savoury sauce, was delicious.
 
